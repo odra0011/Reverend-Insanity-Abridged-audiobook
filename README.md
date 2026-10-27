@@ -1,6 +1,6 @@
 # Reverend Insanity (蛊真人 / Gu Zhen Ren)
 
-### Unabridged Complete Audiobook & Repaired eBook Edition
+### Abridged & Seam-Healed Repaired Edition (~195 Hours, 1.52M Words across all 2,334 Chapters)
 
 <p align="center">
   <img src="cover.jpg" width="380" alt="Reverend Insanity Cover" />
@@ -8,7 +8,7 @@
 
 <p align="center">
   <strong>The dark xianxia cultivation masterpiece by Gu Zhen Ren (蛊真人).</strong><br>
-  Complete unabridged narration voiced in crystal-clear audio fidelity with seam-healed, proofread reading editions.
+  Distilled from the ~5M-word original webnovel by stripping repetitive padding, recaps, and word-count filler while keeping every single chapter (1–2334) and plot beat intact. Voiced in crystal-clear audio fidelity with seam-healed, proofread reading editions.
 </p>
 
 ---
@@ -19,8 +19,9 @@
 | :--- | :--- |
 | **Author** | **Gu Zhen Ren** (`蛊真人`) |
 | **Novel Title** | *Reverend Insanity* (Gu Dao Zhen Ren / 蛊真人) |
-| **Novel Scope** | **2,334 Chapters across 6 Epic Volumes** (~5,200,000 words) |
-| **Total Audio Duration** | **~195 Hours** complete unabridged narration |
+| **Edition** | **Abridged & Seam-Healed Repaired Edition** |
+| **Novel Scope** | **2,334 Chapters across 6 Epic Volumes** (~1.52M words distilled from ~5M original words) |
+| **Total Audio Duration** | **~195 Hours** across all 2,334 chapters |
 | **Audio Format** | **36 kbps VBR Opus** (Voice-optimized high-efficiency compression, 48 kHz stereo-capable) |
 | **Narrator Engine** | **Gemini 3.8 Flash TTS** (`Algieba` en-GB British RP, atmospheric classical dark xianxia delivery) |
 | **Repaired Text Edition** | **Seam-Healed & Restored Markdown + EPUB** (6 Volumes + Complete Omnibus) |
