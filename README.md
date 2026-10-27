@@ -39,7 +39,7 @@
 | <img src="Volume%204/cover.jpg" width="110" alt="Volume 4 Cover" /> | **Volume 4**<br>*The Demon Lord Rampages Unhindered* | Chapters 0650 – 1021<br>(372 chapters) | ~31.0 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 4 - The Demon Lord Rampages Unhindered.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 4 - The Demon Lord Rampages Unhindered.md>) |
 | <img src="Volume%205/cover.jpg" width="110" alt="Volume 5 Cover" /> | **Volume 5**<br>*A Demon King's Might* | Chapters 1022 – 1966<br>(945 chapters) | ~79.0 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 5 - A Demon King's Might.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 5 - A Demon King's Might.md>) |
 | <img src="Volume%206/cover.jpg" width="110" alt="Volume 6 Cover" /> | **Volume 6**<br>*Demon Venerable's Eternal Life* | Chapters 1967 – 2334<br>(368 chapters) | ~31.0 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 6 - Demon Venerable's Eternal Life.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 6 - Demon Venerable's Eternal Life.md>) |
-| <img src="cover.jpg" width="110" alt="Omnibus Cover" /> | **Complete Omnibus**<br>*Volumes 1–6 Complete* | Chapters 0001 – 2334<br>(2,334 chapters) | ~195 Hours | [Complete Omnibus EPUB](<eBook (Repaired Edition)/Reverend Insanity - Complete Omnibus (Volumes 1-6).epub>) |
+| <img src="cover.jpg" width="110" alt="Omnibus Cover" /> | **Complete Omnibus**<br>*Volumes 1–6 Complete* | Chapters 0001 – 2334<br>(2,334 chapters) | ~195 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Complete Omnibus (Volumes 1-6).epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Complete Omnibus (Volumes 1-6).md>) |
 
 ---
 
@@ -78,7 +78,8 @@ Reverend Insanity - Gu Zhen Ren/
 │   ├── Reverend Insanity - Volume 1 - A Demon's Nature Doesn't Change.epub
 │   ├── Reverend Insanity - Volume 1 - A Demon's Nature Doesn't Change.md
 │   ├── ...
-│   └── Reverend Insanity - Complete Omnibus (Volumes 1-6).epub
+│   ├── Reverend Insanity - Complete Omnibus (Volumes 1-6).epub
+│   └── Reverend Insanity - Complete Omnibus (Volumes 1-6).md
 ├── Volume 1/  [199 Opus Tracks + cover.jpg]
 ├── Volume 2/  [206 Opus Tracks + cover.jpg]
 ├── Volume 3/  [244 Opus Tracks + cover.jpg]
