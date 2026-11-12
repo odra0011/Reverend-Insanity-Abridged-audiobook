@@ -146,51 +146,39 @@ Changing into a black robe, Fang Yuan followed the land spirit up the stairs to 
 
 Fang Yuan asked: "How many Gu are in the blessed land now?"
 
-Hu Immortal raised her head slightly: "Currently, there are over eight hundred sixty thousand rank one Gu across fifty-two types, over one hundred thirty thousand rank two Gu in forty-eight types, and five thousand rank three Gu in twelve types. Only sixty-some rank four Gu of eight types, and one rank five Gu—Fox Skin Gu."
+Hu Immortal land spirit raised her head slightly: "Currently, there are over eight hundred and sixty thousand rank one Gu across fifty-two types, over one hundred and thirty thousand rank two Gu in forty-eight types, and five thousand rank three Gu in twelve types. There are only sixty-some rank four Gu of eight types, and one rank five Gu—fox skin Gu."
 
-Time flowed five times faster in Hu Immortal blessed land: one day in the outside world was five days here.
+Fang Yuan analyzed the inventory. Over eight hundred and sixty thousand rank one Gu and a hundred and thirty thousand rank two Gu totaled nearly a million worms. Back on Qing Mao Mountain, he had schemed desperately just to obtain two or three low-rank Gu; now, a single blessed land held enough to sustain half a dozen small clans like the Gu Yue clan. However, the Gu here followed a natural pyramid distribution and were merely ordinary wild species rather than elite varieties like the liquor worm or breath concealment Gu. Even the rank five fox skin Gu was an ordinary defensive worm against wind and water paths, lacking utility in complex battlefields.
 
-This accelerated Fang Yuan's cultivation fivefold, giving him over a year of progress in three real months.
+What truly moved Fang Yuan was the blessed land's time flow. Time flowed five times faster here; one day in the outside world was five days inside. This accelerated his cultivation fivefold, granting him a year and three months of progress for every three months outside. However, with only a mortal hundred-year lifespan, he would also age five times faster.
 
-Naturally, this had a drawback: with only a hundred years of lifespan, he would age five times faster as well.
+The land spirit continued: "Over four million seven hundred thousand foxes across a thousand packs live here, spanning breeds like red, golden, cloud, wind, autumn, and flowing light foxes. The three largest packs each have eight hundred thousand foxes."
 
-The land spirit added: "Over four million foxes across a thousand packs live here, spanning six distinct breeds."
+Three myriad beast kings, but no beast emperor. They were all ordinary beasts rather than mutated beasts or desolate beasts like the hurricane fox. Still, Fang Yuan's acquisition of the blessed land elevated his rebirth plans entirely; he would bypass Jia clan's internal strife and the battle of Yi Tian Mountain to focus on cultivating toward Gu Immortal. To do so, he had to manage the land and endure its recurring calamities.
 
-To reach Gu Immortal, Fang Yuan needed to manage the blessed land while surviving its recurring calamities.
+"Originally, there were three times more foxes," the land spirit explained, showing scenes in smoke. "The second earthly calamity brought meteor fire rain, leaving craters and dark flames burning in the east. The fourth calamity was a massive flood—the clouded white sea calamity—submerging the northern grasslands and drowning countless foxes."
 
-"Originally, there were far more foxes here—at least three times the current amount. The second earthly calamity brought meteor fire rain, devastating the eastern area and incinerating hundreds of thousands of foxes; its dark flames still burn today. The fourth calamity was a massive flood that submerged most northern grasslands, killing countless more foxes. That is why so few remain."
+Hu Immortal had resisted five earthly calamities before perishing. The eastern and northern regions were ruined, shaving over one thousand three hundred square kilometers off the blessed land's four thousand square kilometer territory.
 
 "Suppressing the dark flames and expanding flood will cost substantial immortal essence," Fang Yuan murmured.
 
-Immediately after, Hu Immortal land spirit delivered even worse news.
+Immediately after, the land spirit revealed an even graver crisis. Waving her hand, she projected a scorched prairie where a humanoid figure of crackling blue lightning sat cross-legged.
 
-"Master, look—this greatest danger remains from the fifth calamity." She displayed another scene.
+"Human-shaped lightning—the earthly calamity, blue charm lightning shadow!" Fang Yuan drew in a cold breath.
 
-Fang Yuan saw a scorched prairie where a humanoid figure of blue lightning sat cross-legged.
+This living lightning possessed rank six battle strength. Hu Immortal, an enslavement path Gu Immortal, had lacked individual close-combat power when this calamity bypassed her fox army and struck her down directly.
 
-"Humanoid lightning—the earthly calamity, blue charm lightning shadow!" Fang Yuan inhaled sharply.
+"Master, be careful; this lightning roams randomly and only avoids Dang Hun Mountain," the land spirit warned.
 
-Fang Yuan immediately realized this blue charm lightning shadow was likely the killer of Hu Immortal.
+"This calamity is a living being with a soul. If it nears Dang Hun Mountain, the soul shockwaves will reduce it to ashes," Fang Yuan realized. But as he considered how to lure it, a sharp buzzing echoed in his ears, reminding him of his soul injuries. He shook his head to clear it. "Is there any other bad news? Tell me at once."
 
-"Master, be careful; this humanoid lightning roams randomly and only avoids Dang Hun Mountain," the land spirit warned.
+The situation was far more perilous than expected. Unlike Feng Jin Huang, who had Gu Immortal parents and the backing of Spirit Affinity House, Fang Yuan had to face these crises alone. Yet being a solitary force had its own advantages; in her past life's biography, she had been forced to surrender immense amounts of the blessed land's resources to her sect.
 
-"This lightning is both an earthly calamity and a living being. Having a soul, if it nears Dang Hun Mountain, the soul shockwaves will reduce it to ashes." Fang Yuan had calmed down.
+The land spirit shook her head; only good news remained. First, a tribe of rockmen—variant humans who lived underground and consumed ore—inhabited the southern region. Second, abundant immortal essence remained stored inside Dang Hun Mountain's palace.
 
-"Can I use Dang Hun Mountain to eliminate this lightning shadow? But how do I lure it?" As Fang Yuan pondered, the buzzing in his ears resumed.
+The land spirit led Fang Yuan deep into the palace, where an enormous golden bowl held shimmering green liquid congealed into grape-shaped pearls. This was green grape immortal essence, exclusive to rank six Gu Immortals. Each bead contained far more power than the dwindling essence left behind in the three kings blessed land.
 
-"Is there any other bad news? Tell me at once," he asked the land spirit with a wry smile.
-
-The land spirit shook her head; having reported the worst, only good news remained.
-
-First, a tribe of rockmen inhabited the blessed land's southern region.
-
-Second, Hu Immortal blessed land possessed abundant immortal essence.
-
-The land spirit led Fang Yuan into Dang Hun Mountain's palace. Deep inside, an enormous golden bowl was filled with green immortal essence.
-
-This was exclusive to rank six Gu Immortals—green grape immortal essence!
-
-"With this immortal essence, there is still hope!" Fang Yuan finally breathed a sigh of relief.
+"With this immortal essence, there is still hope!" Fang Yuan breathed a sigh of relief as he looked into the bowl.
 
 # Chapter 410: Dang Hun Mountain’s Gutstone
 
@@ -207,6 +195,10 @@ Fang Yuan held a bead of green grape immortal essence and willed Fixed Immortal 
 After feeding the Gu, Fang Yuan let it roam inside the palace safe from the lightning shadow.
 
 "Let's go, little Hu Immortal, go find the gutstones with me."
+
+"Yes!" the land spirit answered quickly. "Master, you should've done this long ago, come with me."
+
+As they traversed the rugged rocks, Fang Yuan swayed unsteadily, prompting the worried land spirit to ask, "Master, shall I teleport you?"
 
 "Teleport for what? We must save immortal essence!" Fang Yuan glared.
 
@@ -1014,45 +1006,57 @@ He Feng Yang carefully read the detailed content of the lightning letter.
 
 Fang Yuan made only three requests: primeval stones, Gu worms, and materials.
 
-"Requesting five million primeval stones? No problem! Fifty million would be fine," He Feng Yang grinned.
+"Requesting five million primeval stones? No problem! Gu Immortals only care about immortal essence; primeval stones are limitless to us," He Feng Yang grinned.
 
 "Huh? Five spring egg Gu?" He Feng Yang was slightly dazed.
 
-Planted deep underground, spring egg Gu could form a spirit spring eye, producing a spirit spring.
+Planted deep underground, the rank five spring egg Gu could form a small-scale spirit spring, producing at least a hundred million primeval stones over fifty to sixty years. More importantly, spirit springs provided dense primeval energy to the blessed land, cutting down the expenditure of immortal essence that would otherwise be diluted to generate primeval energy.
 
 "To think a mortal knows the importance of spring egg Gu. Three is enough; the blessed land he manages will eventually become Immortal Crane Sect's property anyway."
 
-"Hmph, I see. This kid is vigilant! Fearing we might tamper with rank five Gu if requested directly, he intends to refine them himself. Gu refinement is intricate; tampered worms would ruin the process, whereas a newly refined Gu is completely clean and secure."
+He Feng Yang continued down the list. "Why does he want so many low-ranked Gu worms? Hmph, I see. This kid is vigilant! Fearing we would tamper with rank five Gu, he intends to refine them himself. Gu refinement is intricate; tampered worms would ruin the process, whereas a newly refined Gu is completely clean and secure."
 
 "Huh? He requested relic Gu too—one yellow gold and three purple crystals?" He Feng Yang paused, discerning Fang Yuan's scheme.
 
-A yellow gold relic Gu would push Fang Yuan to rank four peak stage. Upon advancing to rank five initial stage, the three purple crystal relic Gu would elevate him straight to rank five peak stage.
+A yellow gold relic Gu would push Fang Yuan from rank four upper stage to peak stage. Upon breaking through to rank five initial stage, three purple crystal relic Gu would elevate him straight to rank five peak stage.
 
-He Feng Yang could easily provide these relic Gu, but letting Fang Yuan advance to rank five so quickly clashed with Immortal Crane Sect's interests!
+He Feng Yang could easily provide them, but letting Fang Yuan advance to rank five so quickly clashed with Immortal Crane Sect's interests!
 
-"Hehehe, I will first hand over one purple crystal Gu to whet his appetite. Since he wants relic Gu most, we'll use them to demand guts Gu!"
+"Hehehe, I will only give him one purple crystal Gu to whet his appetite. Since he wants relic Gu most, we'll use them to demand guts Gu!"
 
-"So refining Gu is his main plan. Go ahead. But why does he need star heron bile, toad stones, ascension wine, and other rare materials?"
+Looking at the rare materials, He Feng Yang frowned. "Star heron bile, toad stones, ascension wine... I will only give him one vat of ascension wine to test him."
 
-"We're here; plant the spirit spring at this location," Fang Yuan stopped on the grassland and told Little Hu Immortal behind him.
+Lastly, looking at the complete swamp crab corpse offered in exchange, He Feng Yang licked his lips. Fang Yuan had clearly utilized Dang Hun mountain to shatter the desolate beast's soul during the calamity.
 
-Little Hu Immortal nodded and raised her palm, releasing a spring egg Gu.
+Several days later, the transaction concluded successfully. Fang Yuan sold the entire swamp crab corpse in exchange for most of the resources he needed.
 
-The transaction with Immortal Crane Sect succeeded; Fang Yuan sold the entire swamp crab corpse in exchange for most of what he needed.
+"We're here; plant the spirit spring at this location," Fang Yuan stopped on the grassland and instructed Little Hu Immortal.
 
-Fang Yuan buried these three spring egg Gu near the rockmen tribes.
+Activating a rank five spring egg Gu would exhaust even a rank five upper stage Gu Master, but Little Hu Immortal easily triggered it with the blessed land's power. She raised her palm, releasing a spring egg Gu into the ground.
 
-After the sixth earthly calamity, the few surviving fox groups were not worth nurturing, so Fang Yuan focused entirely on the rockmen tribes.
+The earth trembled, and a milky-white fountain surged twenty to thirty meters into the air, saturating the surroundings with dense primeval energy.
 
-"Let's return. The rockmen tribes should be rejoicing now," Fang Yuan commanded the land spirit.
+"Master, with three spirit springs, our green grape immortal essence expenditure will greatly reduce," Little Hu Immortal cheered happily.
 
-The next moment, the two teleported to Dang Hun mountain.
+Fang Yuan buried all three spring egg Gu near the rockmen's territory. After the sixth earthly calamity, only a few pitiful fox groups remained, making them unworthy of investment. Fang Yuan shifted his full focus to the rockmen.
 
-The rockmen struck the gutstones in a frenzy and strengthened their soul.
+"Let's return. The rockmen tribes should be rejoicing now," Fang Yuan commanded.
 
-From only a few hundred rockmen at first, their population expanded tenfold in just a single day!
+The two teleported to Dang Hun mountain.
 
-By the second morning, their population surpassed ten thousand; by the third evening, their numbers reached three hundred thousand.
+"Heavens, so many gutstones!"
+
+"The place is in ruins; perhaps that male immortal died in battle!"
+
+"Tribe leader Yan Yong, we can establish the world's largest rockmen tribe!"
+
+The surviving rockmen cheered ecstatically. Dang Hun mountain was covered in gutstones. They shattered the gutstones in a frenzy, absorbing the energy to strengthen their souls and rapidly give birth to offspring.
+
+From only a few hundred survivors, their population expanded tenfold in a single day. By the second morning, their numbers surpassed ten thousand. By the third evening, their population reached three hundred thousand, stripping Dang Hun mountain bare.
+
+On the fourth day, as the mountain's soul-shaking pressure intensified, the rockmen reluctantly returned to their territory, where the three newly formed spirit springs awaited them.
+
+Meanwhile, Fang Yuan began his preparations for Gu refinement.
 
 # Chapter 422: Spectral Soul Demon Venerable
 
@@ -1874,49 +1878,47 @@ Northern plains natives were xenophobic; his original appearance would invite su
 
 # Chapter 434: Chang Shan Yin, be my husband!
 
-A pot of meat soup simmered over the fire, emitting a fragrant aroma.
+The wide poison grassland grew darker as night fell, the wind howling like wandering spirits.
 
-Seeing Ge Yao staring eagerly at the pot, Fang Yuan said plainly, "No rush. The dried meat just entered the pot and needs to boil. Once it becomes soft and juicy, it'll be delicious,", taking out moving perspective cup Gu.
+A fire burned quietly, expelling the grassland's chill. A pot rested above the flames, the simmering meat soup emitting a fragrant aroma.
 
-Moving perspective cup Gu was a rank five Gu suppressed to rank four in northern plains, with high feeding and essence costs. It also consumed massive primeval essence, yet Fang Yuan had expended great effort and resources to refine it.
+Ge Yao swallowed her saliva, her hunger intensifying. "Senior Chang Shan Yin, can this meat soup be eaten already?"
 
-Fang Yuan took out the golden dragon Gu from his aperture.
+Fang Yuan sat opposite her across the fire, taking out moving perspective cup Gu. "No rush. The dried meat has just entered the pot and needs to boil. Once it becomes soft and juicy, it will be delicious."
 
-The rank four golden dragon Gu, suppressed to rank three, flew out into the moving perspective cup Gu.
+Moving perspective cup Gu was a rank five Gu, now suppressed to rank four in northern plains. It was expensive to feed and consumed vast primeval essence, yet Fang Yuan had expended great effort to refine it. Originated by Thieving Heaven Demon Venerable, it was designed around the legendary space cave recorded in *The Legends of Ren Zu*. Though Thieving Heaven failed in his original goal to plunder wild space path Gu, the Gu became legendary after his blessed land was unearthed four hundred years later. As a pair, the cups could connect across regional boundaries through the space cave to exchange items.
 
-The moving perspective cup Gu moved forward, vanishing piece by piece until it disappeared completely in midair.
+Fang Yuan took out the rank four golden dragon Gu—now suppressed to rank three—from his aperture and placed it inside the cup.
 
-Meanwhile, far away in Central Continent's Hu Immortal blessed land—
+He infused primeval essence into the cup. With its golden top and silver bottom, the cup radiated brilliant light, floated into the air, and vanished piece by piece into thin air.
 
-Moving perspective cup Gu existed as a pair; by activating his cup, it swapped positions through space with the paired cup left in Hu Immortal blessed land.
+Far away in Central Continent's Hu Immortal blessed land, Little Hu Immortal sensed the activation and teleported into Dang Hun palace's secret room to receive it.
 
-Fang Yuan took out a letter from this moving perspective cup Gu.
+Fang Yuan extended his hands and channeled primeval essence again. A golden-silver radiance burst between his palms, and another cup appeared from nothingness.
 
-Written by Little Hu Immortal, it detailed the current situation in the blessed land.
+"Done," Fang Yuan muttered.
 
-Though Fang Yuan had spent only five or six days in poison grassland, a full month had passed in Hu Immortal blessed land.
+Ge Yao stared wide-eyed. "Senior, this Gu is different—originally it was golden top and silver bottom, but now it is silver top and golden bottom!"
 
-Aside from Dang Hun mountain, all was well. Immortal Crane Sect had proposed another transaction, which Little Hu Immortal rejected per Fang Yuan's instructions.
+Fang Yuan chuckled and held a primeval stone to recover his depleted essence.
 
-After reading the letter, Fang Yuan sent a reply.
+Inside the cup was a letter from Little Hu Immortal detailing the blessed land's status. Although Fang Yuan had spent only five or six days in northern plains, a full month had passed in Hu Immortal blessed land. Aside from Dang Hun mountain, all was well. Little Hu Immortal had rejected Immortal Crane Sect's latest transaction offer per Fang Yuan's instructions, preventing them from probing his absence.
 
-Along with the letter, Fang Yuan enclosed three rank four Gu: golden coat Gu, charging crash Gu, and bone wings Gu.
+Fang Yuan penned a reply and placed it into the cup along with three rank four Gu: golden coat Gu, charging crash Gu, and bone wings Gu. More items demanded greater primeval essence, but distance was irrelevant. Now that the test succeeded, he began sending all his southern border Gu to the blessed land for Little Hu Immortal to tend.
 
-After confirming the test run succeeded, Fang Yuan began sending all his southern border Gu into the blessed land for Little Hu Immortal to tend.
+The heavy consumption forced Fang Yuan to repeatedly replenish his essence with primeval stones. Ge Yao asked several curious questions, but Fang Yuan ignored her completely, wholly absorbed in his transfers.
 
-He held a primeval stone to replenish his primeval essence.
+Pampered since youth as the beauty of her tribe and pursued by countless young men, Ge Yao was initially irritated by his indifference. But watching him, her displeasure soon turned to dejection and fascination.
 
-Fang Yuan's new northern plains appearance from human skin Gu aligned even more with Ge Yao's sense of beauty.
+In her eyes, he was the legendary Wolf King Chang Shan Yin. Altered by human skin Gu, his northern plains features—sharp nose, deep brown eyes, determined lips, and graying sideburns—radiated mature wisdom. She recalled his heroic tale: an unrivaled enslavement genius, righteous and loyal, betrayed by his sworn brother, losing his mother, wife, and almost his life, yet crawling back from the abyss of death. His bravery in battle, his pointers, and his eerie composure when flaying his own skin all merged in her heart. She felt an overwhelming urge to warm this wounded, solitary lone wolf.
 
-The shock of their first meeting, his warm smile, insightful pointers, bravery in battle, and eerie calm while flaying his own skin—
+As Fang Yuan completed the exchange and held a primeval stone, Ge Yao made the most important decision of her life.
 
-As Fang Yuan completed the exchange and began recovering primeval essence with a primeval stone, Ge Yao made the most important decision of her life.
+She stood up abruptly and shouted, "Chang Shan Yin! Be my husband!"
 
-She stood up abruptly, shouting, "Chang Shan Yin! Be my husband!"
+"What did you say?" Fang Yuan frowned; even with five hundred years of experience, he had not anticipated this sudden declaration.
 
-"What did you say?" Fang Yuan frowned; even with five hundred years of experience, he had not anticipated this sudden confession.
-
-Recovering, he smiled: "Stop fooling around, little girl. I am over twenty years your senior; my son would be a good match for you."
+Recovering, he smiled: "Stop fooling around, little girl. I am your senior, over twenty years older than you; my son would be a good match for you."
 
 "No, Chang Shan Yin, I want you!"
 
@@ -2494,39 +2496,35 @@ The shopkeeper sighed: "My apologies. Man tribe's new external elder bought up e
 
 # Chapter 442: Jun Strength Gu
 
-Occupying Hong Yan valley, Man tribe had won several recent battles and expanded greatly.
+Man tribe had absorbed Shi tribe recently, making former Shi elder Shi Wu their external elder. Shi Wu, a bone path Gu Master, had bought all the bone bamboo Gu in the market to research a new recipe, exemplifying Northern Plains' culture of innovation born of constant warfare.
 
-Man tribe had recently absorbed Shi tribe, making Shi elder Shi Wu their external elder.
+Fang Yuan committed the name to memory, then inquired about soul path and strength path Gu.
 
-A bone path Gu Master, he bought every bone bamboo Gu, claiming to research a new recipe.
+The shopkeeper reeled off prices: rank one jin strength Gu for two hundred and twenty primeval stones, rank two strength of ten jin Gu for six hundred and ninety, rank three jun strength Gu for four thousand five hundred and fifty, and rank four strength of ten jun Gu for thirty-six thousand primeval stones.
 
-Fang Yuan committed the name to memory, then asked about soul path and strength path Gu.
+One jun equaled thirty jin. This system had been created three hundred years prior by the Northern Plains rank seven Gu Immortal, 'Domination Immortal' Chu Du. Chu Du's recipes used accessible materials and had high refinement success rates, revitalizing the declining strength path across Northern Plains. Many Gu Masters cultivated strength path as a secondary path to endure physically once their primeval essence was depleted in battle.
 
-"I also have rank three jun strength Gu for four thousand five hundred and fifty primeval stones each."
+Fang Yuan had already used old removal Gu to purge his Southern Border beast phantoms, along with his bronze skin, iron bones, and steel tendons. Southern Border beast phantoms would suffer regional suppression in Northern Plains, and summoning them risked exposing his identity. Furthermore, enslavement path had a fatal weakness—vulnerability to decapitation strikes. Cultivating strength path was necessary to protect his body. Wearing Chang Shan Yin's guise, adopting Northern Plains' popular jun strength Gu was the ideal choice.
 
-"I already purged my Southern Border beast phantoms with old removal Gu, as regional suppression would weaken them here. Second, summoning beast phantoms risks exposing my identity."
+Fang Yuan placed an order for the rank four strength of ten jun Gu, then examined the soul path Gu.
 
-"Enslavement path is vulnerable to decapitation strikes, so I need strength path to support it. Wearing Chang Shan Yin's guise to blend into Northern Plains, I should adopt jun strength Gu."
+Unlike strength path, soul path flourished with complete sets for offense, defense, movement, and healing. Fang Yuan focused on soul-refining Gu. To complement enslavement path, he chose wolf soul Gu, which would ease the burden of commanding wolf packs. He bought the shop’s entire stock of eight rank three wolf soul Gu at seven thousand seven hundred stones each, knowing his hundred man soul required multiple Gu to transform.
 
-Reaching a decision, Fang Yuan requested the rank four strength of ten jun Gu from the shopkeeper.
+Over the following days, Fang Yuan swept through the market, purchasing rank two and three wolf enslavement Gu alongside wolf soul Gu. By the fifth day, he had spent over five hundred thousand primeval stones, earning a reputation among merchants as an extravagant rank four expert.
 
-Finding nothing more suitable, Fang Yuan chose the wolf soul Gu he had originally planned on.
+He also frequented the livestock ranch. While big stomach horses and hump wolves were in high demand, Fang Yuan evaluated wolf packs to construct a balanced force. His poison beard wolves suffered in sunlight and were destined for elimination, while wind wolves possessed speed but lacked endurance and defense. Thick back wolves offered the necessary frontline resilience.
 
-Wolf soul Gu cost seven thousand seven hundred primeval stones each; Fang Yuan bought all eight in stock.
+On the ninth day, Fang Yuan noticed a young mutated beast concealed among a group of water wolves. Without betraying any reaction, he bought the entire pack of over a thousand water wolves.
 
-Wolf soul Gu's effects stacked, and one rank three was insufficient to refine his hundred man soul.
+By the tenth day, having spent nearly all his funds—leaving only three thousand primeval stones—Fang Yuan departed the market with Ge tribe. Ge Guang watched him in awe, deeply admiring Chang Shan Yin's grand disposition.
 
-After completing his purchases, Fang Yuan returned to his lodgings. Fang Yuan returned with Ge tribe to his lodgings.
+Back at his lodgings, Fang Yuan cultivated diligently. He used wolf soul Gu to refine his soul while simultaneously refining Gu. After two failures, he successfully upgraded rank three golden back wolf skin Gu into rank four azure wolf skin Gu, resolving his lack of defensive methods.
 
-He cultivated diligently, refining his soul with wolf soul Gu.
+Finishing his soul refinement for the day, he stopped when a commotion and weeping erupted outside.
 
-After two failures, he upgraded rank three golden back wolf skin Gu into rank four azure wolf skin Gu.
+Opening his door, Fang Yuan asked the guarding Gu Master: "What happened?"
 
-Finishing his soul refinement for the day, he paused as a cry arose outside.
-
-"What happened?" He opened the door and asked the guarding Gu Master.
-
-The Gu Master said grimly: "Miss Ge Yao's remains were found in poison grassland; she was killed by wolves!"
+The Gu Master replied grimly: "Our big missy Ge Yao died. The search team found her torn clothes in poison grassland, she was killed by poison beard wolves!"
 
 # Chapter 443: Man Tribe’s Challenge
 
@@ -3330,45 +3328,23 @@ With the wolfman soul formed, Fang Yuan felt unburdened and greatly relaxed.
 
 # Chapter 455: Night Assault
 
-Two hump wolves moved through the night, carrying an old and a young Ge tribe investigative Gu Master.
+Two hump wolves moved through the freezing grassland night, carrying an old and an inexperienced young Ge tribe investigative Gu Master. Seeing a strange light in the distance, the elder ordered the youth to dismount and listen using hand-ear Gu. A fleshy ear sprouted from the youth's palm and pressed against the soil, yet he heard only the wind. Before they could relax, whistling bone spears shot out of the dark. The young scout was impaled instantly. The elder reached for a signal Gu, but an unseen blade severed his neck before he could activate it.
 
-After ambushing and executing the Ge tribe scouts, several figures emerged from the dark, led by Man tribe's external elder Shi Wu. Gazing at the corpses, he scoffed: "Killing these ants is as easy as turning my palm."
+Man tribe's external elder Shi Wu stepped from the shadows alongside several Gu Masters, sneering at the corpses: "Killing these ants is as easy as flipping my palm." Having dispatched nearly all its elders to assassinate Ge tribe's scouts, Man tribe had secretly guided a pack of ten thousand night wolves for a second assault, merely three days after the turtleback wolf attack.
 
-Shi Wu looked toward Ge tribe's troops: "Hmph, Ge tribe won earlier only because their scouts allowed them to prepare in advance. This time, our leader dispatched almost all the elders—Ge tribe cannot escape! I look forward to their terror when ten thousand night wolves strike!"
+By the time a watchtower scout spotted the approaching horde and launched signal fireworks into the sky, the night wolves were barely a hundred li from camp. Alarms shattered the night, dragging sleeping tribesmen from their beds. In the main tent, the Ge tribe leader paled upon receiving the report. Suspecting a conspiracy behind his scouts' silence, he realized there was no time to construct defensive palisades. With no countermeasure at hand, he ordered all Gu Masters to assemble at the central tent.
 
-Three days after the turtleback wolf attack, Man tribe Gu Masters guided a night wolf pack for a second assault while their elders hunted down Ge tribe's investigative scouts.
+The swift night wolves breached the camp almost immediately. A frontline Gu Master threw a rank two light sphere Gu into the air, revealing lean, hairless beasts with glossy black skin and cruel dark claws. A hundred wolf king lunged forward, killing the scout instantly. Surging like a black torrent, the wolves smashed through the crude wooden stakes and tore through the living quarters. Terrified mortals fled blindly, trampling one another and causing even more deaths than the wolves. Most low-ranking Gu Masters became trapped in the pandemonium; only the elders and a few elites managed to reach the main tent.
 
-When the myriad wolf group was discovered, they were merely a hundred li from camp.
+Witnessing the devastation, the Ge tribe leader fell into grief and despair, cursing himself as a sinner who had allowed his clan to fall into a small-scale tribe. 
 
-"Wake up, an attack! Ten thousand night wolves!" Sleeping Ge tribesmen were startled awake.
+"Ge tribe is not finished yet—there is one way to turn this around!" 
 
-In the main tent, the Ge tribe leader paled at the news.
+Fang Yuan's voice broke the panic as he strode into the tent. Facing their desperate gazes, he stated resolutely: "With the camp in ruins, defense is impossible. Only by using offense as defense do we have a chance at survival. Brother Ge, did you forget I possess a rank four wolf enslavement Gu?"
 
-"The night wolves are already so close to the camp, there is no time to construct defensive lines! What do we do?"
+He scanned the gathered leaders: "We must unite every elite here to charge directly against the wolf tide, punch through to the myriad wolf king, and allow me to subdue it!"
 
-Unable to devise a countermeasure, the Ge tribe leader ordered: "Summon all Ge tribe Gu Masters to the main tent!"
-
-The swift night wolves had already breached the camp perimeter.
-
-Surging like a torrent, the night wolves smashed through the crude palisades and began their slaughter.
-
-Meanwhile, Ge tribe's Gu Masters were still converging on the central main tent.
-
-The inner camp fell into chaos as panicked mortals fled, trampling one another.
-
-Only the elders and a few elite Gu Masters managed to reach the main tent.
-
-"Ge tribe is not finished yet—there is one way to turn this around!" Fang Yuan announced, striding into the main tent.
-
-Fang Yuan stated resolutely: "With the camp in chaos, defense is impossible. Only by using offense as defense do we have a chance at survival."
-
-Fang Yuan smiled faintly: "Brother Ge, did you forget I possess a rank four wolf enslavement Gu?"
-
-Observing their expressions, he continued: "We must unite our elites to charge through the wolf tide and subdue the myriad wolf king!"
-
-Yet because Chang Shan Yin proposed it, the room fell into silence.
-
-Accustomed to luxurious lives as high-ranking figures, these rank three Gu Masters deeply cherished their own lives.
+Shock gripped the tent. Resisting a myriad beast group typically required sturdy fortifications and long wars of attrition. Charging headlong into a sea of tens of thousands of fierce wolves was near-certain suicide. Had anyone else suggested this, the elders would have ridiculed them furiously. Yet because Wolf King Chang Shan Yin proposed it, the room fell into suffocating silence. Accustomed to comfort and authority, these rank three Gu Masters deeply cherished their lives and hesitated to gamble them away.
 
 # Chapter 456: A Hero’s Call
 
@@ -4350,53 +4326,45 @@ It was time to buy relic Gu.
 
 # Chapter 469: Living Chess
 
-Fang Yuan immediately bought three purple crystal relic Gu and spent heavily on an immediate success Gu.
+Relic Gu directly raised a Gu Master's aperture cultivation. While yellow gold and purple crystal relic Gu were strictly monopolized by major mortal forces, they could be found in treasure yellow heaven. Gu Immortals often used them as essential catalysts in Immortal Gu recipes or collected them for their mortal descendants.
 
-Fang Yuan then purchased numerous low-rank Gu and materials to refine rank five breath concealment Gu and others.
+Fang Yuan bought three purple crystal relic Gu and spent a heavy sum on an immediate success Gu to raise his refinement success rate. He then purchased numerous low-rank Gu and materials to refine rank five breath concealment Gu and others. While treasure yellow heaven displayed treasure light, light height could not detect whether a Gu had been tampered with. For safety, Fang Yuan resolved to refine the Gu himself.
 
-While treasure yellow heaven displayed treasure light, light height could not detect tampering. For safety, Fang Yuan resolved to refine the Gu himself.
+After selling his remnant recipes, buying resources, and paying transaction fees, Fang Yuan had twenty-eight immortal essence stones left. He could repeatedly sell Immortal Gu remnant recipes, but their treasure light and value dropped with each sale, requiring several months in five regions' time to recover. His most precious remaining recipes were Spring Autumn Cicada, second aperture Gu, and the Blood Deity remnant recipe. While rockmen had to be provided to Immortal Crane Sect to stall for time as guts Gu production slowed, Fang Yuan turned to another valuable commodity: gruel mud.
 
-After selling his remnant recipes, buying resources, and paying transaction fees, Fang Yuan had twenty-eight immortal essence stones left.
+During the earthly calamity, Dang Hun mountain had been corrupted by Immortal Gu Gruel Mud, its stone decaying into rotten mud. However, this mud contained the Immortal Gu's residual power, making it an indispensable ingredient for refining gruel mud Immortal Gu.
 
-"My most precious remaining recipes are Spring Autumn Cicada, second aperture Gu, and the Blood Deity remnant recipe. I can resell the others in a few months."
+When Little Hu Immortal placed it into treasure yellow heaven, it drew immediate attention from Gu Immortals.
 
-"I cannot sell remnant recipes for now and rockmen must go to Immortal Crane Sect, but I have other goods to sell!"
+"I need gruel mud Immortal Gu's recipe; I will not exchange it for anything else," Little Hu Immortal announced via divine sense.
 
-Damaged and corrupted by Immortal Gu Gruel Mud during the earthly calamity, Dang Hun mountain had begun decaying into rotten mud.
+When the immortals scoffed at trading an Immortal recipe for mud, Little Hu Immortal added: "I am not requesting a complete recipe; whoever offers the remnant recipe with the highest treasure light gets this."
 
-Though Dang Hun mountain rocks had turned to mud, they contained gruel mud Immortal Gu's power—an essential ingredient for Gu Immortals refining the gruel mud Immortal Gu.
+A Gu Immortal soon offered a remnant recipe with four meters of treasure light. Fang Yuan watched through the mirror and laughed, instructing Little Hu Immortal: "For every remnant recipe another Gu Immortal offers, we will add one jin of gruel mud."
 
-As expected, placing it in treasure yellow heaven drew massive attention.
+Hu Immortal blessed land had a growing swamp of gruel mud cleared from Dang Hun mountain. This bidding war pushed the remnant recipe's treasure light past six meters.
 
-"I need gruel mud Immortal Gu's recipe, I will not exchange it for anything else." On Fang Yuan's orders, Little Hu Immortal sent her divine sense over.
+Leaving Little Hu Immortal to finalize the transaction, Fang Yuan prepared to return. Dividing his time spent in the blessed land by five, northern plains was approaching dawn. Little Hu Immortal led him to the western blessed land and activated stargate Gu under the glow of starlight firefly Gu.
 
-Little Hu Immortal quickly added: "I am not requesting a complete Immortal recipe; whoever offers the remnant recipe with the highest treasure light gets this."
+Carrying refinement materials and low-rank Gu, Fang Yuan stepped through the stargate back to northern plains' Crescent Lake. Now, all his stagnant chess pieces had room to develop; the entire chessboard was alive once more.
 
-The Gu Immortals stopped talking, starting to observe this.
+At daybreak, Fang Yuan returned to Ge tribe camp accompanied by his wolf group. "I am refining Gu in closed cultivation; let no one disturb me," he ordered, locking himself inside the lizard house.
 
-Soon, a Gu Immortal offered a remnant recipe with about four meters of treasure light.
+Regardless of where the materials originated, Gu worms refined in northern plains belonged to northern plains and avoided regional suppression. His first priority was refining a new pair of rank five moving perspective cup Gu, as his current set was down to its final use.
 
-Unsatisfied, Fang Yuan stared at the mirror and laughed, instructing Little Hu Immortal: "For every remnant recipe another Gu Immortal offers, we will add one jin of gruel mud."
+At the same time, near Crescent Lake, nine Yan tribe Gu Masters traveled swiftly on hump wolves.
 
-Fang Yuan then instructed Little Hu Immortal to handle the remaining matters.
+"Halt, wolf footprints!" Reining in his mount, the Yan tribe leader stared in shock at the dense tracks before him.
 
-"Master, goodbye, come back often, okay?" Little Hu Immortal led Fang Yuan to the western blessed land, activating stargate Gu once more under starlight firefly Gu's glow.
+"So many wolves... this is a myriad wolf group," an elder gasped.
 
-Carrying numerous refinement materials and low-rank Gu worms, Fang Yuan stepped into the stargate.
+"Look at the tracks—poison beard wolves, wind wolves, turtleback wolves, and night wolves are all mixed together," another observed. "Wild wolf packs never live together. A Gu Master is controlling them!"
 
-"Now, all my stagnant chess pieces have room to develop. The entire chessboard is alive once more."
+The Yan tribe leader pondered. Ge tribe had declined after its forced migration and could never sustain such a massive pack; this likely belonged to an encroaching demonic Gu Master. Yan tribe had come to seek reinforcements from Ge tribe.
 
-At daybreak, Fang Yuan returned to Ge tribe camp accompanied by his wolf group.
+"Let us see what happens first," the Yan tribe leader decided. "If Ge tribe faces destruction, we will retreat quietly. If we can do them a cheap favor, we will help them encircle the wolves."
 
-"I am refining Gu in closed cultivation; let no one disturb me." Giving his orders, he locked himself inside the lizard house and began refining.
-
-At the same time, in crescent lake.
-
-Yan tribe's nine Gu Masters traveled swiftly on their hump wolves.
-
-"Halt, wolf footprints!" Reining in his wolf, the Yan tribe leader stared in shock at the dense tracks before him.
-
-The Yan tribe leader pondered: "Ge tribe was once large, but after forced migration, they have declined and cannot feed such a massive wolf pack. If we can do them a cheap favor, we will help them encircle the wolves."
+The hump wolves surged forward, carrying the riders toward Ge tribe camp.
 
 # Chapter 470: Water Demon
 
@@ -4748,41 +4716,19 @@ The Gu Immortals initially offered heavily damaged remnant recipes, but within d
 
 # Chapter 476: Air Bubble Fish
 
-Connecting heaven Gu hung in midair as wolf silhouettes flashed across the mirror.
+Connecting heaven Gu inlaid itself in the air, wolf silhouettes flashing across the mirror before fixing upon a turtleback myriad wolf king. Turtleback wolves had broad physiques, dark-green bodies, dark-blue eyes, and heavy shells comprising one-third of their weight that stored nutrition like camels, granting them the strongest defense among wolves. This myriad king was ten times larger than ordinary ones, its towering bronze shell exuding immense power.
 
-Suddenly, the scene fixed itself on a turtleback myriad wolf king.
+Fang Yuan's wolf pack had dwindled below twenty-five thousand after battle losses and retiring weak beasts to Hu Immortal blessed land. Ordinary enslavement path Gu Masters had to spend enormous effort hunting to replenish packs, but Fang Yuan could buy directly from treasure yellow heaven through connecting heaven Gu. Among his three main groups—turtleback, night, and wind wolves—only the night wolves possessed a myriad beast king. Adding myriad kings for the wind and turtleback wolves would unite them, removing the need to micromanage hundred and thousand wolf kings and easing the burden on his soul so he could command even larger packs.
 
-"My wolf pack numbers nearly thirty thousand, divided into three main groups of turtleback, night, and wind wolves, each having around ten thousand. I also have some poison beard wolves from the poisonous grassland and over a hundred water wolves bought for the white-eyes wolf."
+Little Hu Immortal sent divine sense to negotiate. The seller, South Sea Turtle Immortal, initially demanded ten thousand stalks of blowpipe grass—a northern plains specialty currently buried as seeds—before accepting immortal essence stones. After haggling, Fang Yuan purchased thirty thousand turtleback wolves and one turtleback myriad wolf king for a single immortal essence stone. Next, he bought eighteen thousand wind wolves and a wind wolf myriad king, replenishing twenty thousand night wolves, five thousand poison beard wolves, and six thousand water wolves, spending two and a half immortal essence stones in total.
 
-"Among my three largest packs, only the night wolves have a myriad beast king. If my wind and turtleback wolves also had myriad kings, commanding them would require far less strain on my soul. Easing the strain on my soul will let me command even larger packs."
+The massive influx strained the blessed land's ecology. If food fell short, the wolves would prey on Hu Immortal's surviving fox groups, causing catastrophic internal friction. Browsing aquatic food for the water wolves, Fang Yuan considered golden koi, blue jade carp, and fat mudfish before spotting over twenty thousand air bubble fish roes. Decisively, he bid one immortal essence stone, drawing ridicule from competing Gu Immortals because air bubble fish had only a thirty percent hatching rate. But Fang Yuan knew two Gu Immortals would duel over the air bubble sea late this year, poisoning it into a dead zone and driving prices up tenfold. During the future five regions chaotic war, prices would soar a hundredfold because air bubble fish devoured insects and nourished them into wild Gu worms inside their translucent bellies, greatly boosting Gu production.
 
-After bargaining, Fang Yuan purchased thirty thousand turtleback wolves and one turtleback myriad wolf king for a single immortal essence stone.
+To protect the roes, Fang Yuan rejected fat mudfish, which devoured fish eggs. Between golden koi and blue jade carp, both fed on the gold and gemstones produced by the blessed land's underground rockmen, but gold impaired air bubble fish reproduction. Choosing blue jade carp solved the water wolves' food issue. He then bought pink rabbits and iron-shell flowers to feed the night, wind, and turtleback wolves, and prolific, omnivorous earth skin pigs for the poison beard wolves in the eastern blessed land.
 
-Next, Fang Yuan bought eighteen thousand wind wolves, a wind wolf myriad beast king, twenty thousand night wolves, five thousand poison beard wolves, and six thousand water wolves—spending two and a half immortal essence stones in total.
+Finally, Fang Yuan purchased numerous Gu worms and refinement materials, spending eight immortal essence stones and hundreds of thousands of primeval stones. Of the twenty-eight immortal essence stones gained from remnant recipes, only twenty remained. Remnant recipes yielded diminishing returns once sold repeatedly, while long-term investments like starlight fireflies and air bubble fish required decades to mature.
 
-The massive influx of wolves severely strained the blessed land's ecology. Most urgently, Fang Yuan needed to secure adequate food to prevent the packs from starving.
-
-"Golden koi, blue jade carp, fat mudfish... Eh? There are actually air bubble fish roe!"
-
-Decisively, Fang Yuan raised his bid to one immortal essence stone.
-
-"If I recall correctly, two Gu Immortals will battle over the air bubble sea late this year, poisoning it into a dead zone. Then, air bubble fish prices will skyrocket tenfold," Fang Yuan sneered after securing the roe.
-
-Blue jade carps solved the water wolves' food problem. Fang Yuan then bought numerous pink rabbits and iron-shell flowers to feed the night, wind, and turtleback wolves.
-
-For the poison beard wolves, Fang Yuan chose earth skin pigs. These prolific pigs ate both meat and grass and were placed in the eastern blessed land.
-
-Finally, Fang Yuan bought many Gu worms and refinement materials, spending eight immortal essence stones and hundreds of thousands of primeval stones.
-
-Of the twenty-eight immortal essence stones earned from selling remnant recipes, only twenty remained.
-
-"Remnant recipe prices will drop the more they are sold. Lacking long-term profit sources, I must spend these remaining immortal essence stones carefully."
-
-Fang Yuan handed connecting heaven Gu to Little Hu Immortal to manage the beasts and resources, sighing at the expenditure.
-
-Fang Yuan entered Dang Hun Palace to refine Gu with his purchased materials.
-
----
+Fang Yuan handed connecting heaven Gu to Little Hu Immortal to organize the beasts and resources, then entered Dang Hun Palace to refine Gu with his newly acquired materials.
 
 # Chapter 477: Rank Five Breath Concealment Gu
 
@@ -4914,7 +4860,7 @@ Fang Yuan raised his brows, radiating killing intent: "Since they intend to atta
 
 Ge Guang hesitated before asking meekly: "Uncle Chang Shan Yin, the enemy is strong while we are weak. Should we really strike first instead of defending the camp?"
 
-"Tonight, we gather our forces to assault them in the dark! Which tribe is closest?"
+Fang Yuan snorted: "If you think so, so will the enemy. That is why we must strike first to catch them off guard. Tonight, we gather our forces to assault them in the dark! Which tribe is closest?"
 
 "Bei tribe is closest, followed by Zheng tribe, with Pei tribe furthest," Ge Guang replied.
 
@@ -5008,25 +4954,33 @@ Eventually, the gold and silver lightning dragon dissipated. Freed, the wind wol
 
 From a distant dark corner, nearly ten escaped Bei tribe higher-ups gazed at the battlefield.
 
-"Zheng tribe is done for." Bei tribe leader Bei Cao Chuan sighed.
+"Zheng tribe is done for," Bei tribe leader Bei Cao Chuan sighed.
 
-"Hehe, so what? Zheng tribe leader killed night wolf myriad beast king before his death. Now, Chang Shan Yin only has two myriad wolf kings left."
+"Who would have thought Chang Shan Yin hid a third myriad wolf king!" an elder exclaimed in shock.
 
-Bei tribe leader narrowed his eyes, recalling the battle: "Without pushing this aggressively, they couldn't have ended it so quickly. A small group like Ge tribe cannot sustain a war of attrition against a large force. Chang Shan Yin chose wisely."
+Zheng tribe’s leader, a rank four upper stage expert, had fought furiously until his primeval essence was depleted. When he attempted to flee, the night wolf myriad beast king cut off his escape path. Though the tribe leader killed the night wolf myriad king before dying and their lightning spear corps was virtually wiped out, his death utterly broke Zheng tribe's morale. Ge tribe charged in, massacring and capturing the fleeing Gu Masters whose primeval essence had been drained dry in the battle against the wolves.
 
-An elder suggested, "Lord tribe leader, our primeval essence is restored. Since Zheng tribe has fallen, why not recapture our camp and rescue our tribesmen from the Ge forces left behind?"
+"Zheng tribe leader killed the night wolf myriad beast king before his death. Now, Chang Shan Yin only has two myriad wolf kings left," an elder sneered.
 
-The young Bei tribe leader shook his head resolutely: "We cannot! Even if we retake our camp from their small garrison, what then? We are too few; news of our return will inevitably leak. Once Chang Shan Yin learns of it and returns, could we defend? Could we safely escape with our tribesmen?"
+Bei Cao Chuan narrowed his eyes: "Without pushing this aggressively, they couldn't have settled the battle so quickly. Ge tribe cannot sustain a war of attrition against a large force. Chang Shan Yin chose wisely."
 
-An elder's eyes brightened: "Then why not strike their nest? Ge tribe is only a mid-sized tribe and mobilized almost all their forces; their main camp must be poorly defended. We will kill and loot, empty their rations and increase the burden on them, and let them have a taste of being attacked!"
+An elder suggested, "Lord tribe leader, our primeval essence is restored. Ge tribe only left rank one and two Gu Masters with a single rank three elder at our camp. Why not recapture our camp and rescue our tribesmen?"
 
-"Fools!" the Bei tribe leader snapped, glaring coldly at them. "Are you brainless? If we destroy their food, our captive tribesmen suffer first. Do you think they won't execute prisoners to cut consumption? If someone recognizes us, what if they slaughter the captives to vent their anger?"
+The young Bei tribe leader shook his head resolutely: "We cannot! We are too few; news of our return will inevitably leak. Once Chang Shan Yin learns of it and returns with his wolves, could we defend? Could we escape safely with our tribesmen? Leaving them captive forces Ge tribe to divide manpower and consume rations."
 
-Bei Cao Chuan said heavily: "True revenge is not indulging in momentary pleasure. Only by killing Chang Shan Yin to remove Ge tribe's pillar can we overturn the situation! We must fight."
+Another elder's eyes brightened: "Then why not raid their nest? Ge tribe mobilized almost all their forces; their main camp must be poorly defended. We will slaughter, loot, and burn their rations!"
 
-"Lord supreme elder, tribe leader, elders, we have secured Zheng tribe's camp and seized massive resources!" the elder overseeing the battlefield cleanup reported excitedly.
+"Fools!" Bei Cao Chuan snapped, glaring coldly. "If we destroy their rations, our captive tribesmen suffer first. Do you think they won't execute prisoners to cut consumption? If we are recognized, what if they slaughter the captives to vent anger? True revenge is not indulging in momentary pleasure. Only by killing Chang Shan Yin to remove Ge tribe's pillar can we overturn the situation!"
 
-After reporting, the elder asked, "Lord supreme elder, lord tribe leader, what is our next step?"
+The elders bowed in shame and admiration. Bei Cao Chuan was an extraordinary leader. Sidelined in his youth, he had endured taunts while concealing his strength. When the previous tribe leader suffered a Gu backlash and required a wild Gu residing on a spirit rhino myriad beast king to heal, Bei Cao Chuan had buried himself in a foul mud swamp for seven days and nights. Even when the massive beast stepped on his leg and crushed it, he endured the agony without making a sound, stole the Gu while it slept, and hopped back on one leg. Revealing his rank three peak stage cultivation, he earned the young leader position and eventually led the tribe with formidable prestige.
+
+Meanwhile, inside Zheng tribe's camp, the elder overseeing the battlefield cleanup reported excitedly to Fang Yuan and Ge tribe's leaders: "Lord supreme elder, lord tribe leader, we have secured Zheng tribe's camp! From initial estimates, we seized at least eight million primeval stones, thousands of Gu worms including a hundred rank three Gu, and are currently opening a Gu house secret room!"
+
+Zheng tribe possessed a deep foundation, and their spoils far surpassed Bei tribe's.
+
+"Lord supreme elder, lord tribe leader, what is our next step?" the elder asked.
+
+All eyes turned to Fang Yuan.
 
 Fang Yuan said expressionlessly: "Continue attacking, our next target: Pei tribe!"
 
@@ -5154,45 +5108,35 @@ Watching the army retreat, he felt a deep chill alongside dejection: "Wolf King 
 
 # Chapter 484: Influence
 
-After this battle, Fang Yuan's prestige in Ge tribe skyrocketed.
+Ge tribe's army retreated along Crescent Lake. At Zheng tribe's camp, Gu Masters had loaded gathered resources onto thirty rank three blue farm slug Gu. These slug Gu swallowed items into their bodies without expending much primeval essence, expanding to five times their elephant-like size. Even so, surplus resources had to be left behind. Leaving a small garrison with orders to retreat if Pei tribe advanced, the army marched to Bei tribe's camp to absorb more spoils and captives before finally returning to Ge tribe at dawn.
 
-Riding the white-eyes wolf once more, Fang Yuan was accompanied by Ge tribe's leader and elders.
+Fang Yuan's prestige reached an absurd peak. As supreme elder, he possessed the authority to depose tribe leader Ge Guang, but Ge Guang remained an obedient chess piece.
 
-As supreme elder, Fang Yuan held the authority to depose tribe leader Ge Guang; however, as an obedient pawn, Ge Guang was kept in place.
+Fang Yuan lightly exhaled. Pei Yan Fei had held back to protect his tribe and preserve forces, deterred by the facade of the white-eyes wolf possessing myriad beast king strength. In truth, it had matured via third watch Gu and lacked a single wild Gu worm, leaving it unable to defeat even a thousand beast king. Had Pei Yan Fei and Bei Cao Chuan pressed their attack, Fang Yuan would have faced dire trouble. His strength path foundation was merely thirty jun, and his soul had not yet reached thousand man soul.
 
-Returning first to Zheng tribe's camp, the army found the garrison had already loaded all gathered resources onto thirty blue farm slug transports.
+Surveying his wolf pack, Fang Yuan noted severe casualties. Of sixty thousand wolves, less than half survived. The night wolf myriad beast king was dead, the turtleback myriad wolf king lay unconscious from heavy wounds, and the wind wolf myriad wolf king had suffered severe injuries and lost many Gu worms.
 
-"Pei Yan Fei evidently held back to protect his tribe and preserve forces. Otherwise, our retreat would have faced much greater obstacles. Of course, the main reason was revealing the white-eyes wolf, creating the illusion of myriad beast king strength."
+Yet Fang Yuan felt no regret. Aside from the immense plunder, dead wolf souls were collected to nourish Dang Hun mountain. Challenging three tribes single-handedly would spread Wolf King Chang Shan Yin's ferocious renown throughout Northern Plains, aiding his future plans for the heroes assembly and dealing with Tai Bai Yun Sheng. Ge tribe could now recuperate while he expanded his wolves, cultivated his wolfman soul, and prepared rank five enslavement path Gu.
 
-In truth, Fang Yuan's white-eyes wolf had matured via third watch Gu and lacked even a single wild Gu worm.
+Mental fatigue weighed heavily on Fang Yuan. Lying on his bed, he closed his eyes and drifted into a sound sleep amid the tribe's deafening celebrations.
 
-Had Pei Yan Fei and Bei Cao Chuan pressed their attack undeterred, Fang Yuan would have faced serious trouble.
+Meanwhile, shockwaves rippled across Crescent Lake.
 
-He had already pushed his wolf pack to its absolute limit; his strength path foundation was a fledgling thirty jun, and his soul had not yet achieved thousand man soul.
+"I thought he was a cat, but he is a leopard!" In Wang tribe, the tribe leader stared at the battle report and sighed. Ge tribe had ruined two tribes, reduced Bei Cao Chuan to a vagabond, and forced Pei Yan Fei to drop a minor cultivation realm.
 
-"My current strength remains lacking; three battles in one night laid bare all my weaknesses."
+Wang tribe's strategist, Wang De Dao, brought in an open letter Ge Guang had sent to all nearby forces. It detailed Chang Shan Yin's past grievances with Chang tribe and Yan tribe, justifying the assault as preemptive self-defense.
 
-Once safe, Fang Yuan surveyed his wolf pack.
+"Chang Shan Yin implicates the innocent for personal grudges. What kind of Northern Plains hero is this?" Wang De Dao raged.
 
-Setting aside the immense spoils from both camps, Fang Yuan had achieved all his operational goals.
+Wang tribe leader remained calm: "Forced though it is, it gives them a veneer of justification. Bolstered by Chang Shan Yin, Ge tribe will expand. Seeing these three tribes' ruin, no one will unite against him. Wolf King was too fast; we cannot interfere."
 
-By initiating battles against three tribes single-handedly, Wolf King Chang Shan Yin's fame would resound across Northern Plains once again.
+Just then, a subordinate reported that Bei Cao Chuan had arrived with his remaining elders.
 
-This proven strength would greatly aid his future plans for the heroes assembly and dealing with Tai Bai Yun Sheng.
+Wang tribe leader frowned and immediately instructed Wang De Dao to turn them away, claiming he was in closed cultivation refining an important Gu.
 
-Furthermore, these dead wolves served a greater purpose.
+Outside, Bei tribe elder Bei Cao Sheng—who had been stationed at Wang tribe negotiating an alliance—greeted the arrivals. Unaware of the night's slaughter, Bei Cao Sheng said guiltily: "Lord tribe leader, I have disappointed you. Wang tribe refuses to join us. But fear not—with the strength of our three tribes, crushing Ge tribe will be effortless!"
 
-Fang Yuan collected their souls to nourish Dang Hun mountain.
-
-"After this battle, I have established my renown and displayed my ferocity. This will surely deter nearby forces, allowing Ge tribe to recuperate while I expand my wolf pack, cultivate my wolfman soul, and prepare rank five enslavement path Gu."
-
-"I thought he was a cat, but he is a leopard!" Staring at the battle report, the Wang tribe leader sighed after a long silence, full of lamentation.
-
-Under Fang Yuan's lead, Ge tribe had challenged three tribes in a single night, devastating Pei tribe, reducing Bei Cao Chuan to a vagabond, and costing northern plains general Pei Yan Fei a minor cultivation realm!
-
-Wang tribe leader calmly cut to the point: "This gives Ge tribe a pretext to attack. Forced though it is, it offers them a veneer of justification. Under Chang Shan Yin's protection and bolstered by defeating three tribes, Ge tribe will surely expand. Seeing these three tribes' ruin, others are unlikely to unite against him."
-
----
+The elders' expressions turned grim, while Bei Cao Chuan stood choked with unspeakable bitterness.
 
 # Chapter 485: Plotting against the Land Spirit
 
@@ -6598,37 +6542,49 @@ Dong Fang Yu Liang personally travelled to invite Zhao tribe to join the allianc
 
 # Chapter 502: Zhao Lian Yun
 
-In the study room, Zhao tribe leader placed down the document wearily.
+In the study room, Zhao tribe leader wearily set down his documents. At fifty years of age, the rank five initial stage Gu Master was already gray-haired from managing tribe affairs.
 
-Hei tribe's expedition and Dong Fang Yu Liang's personal invitation had split Zhao tribe into two factions.
+Hei tribe's large-scale expedition and Dong Fang Yu Liang's personal invitation had split Zhao tribe into two factions. One side favored allying with Dong Fang tribe to resolve generational grudges, while the other preferred siding with the mightier Hei tribe. Yet Zhao tribe's headquarters was in this Cao Fu region. Hei tribe had already established their alliance oath in Yu Tian; joining late meant Zhao tribe would surely be bullied and treated as cannon fodder. Dong Fang Yu Liang, meanwhile, was far too cunning—he had schemed and killed all of Zhao tribe leader's sons, leaving him only a five-year-old daughter, Zhao Lian Yun.
 
-They argued endlessly: one faction wanted to resolve old grudges by allying with Dong Fang tribe, while the other favored the mightier Hei tribe.
+As Zhao tribe leader sat overwhelmed by worry, weeping came from outside the window.
 
-As Zhao tribe leader grew frantic, weeping suddenly came from outside the window.
+The guard reported: "Lord tribe leader, the young miss slipped on the stairs and knocked her head while running here."
 
-The guard outside reported: "Lord tribe leader, the young miss slipped on the stairs and knocked her head while running here."
+Zhao tribe leader stood in panic. The door opened, and a guard escorted in a jade-carved little girl in embroidered clothes, clutching her forehead.
 
-Zhao tribe leader's sons had all been schemed against and killed by Dong Fang Yu Liang, leaving him only a daughter.
+"Father, Yunyun's head hurts..." she sobbed, leaning into his chest.
 
-Leaning against his chest, she acted spoiled: "Father, Yunyun's head hurts..."
+Zhao tribe leader inspected the scrape, finding it barely red. Relieved, he furiously reprimanded Nanny Wu, the caretaker who hurried over and knelt in cold sweat. Nanny Wu swallowed her grievances; this little demon constantly slipped away and tormented her, yet put on a flawless act of innocence before the leader.
 
-"Father, Yunyun was worried. I heard the elders arguing with you, and that you were upset in the study."
+Yunyun pleaded softly: "Father, don't blame nanny, it was Yunyun's fault for being careless."
 
-In truth, she shouted in her mind: *'If I hadn't come, my life would be in danger! Convenient dad, you're too indecisive—why haven't you fled yet? What are you dilly-dallying for?!'*
+Inwardly, she cursed: *'That old woman stalks me all day! I had to injure myself just to get inside!'*
 
-Waving her delicate hands with a nonchalant look, she said: "Father, Yunyun thinks the people arguing with you are idiots. Our Zheng tribe is like a sheep, Dong Fang tribe is a wolf while the tiger from Yu Tian is coming over. The wolf can't beat the tiger, so it seeks the sheep's help. But whichever side the sheep aids, neither beast will spare it in the end."
+Once the servant was dismissed, she gazed at him with large, watery eyes: "Father, Yunyun was worried. I heard the elders arguing, and that you locked yourself in the study."
 
-Observing the tribe leader's expression, she timed her addition: "Father, I heard Ma tribe is very strong and treats its people well. Sheep and horses eat grass, while tigers and wolves eat meat—it's much better to ally with Ma tribe!"
+In truth, she screamed internally: *'If I didn't come, my life would be in danger! Convenient dad, you are too indecisive! Why haven't you fled yet? What are you dilly-dallying for?!'*
 
-Helplessly, the girl urged: "Father, we should leave immediately. With the tiger and wolf confronting each other, they have no spare strength to care about us."
+With a nonchalant wave of her delicate hands, she said: "Father, those elders are idiots. Our Zhao tribe is like a sheep, Dong Fang tribe is a wolf, and the Hei tribe tiger is coming from Yu Tian. The wolf cannot beat the tiger, so it wants the sheep's help. But whichever side the sheep aids, neither beast will spare it in the end."
 
-"Good girl, you're right. Our Zhao tribe cannot meddle in this clash or enter this whirlpool. We shall leave!" Zhao tribe leader decided.
+Her words jolted him. Northern Plains offered no sanctuary from the ten-year blizzard disaster, and betting on either side in this clash was courting death.
 
-"But Yunyun, did you think of this yourself, or did someone tell you? Tell father." Zhao tribe leader finally sensed something amiss, gazing at his daughter.
+Seeing him waver, she pressed on: "Father, I heard Ma tribe is strong and treats its people well. Sheep and horses both eat grass, while tigers and wolves eat meat. Wouldn't it be better to ally with Ma tribe?"
 
-Her heart thumped. Blinking innocently with wide eyes, she said: "No one taught me; Yunyun thought of it. Father works so hard, and Yunyun didn't want you exhausted, so I wanted to help."
+Ma tribe was also part of the Huang Jin bloodline, rising toward super-tribe status without a Gu Immortal backer. They would gladly welcome Zhao tribe. Yet moving all the way to Tian Chuan was a long, perilous journey.
 
-*'Sigh, that's transmigration for you. Friends can be chosen, but parents are predestined. Since you treated me well, I'll naturally return the favor...'*
+Seeing him hesitate, Yunyun urged: "Father, we must leave right away! With the tiger and wolf confronting each other, neither has the spare strength to stop us."
+
+Zhao tribe leader shuddered, finally convinced. "Good girl, you are right! We cannot meddle in this whirlpool. We shall pack and leave!"
+
+Then his gaze sharpened: "Yunyun, did you think of this yourself, or did someone tell you?"
+
+Her heart thumped. Blinking with wide, innocent eyes, she acted pitiful: "No one taught me. Yunyun just didn't want Father to be so exhausted. Did Yunyun do something wrong?"
+
+Relieved, Zhao tribe leader chuckled affectionately, marveling at her extraordinary precociousness.
+
+*'Sigh, that's transmigration for you,'* she mused, hugging his neck and kissing his cheek. *'Parents are predestined. Since you treat me well, this daughter will keep you alive.'*
+
+"Hahaha, good girl, you are really father's darling." Zhao tribe leader laughed heartily, his mind finally resolved to order the tribe to tear down camp and depart.
 
 # Chapter 503: Dong Fang Yu Liang
 
@@ -7078,39 +7034,27 @@ With Fang Yuan's single move, this newly begun battle had entered its climax.
 
 # Chapter 510: Great Battle
 
-Across the chaotic battlefield, experts clashed in fierce combat. As time passed, other rank four Gu Master experts found their opponents as well.
+Across the chaotic battlefield, Wang Jiang lunged malevolently toward Tang Fang. When Tang Fang pushed out an orange flame with pellet fire Gu, Wang Jiang did not dodge; instead, he opened his mouth and swallowed it whole. It was the rank four swallow fire Gu—a storage Gu clever Gu Masters could turn into a specialized defense against fire path cultivators. Joined by two rank three allies, Wang Jiang cornered Tang Fang. A Tang tribe elder used the rank three slow steps Gu to stall them, sacrificing his life so Tang Fang could flee for reinforcements.
 
-Fang Yuan took this chance to assemble his wolf group.
+Soon after, a massive blue wave surged like an evil flood dragon, clearing wolves and Gu Masters alike. Standing proudly in the resulting quagmire was the rank four upper stage demonic expert, Water Demon Hao Ji Liu. Looking to harvest battle merits, Hao Ji Liu activated rank four waterfall Gu, threatening to drown the fleeing Tang tribe members. Several elders banded together to block the torrent, urging Tang Fang to run. Hao Ji Liu slaughtered the elders with overwhelming water techniques, but as he prepared to deliver the final blow, sharp killing intent forced him backward.
 
-The two armies faced off against each other, creating a deadlock.
+A light green four-leaf wind blade sheared through the air where he had just stood, cutting through beasts and humans before looping back into the hand of Wind Demon Tan Wu Feng. Once famed alongside Water Demon, Tan Wu Feng had been subdued by Dong Fang Yu Liang's three escapements scheme and now served Dong Fang tribe. The two rank four upper stage experts instantly clashed in a tempest of roaring water and shrieking wind.
 
-Breaking this deadlock would grant initiative, accumulating into an advantage that would ultimately seal victory.
+Around them, a dozen battle rings formed across the battlefield. The highest tier consisted of rank four experts, surrounded by rank three rings, and finally outer clashes of rank one and rank two Gu Masters. Taking advantage of the chaos, Fang Yuan assembled his wolf group.
 
-Thus, their gaze landed on their elite troop.
+The main armies were locked in an impasse. To seize the initiative and accumulate victory momentum, both supreme commanders looked toward their elite troops. Hei Lou Lan possessed five elite divisions, while Dong Fang Yu Liang held six.
 
-Hei Lou Lan's side possessed five elite divisions, while Dong Fang Yu Liang had six.
+Dong Fang Yu Liang made the first move, deploying Hua tribe's hundred blossoms elite troop. Though lacking offensive power, their synchronized healing quickly stabilized Dong Fang tribe's frontline. Watching from his main tent, Hei Lou Lan snorted and dispatched the five-hundred-man blue butterfly elite troop to eliminate them.
 
-Dong Fang Yu Liang first deployed hundred blossoms elite troop.
+Yet the hundred blossoms troop was merely bait. As the blue butterfly troop advanced, three ambushing elite divisions struck from the east, south, and west, surrounding them. Hei Lou Lan immediately sent reinforcements to rescue his vanguard. The various elite troops collided, creating concentric rings of fierce slaughter that deadlocked once again.
 
-Watching from the main tent, Hei Lou Lan snorted and ordered the blue butterfly elite troop to attack the hundred blossoms troop.
+"Lord tribe leader, let me crush them!" Dong Fang She, commander of the feather arrow elite troop and a rank four upper stage expert, urgently requested to deploy.
 
-Dong Fang Yu Liang had anticipated this, ambushing them with three elite troops.
+Dong Fang Yu Liang slowly shook his head. As long as Hei tribe's formidable black banner elite troop remained in reserve, the feather arrow troop could not be exposed.
 
-Unwilling to see the blue butterfly elite troop destroyed, Hei Lou Lan immediately dispatched reinforcements.
+"Be patient, Elder She. Everything remains within my expectations," Dong Fang Yu Liang placated with a calm smile. Turning toward the three enslavement path Gu Masters behind him, he said, "It is time to show your strength."
 
-Elite troops from both sides converged into several rings of encirclement, deadlocking the battle once more.
-
-"Lord leader, let me crush them!" Unable to restrain himself, Dong Fang She requested to join the battle.
-
-Dong Fang Yu Liang slowly shook his head, refusing permission.
-
-Dong Fang Yu Liang placated him: "Be patient, Elder She. Everything remains within my expectations."
-
-Smiling calmly, he turned to the three enslavement path Gu Masters: "It is time to show your strength."
-
-These three were E Xuan Ming, Wei Xin, and Jiang Wan Shan.
-
----
+These three were precisely E Xuan Ming, Wei Xin, and Jiang Wan Shan.
 
 # Chapter 511: Dark Vortex and Cloud Whirlpool
 
@@ -7612,35 +7556,31 @@ Hei Lou Lan stood atop his twin-headed rhino, his voice echoing across the battl
 
 # Chapter 518: Famous
 
-Facing Hei Lou Lan's surrender offer, Dong Fang Yu Liang remained silent.
+Facing Hei Lou Lan's offer of submission, Dong Fang Yu Liang remained silent atop the defense walls. Despite his brilliant schemes and wisdom path predictions, the disparity in numbers and strength was too overwhelming. Even with his killer move Seven Star Light, the primeval essence drain was unsustainable against Hei tribe's army. An enslavement path Gu Master might salvage such a situation, yet even they feared decapitation tactics—even Wolf King Chang Shan Yin did not venture alone without the protection of his troops. Only by ascending to Gu Immortal could one truly reign supreme above the mortal realm.
 
-Despite his brilliant schemes and predictive initiative, the overwhelming disparity in power had brought them to this point.
+Below, single combats erupted. Water Demon Hao Ji Liu challenged Wind Demon, trading water bullets and wind blades until he suppressed his rival, whose morale was shaken. Seeing this, Hei Lou Lan laughed heartily, dispatching more rank four experts to fuel the army's momentum. Soon, twelve battle rings formed before the two armies. With Dong Fang alliance's defeat looming, allied leaders exploited loopholes in their poison vow Gu, feigning injuries to preserve their forces and negotiate future exits.
 
-Even with his killer move Seven Star Light, the primeval essence drain was unsustainable against Hei tribe's numbers.
+Pan Ping then stepped forward as the thirteenth challenger with Hei Lou Lan's permission. Finding himself lacking loyal experts, Dong Fang Yu Liang ordered the injured Tang tribe leader, Tang You, into battle.
 
-"An enslavement path Gu Master might salvage this, yet even they must fear decapitation tactics. Even Wolf King Chang Shan Yin does not dare roam alone with his pack away from the army. Only by ascending to Gu Immortal can one truly reign above mortals," Dong Fang Yu Liang sighed inwardly.
+In the camp behind the walls, Tang You's son Tang Fang protested furiously against Dong Fang tribe's messenger, pointing out that his father had been bedridden after taking heavy injuries to protect his tribesmen. Yet Tang You, still plagued by residual poison, chose to fight to protect the tribe's standing and reputation, as well as the safety of his captive daughter Tang Miao Ming.
 
-Before the two armies, multiple battle rings formed as experts clashed. "I am Pan Ping, who will battle me?" Exuding a fierce aura, Pan Ping entered the field as the thirteenth challenger with Hei Lou Lan's permission.
+Tang You met Pan Ping on the field. At first, the two clashed conservatively, neither committing to a lethal struggle. But without warning, Pan Ping burst forward and drew the scimitar at his waist.
 
-Most of his rank four experts had perished, while the survivors held back their strength to preserve themselves.
+A blinding streak of white light flashed across the field.
 
-The injured Tang tribe leader Tang You stepped forward, taking the field despite his son Tang Fang's worries.
+Before the onlookers could even process the movement, Tang You was decapitated.
 
-Reaching the defense walls, Tang You took the field against Pan Ping.
+Tang Fang cried out in horror before fainting on the spot.
 
-Suddenly, Pan Ping burst forward and drew the scimitar at his waist.
+"Tang tribe leader Tang You has been slain by me, Pan Ping!" Pan Ping roared with bloodthirsty eyes, lifting the severed head high.
 
-The next moment, Tang tribe leader was beheaded!
+The sudden kill stirred a commotion across both armies. Even the resting Fang Yuan opened his eyes slightly, casting a brief glance at Pan Ping.
 
-"Tang tribe leader Tang You has been slain by me, Pan Ping!" Pan Ping shouted with bloodthirsty eyes, raising the severed head.
+Hei Lou Lan laughed uproariously, summoning Pan Ping to the main tent to bestow fine wine as a reward. Pan Ping drank it in one gulp, his chest swelling with pride.
 
-By slaying a peer expert, Pan Ping won great fame, drawing even the resting Fang Yuan's fleeting glance.
+He had acquired his lethal trump card purely by chance at a tribal market, having bought the scimitar merely for its craftsmanship. Only later did he discover that the cold light gleaming upon its blade was a mysterious Gu worm. Though he remained ignorant of its true name, its razor-sharp strike had executed numerous strong foes. He had hoped to use it in the campaign's opening battle, but Tang Miao Ming's duel challenge and Fang Yuan's preemptive all-out charge had denied him the stage.
 
-Hei Lou Lan laughed loudly, ordering fine wine brought to reward Pan Ping.
-
-He had obtained this Gu by chance at an inter-tribal market, buying the scimitar merely out of interest because it looked beautiful.
-
-Though ignorant of its true name, its razor-sharp attack had executed many strong foes for him.
+Now, by stepping over Tang You's corpse, Pan Ping had claimed the renown he craved. Feeling the envious and respectful gazes around him, Pan Ping swore in his heart that his name would one day resound across the entirety of Northern Plains.
 
 # Chapter 519: Just a game
 
@@ -7715,6 +7655,8 @@ Startled, Fei Cai turned to see the jade-like young girl, Zhao Lian Yun.
 Zhao Lian Yun shoved his head away, muttering unhappily, "Hey blockhead, don't get so close. Haven't you heard of propriety between sexes?"
 
 Nearly shoved into the water, Fei Cai paid it no mind, secretly pulling open his shirt to reveal the hidden shoes. "Look, what's this?" he asked, seeking praise.
+
+Zhao Lian Yun looked at him with disdain. "A pair of worn, stinky shoes? Stupid blockhead, why give me this? They don't even fit me, and I wouldn't wear them anyway!"
 
 Fei Cai said, "Lady Xiao Yun, didn't you say you lacked primeval stones? These exquisite shoes can be sold on the black market for primeval stones."
 
@@ -8245,6 +8187,8 @@ On the left sat Hei Bai, an ordinary-looking man dubbed the 'Hei tribe stoneman'
 On the right was supreme elder Hei Cheng, Hei Lou Lan's father and protagonist of Su Xian's night elopement.
 
 "You just returned from Ni Yu blessed land; did you see Dong Fang Chang Fan? How is he?" Hei Cheng asked leisurely, sipping tea.
+
+Hei Bai nodded: "Senior Dong Fang is not seeking lifespan Gu. With only two to three years left, he has seen through life and death with broad vision and magnanimity, focusing entirely on nurturing his successor, Dong Fang Yu Liang."
 
 "Magnanimity? Broad vision?" Hei Cheng scoffed in disdain. "Brother, you are mistaken. Dong Fang Chang Fan is truly petty and insidious; having schemed against all northern plains, he is despised by every Gu Immortal. If it was not so, he could have already bought lifespan Gu, why would he have fallen into this state? I have been secretly investigating over these years and have discovered he had a hand in my wife Su Xian Er's death!"
 
@@ -9450,6 +9394,8 @@ Zhao Lian Yun raised her head in tears: "What good are your words! We have nothi
 
 Zhao Lian Yun snapped: "You're older than me, can't you think of something? Am I Dong Fang Yu Liang?!"
 
+Fei Cai's eyes lit up: "I thought of a way. If we get a horse, we can escape far from the battlefield and leave the bloody scent behind."
+
 Zhao Lian Yun kicked him furiously: "You idiot! I want a horse too, but where will you get one?!"
 
 Pointing ahead, he shouted, "Look, there is a horse!"
@@ -10148,57 +10094,31 @@ Hei Lou Lan continued: "This proves Chang Shan Yin is only a mortal with desires
 
 # Chapter 553: Imperial Court Sacred Palace
 
-Fang Yuan rode the azure wolf king through the sky, wind blowing through his hair.
+Fang Yuan rode the myriad azure wolf king through the golden sky, the wind whipping his hair back. He had spent recent days pondering the Di Qiu inheritance's cryptic phrase, but had made no progress deciphering it. 
 
-Pondering solemnly, he had made no progress deciphering the Di Qiu inheritance quote over recent days.
+On the plain's horizon, a glorious palace gradually emerged. Fang Yuan exhaled in slight relief. He had finally arrived at the sacred palace!
 
-A glorious palace gradually emerged on the plains' horizon.
+As he drew closer, its full majesty unfolded. The sacred palace stood eight levels tall, each tier roughly two kilometers high and stacked like a towering mountain. Snow-white walls nine meters thick formed hollow rings adorned with rainbow-colored towers at regular intervals. 
 
-Sacred palace, he was finally there!
+Nearly ten thousand people had already arrived, having landed closer to the palace upon entering Imperial Court blessed land. As Fang Yuan touched down outside the massive first-level gates, an escort Gu Master hurried forward to greet him: "Lord Wolf King, it is my honor to guide you. Your quarters on the eighth level are prepared."
 
-Drawing closer, the grand palace slowly revealed its full majesty.
+"No rush. Show me around first," Fang Yuan said, dismounting. Out of respect for Giant Sun Immortal Venerable, steeds were forbidden inside.
 
-It stood eight tiers tall, each roughly two kilometers high, with each level stacked upon the last.
+The escort led him through grand pavilions and courtyards, eagerly pointing out historical sites: the Entertainment Palace where concubines once competed in dance, the Spring Soup Hall with Northern Plains' largest hot spring, and the Floating Scent Yard where Giant Sun had relocated the legendary wine pool and meat forest. 
 
-As Fang Yuan touched down, an escort Gu Master greeted him: "Lord Wolf King, welcome. It is my honor to escort you. Your quarters on the eighth level are already prepared."
+On the fourth level, they visited the Drawing Palace. Its walls displayed eighty thousand portraits of Giant Sun's most favored concubines. While the escort spoke in awed admiration of this eternal glory, Fang Yuan felt only the chill of decay. Even an invincible Immortal Venerable was now reduced to ashes, and in his past life, Central Continent Gu Immortals had reduced this very palace to rubble. Without eternal life, all of it was merely a mockery of failure.
 
-"No rush, show me around first," Fang Yuan said, dismounting, as riding steeds inside the sacred palace was forbidden.
+Losing interest, Fang Yuan instructed the escort to take him directly to the eighth level, ignoring the guide's disappointed pleas to visit the remaining beauty palaces.
 
-Fang Yuan followed the escort Gu Master into the sacred palace.
+In truth, the sacred palace held little material value; past generations had long picked it clean. Its sole true treasure—and the greatest prize in all of Northern Plains—sat at the peak of the eighth level: Eighty-Eight True Yang Building, a rank eight Immortal Gu House personally refined by Long Hair Ancestor at Giant Sun's behest. Currently, the peak stood empty; the building would manifest only when the ten-year blizzard struck outside.
 
-"Let's go, bring me to the eighth level's accommodation." Fang Yuan sighed, instruction.
+In the days that followed, Fang Yuan cultivated in seclusion. Hei Lou Lan sent emissaries offering to recruit him as a Hei tribe external elder. Fang Yuan feigned consideration, though he secretly resolved to refuse; human skin Gu was only a mortal Gu, and an Immortal Gu's investigation during the induction would instantly expose his disguise. 
 
-The only treasure in the sacred palace was the most valuable thing in Imperial Court blessed land—and Northern Plains.
+Meanwhile, rumors spread smearing the Wolf King for acting tyrannical on Xing Jiu peak. Fang Yuan laughed inwardly, suspecting Pan Ping, Sun Shi Han, or Hei Lou Lan. He cared nothing for reputation; in this world, individual strength reigned supreme. Giant Sun had once been a notorious demonic cultivator, yet history now revered him as a venerable.
 
-At the eighth level's peak stood Eighty-Eight True Yang Building!
+Half a month later, water-like ripples spread across the golden sky, and the earth shook violently. A piercing pillar of light erupted atop the sacred palace, blazing for forty-five minutes before dispersing to reveal a majestic tower. 
 
-A Gu house personally crafted by Long Hair Ancestor at Giant Sun Immortal Venerable's behest.
-
-The eighth level's peak was completely empty; Eighty-Eight True Yang Building would appear only when the ten-year blizzard struck.
-
-In the following days, Fang Yuan cultivated in seclusion, waiting for True Yang Building to open.
-
-During this period, Hei Lou Lan sent invitations, expressing intention to recruit him.
-
-Fang Yuan feigned interest, though he resolved to refuse in his heart.
-
-Human skin Gu disguised him as Wolf King, but as a mortal Gu, an Immortal Gu's investigation could expose him.
-
-Hei Lou Lan never mentioned Xing Jiu peak, though rumors spread describing Wolf King as tyrannical for bullying the weak.
-
-Fang Yuan laughed inwardly; someone was clearly smearing his reputation behind the scenes.
-
-"Pan Ping, Sun Shi Han, or even Hei Lou Lan has motive. But so what if my reputation turns sour?"
-
-Half a month later, water-like ripples appeared in the golden sky.
-
-The entire land started shaking.
-
-Sudden winds arose as a piercing light shone atop the sacred palace.
-
-After forty-five minutes, the light dispersed, revealing a tower in the previously barren area.
-
-Eighty-Eight True Yang Building!
+Eighty-Eight True Yang Building had appeared!
 
 # Chapter 554: Plotting is difficult, Living is tough
 
@@ -10838,37 +10758,47 @@ Though holding only the latter part, his past-life knowledge of Eighty-Eight Tru
 
 # Chapter 562: Reason for being cowardly and afraid of death?
 
-"This inheritance involves an Immortal Gu; preparing the required Gu worms will take at least half a month..."
+"Light in the soil, shine up to a hundred thousand feet high, swimming in the sky for a hundred li, praising plum fragrant snow..."
 
-Refining the Immortal Gu with the building's power required over two hundred Gu worms, including twenty-eight rank four and rank five Gu.
+Though the secret phrase appeared simple, deciphering it required refinement path master attainment. Based on Fang Yuan's comprehension, borrowing the force of Eighty-Eight True Yang Building to refine this mysterious Immortal Gu required over two hundred Gu worms, including twenty-eight rank four and rank five Gu.
+
+Furthermore, this was only enough for a single attempt. To guard against refinement failure, Fang Yuan needed to prepare at least three times the materials. Preparing them would take over half a month.
 
 Sixteen days later.
 
-In the hall, Hei Lou Lan fully displayed his 'Black Tyrant' demeanor, shouting fiercely to vent his rage.
+Inside the grand hall, Hei Lou Lan fully displayed his 'Black Tyrant' demeanor, roaring fiercely as he vented his pent-up rage. Already, three Hei tribe elders had been heavily beaten by him and left bedridden.
 
-"Lord tribe leader, we weren't slacking, but the seventy-eighth round is simply too difficult. The golden-white tiger phantom guardian possesses thirty percent of a desolate beast's power. As mortals, we cannot withstand its attacks or inflict serious harm."
+"Lord tribe leader, it is not that we are slacking, but this seventy-eighth round is simply too difficult," the head of the elders, Hei Pei, spoke cautiously. "The golden-white tiger phantom guardian possesses thirty percent of a desolate beast's power. With mortal bodies, we can only harass it and cannot inflict heavy damage, while our Gu Masters cannot withstand its attacks."
 
-Hei Lou Lan glared and cursed: "Bullshit! If we unite and disregard sacrifices, we can defeat it before the time limit! You cowards are tarnishing Hei tribe's reputation!"
+Hei Lou Lan glared and cursed: "Bullshit! As long as everyone unites and disregards sacrifices, acting as cannon fodder like ants biting an elephant, we can defeat it before the time limit! You cowards only cherish your lives, tarnishing our Hei tribe's reputation!"
 
-Hei Lou Lan sighed inwardly and said: "In that case, I must open Eighty-Eight True Yang Building and gather everyone's strength to charge through the rounds."
+The elders lowered their heads, enduring the scolding.
 
-Once opened to other Huang Jin tribes, they would charge in madly as cannon fodder.
+Hei Lou Lan understood their mindset. During the Imperial Court contest, survival and rewards motivated them to risk their lives. But inside Eighty-Eight True Yang Building, rewards for passing rounds belonged entirely to the tribe leader. With the contest won and their survival assured, none of these crafty elders wanted to die just to pave the way for someone else.
 
-First elder Hei Pei cautioned: "Though sharing the ancestor's bloodline, they aren't Hei tribe. Once they gain benefits, they may refuse to surrender them."
+Realizing he could not force their will, Hei Lou Lan sighed inwardly and declared: "Since that is the case, I will open Eighty-Eight True Yang Building and gather everyone's strength to charge through the rounds."
 
-Possessing the Great Strength True Martial physique, he needed a strength path Immortal Gu to advance to Gu Immortal.
+Once opened, the other Huang Jin tribes in the blessed land—such as Ye Lui tribe and Ma tribe—would gladly charge in as cannon fodder.
 
-However, whether Eighty-Eight True Yang Building held any strength path Immortal Gu, or on which floor, remained unknown.
+Hei Pei hesitated: "Lord tribe leader, though they share our ancestor's bloodline, they are not of Hei tribe. Once they obtain benefits, they may refuse to surrender them."
 
-Thus, he broke convention to rally the Huang Jin tribes, needing cleared rounds to advance his owner token.
+Elder Hei Qi Sheng chimed in: "Historically, only weak tribes who won by fluke relied on outside help. Our Hei tribe is strong; why share our victory?"
 
-Hei Pei smiled confidently: "Opening Eighty-Eight True Yang Building to the public tomorrow is fine, but anyone entering must pay a fee. We will allow eight hundred entrants daily with escalating fees, requiring poison vows to surrender fifty percent of all gains to Hei tribe."
+"Hmph!" Hei Lou Lan raised his brows. "If you are so strong, why can't you defeat a single tiger phantom? You fear death yourselves, yet begrudge others taking benefits while staking their lives for us?"
 
-Hei Lou Lan surveyed the room, then leaned back and closed his eyes: "Alright, we will do as Hei Pei suggests."
+Hei Lou Lan was deeply anxious. Possessing the Great Strength True Martial physique, he urgently needed a strength path Immortal Gu to advance to Gu Immortal and resolve his fatal condition. Since he did not know on which floor one might reside, he needed to clear rounds rapidly to advance his owner token.
 
-News of the building opening spread, causing an immediate sensation throughout the sacred palace.
+Hei Pei conceded: "If we open the building, we must impose strict limits. Wolf King Chang Shan Yin is a lesson before us."
 
-With everyone's attention fixed on Eighty-Eight True Yang Building, it was the perfect opportunity to claim the Di Qiu inheritance!
+The mention of Chang Shan Yin sparked outrage among the elders, who denounced him for greedily hoarding benefits. Some suggested excluding him entirely. Hei Lou Lan snorted; while dissatisfied with the Wolf King, he was wary of Chang Shan Yin's terrifying strength and his vast azure wolf pack.
+
+Hei Pei smiled with confidence: "We can open Eighty-Eight True Yang Building tomorrow, but entrants must pay a fee. We will set a daily quota of eight hundred entrants with escalating fees. Furthermore, they must use poison vow Gu to surrender fifty percent of all gains to Hei tribe, while outsiders must pay exorbitant prices for guest tokens."
+
+Hei Lou Lan closed his eyes and leaned back: "Do as Hei Pei suggests."
+
+The news caused an immediate sensation across the sacred palace. Countless Gu Masters cursed the exorbitant fees yet fought desperately for quotas.
+
+Observing this, Fang Yuan smiled coldly. With everyone's attention diverted toward Eighty-Eight True Yang Building, the perfect opportunity to claim the Di Qiu inheritance had finally arrived.
 
 # Chapter 563: Nature of the Three Inheritances
 
@@ -10992,43 +10922,49 @@ Immediately a *peculiar fragrance* spread out of the cave.
 
 # Chapter 565: Everyone with their own intentions
 
-Several days later, the watery aurora recondensed into Eighty-Eight True Yang Building's first floor.
+Several days after its collapse, the thick, watery aurora reconverged, reforming Eighty-Eight True Yang Building's first floor.
 
-With the first floor reformed, all checkpoints had reset, wiping out Hei Lou Lan's previous progress and forcing him to clear them anew.
+Hei Lou Lan was immensely relieved. As a possessor of the Great Strength True Martial physique, one of the ten extreme physiques, his only hope of becoming a Gu Immortal and avenging his mother was obtaining a strength path Immortal Gu from the building. There were only two ways to obtain one: exchanging an equivalent treasure in the treasure room after earning a high-grade evaluation, or clearing the final round of a floor. The first was impractical, leaving only the second.
 
-Thus, Hei Lou Lan overrode all objections, recruiting Gu Masters from other tribes and opening Eighty-Eight True Yang Building to everyone.
+However, reforming the first floor had completely reset all checkpoints, wiping out Hei Lou Lan’s previous progress. While Hei tribe’s elders rejoiced at the chance to reap rewards from the early rounds again, Hei Lou Lan felt his precious time slipping away before Imperial Court blessed land closed.
 
-Anyone could now enter or leave freely at no charge; aside from Hei tribe's elders, the entire sacred palace rejoiced.
+Thus, overriding all objections, Hei Lou Lan opened Eighty-Eight True Yang Building to every Gu Master in the sacred palace, intending to use the masses as vanguards to clear his path.
 
-"Hei Lou Lan shows grand magnanimity, doing what no past Lord of the Imperial Court ever dared. I am in deep admiration!" Ye Lui Sang beamed as he led the way inside.
+Anyone could now enter freely. Aside from the Hei tribe elders, the entire palace celebrated.
 
-"Chang Shan Yin, so long as you remain mortal, Eighty-Eight True Yang Building will be my stepping stone!" Chang Biao thought coldly, entering alongside Sole Blade General Pan Ping.
+"Hei Lou Lan possesses grand magnanimity, doing what no past Lord of the Imperial Court ever dared. I, Ye Lui Sang, am in deep admiration!" Ye Lui Sang was the first to enter. He had lost the contest despite possessing his tribe's loaned fire path Immortal Gu; he desperately needed tower rewards to redeem himself before returning to his super tribe.
 
-Pan Ping, Chang Biao, Ye Lui Sang, and Tai Bai Yun Sheng took turns pushing to the fifty-third round. There, their momentum stalled—clearing it required an enslavement path master.
+Chang Biao entered alongside Sole Blade General Pan Ping, who still harbored deep resentment after Fang Yuan snatched his opportunity at Xing Jiu peak. "Chang Shan Yin, so long as you remain mortal, Eighty-Eight True Yang Building will be my stepping stone to rise up!" Chang Biao thought coldly.
 
-"It seems we need the Wolf King to pass this round," Tai Bai Yun Sheng murmured, stroking his white beard.
+Tai Bai Yun Sheng entered unhurriedly as well, seeking lifespan Gu that would only appear in the later rounds.
 
-"Strange, where is Chang Shan Yin?" Ye Lui Sang looked around, failing to spot him.
+With immense numbers pushing forward, the first thirty rounds were cleared swiftly. Pan Ping, Chang Biao, Ye Lui Sang, and Tai Bai Yun Sheng then took turns leading the charge, pushing to the fifty-third round. There, their momentum stalled—clearing it required an enslavement path master.
 
-Pan Ping snorted: "Lord Wolf King entered closed-door cultivation immediately upon exiting and repeatedly turned down Tribe Leader Hei Lou Lan's invitations."
+"It seems we need the Wolf King to pass this round," Tai Bai Yun Sheng murmured, stroking his snow-white beard.
 
-A young Gu Master's voice broke the silence: "Since Eighty-Eight True Yang Building is open to all, anyone can seek benefits. My father obtained his through his own capability!"
+"Strange, where is Chang Shan Yin?" Ye Lui Sang looked around.
 
-The crowd looked over and discovered the speaker was Chang Shan Yin's son, Chang Ji You.
+Someone replied that the Wolf King had been taking his wolf packs out hunting. Pan Ping sneered, stoking envy: "Our Lord Wolf King already cleared a round with a high-grade evaluation and obtained enormous benefits. Afterward, he entered closed-door cultivation and repeatedly turned down Tribe Leader Hei Lou Lan's invitations."
 
-As Chang Ji You's true father, Chang Biao had to watch his own son defend his bitterest enemy.
+A young Gu Master's voice broke the silence: "Since Eighty-Eight True Yang Building is open to all, anyone can seek benefits. Lord father obtained his through his own capability!"
 
-Chang Biao secretly watched Pan Ping hesitate and fail to speak, inwardly cursing him as a coward before signaling a planted agent in the crowd.
+It was Chang Shan Yin's son, Chang Ji You. He glared fearlessly at Pan Ping.
 
-Taking the cue, the plant called out: "Lord Wolf King is busy with important matters and won't be easily invited. Why not ask Lady Tang Miao Ming instead? Her enslavement path attainment is near master level."
+Beside them, Chang Biao burned with hatred and grievance, forced to watch his biological son defend his bitterest enemy.
 
-Knowing Fang Yuan's arrogance, Hei Lou Lan preferred letting Tang Miao Ming try rather than risking the embarrassment of rejection.
+Tai Bai Yun Sheng smoothed things over, and several Gu Masters suggested he personally write to invite Chang Shan Yin. Fearing the Wolf King would gain even more prestige, Chang Biao noticed Pan Ping hesitating and inwardly cursed him as a coward before signaling a planted agent in the crowd.
+
+The plant shouted: "Lord Wolf King is busy with important matters and won't be easily invited. Why not ask Lady Tang Miao Ming? Her enslavement path attainment is near master realm."
+
+Knowing Fang Yuan's arrogance, Tai Bai Yun Sheng agreed that trying Tang Miao Ming was better than risking an embarrassing refusal.
 
 *Flap flap flap....*
 
-Swarm after swarm of blissful snow bats converged from all directions toward Di Qiu cave like rivers into the sea.
+Meanwhile, swarms of blissful snow bats converged from all directions toward Di Qiu cave like rivers rushing into the sea, lured by a peculiar fragrance spreading a hundred li.
 
-"Sacrificing beast lives mirrors Eighty-Eight True Yang Building's method of sacrificing wild Gu through small towers to pool power."
+"Sacrificing beast lives mirrors Eighty-Eight True Yang Building's method of sacrificing wild Gu through small towers to pool power," Fang Yuan realized, gaining deeper comprehension of the recipe.
+
+As the fragrance finally dissipated, the few remaining bats scattered in disorder.
 
 "It is nearly done!" Fang Yuan breathed heavily, staring intently at the cave without hiding his excitement.
 
@@ -11458,57 +11394,51 @@ Astride the azure wolf, Mo Yao's will sighed mournfully: "Fang Yuan, your wolves
 
 # Chapter 572: Successfully refining the Earth Chief Zombie Gu
 
-As a righteous fairy from Spirit Affinity House, she naturally frowned upon Fang Yuan's wanton slaughter.
+As a righteous fairy from Spirit Affinity House, Mo Yao's will naturally frowned upon Fang Yuan's wanton slaughter.
 
-"Disguising himself and infiltrating Imperial Court blessed land under Northern Plains Immortals' watch proves how bold and cunning he is. Even more importantly, he knows to bow and submit, when he knows that things cannot always go his way, he immediately compromises, this person is extremely shrewd as well! What is his origin?"
+"Disguising himself and infiltrating Imperial Court blessed land under Northern Plains Immortals' watch proves how bold and cunning he is. He even deciphered my inheritance and refined the Immortal Gu. Even more importantly, he knows to bow and submit, compromising immediately when situations demand it. This person is extremely shrewd! What is his origin?"
 
-Unaware of Spring Autumn Cicada, she could not fathom his greatest secret: being a transmigrator.
+Mo Yao had recently awakened from Water Pavilion and resided in his mind, seizing upon his weak wisdom path defenses to read his thoughts. However, Fang Yuan reacted swiftly with preventive measures, restricting what she could learn. Unaware of Spring Autumn Cicada, she could not fathom his greatest secret: being a transmigrator.
 
-"I'll bide my time and guide him to return Water Pavilion first, then persuade him toward righteousness once at Spirit Affinity House..."
+"I should bide my time and guide him to return Water Pavilion first, then persuade him toward righteousness once at Spirit Affinity House..." Mo Yao thought, falling silent.
 
-Fang Yuan had distinct reasons for unleashing this massacre.
+Fang Yuan sat indifferently on the back of an azure wolf king. He had distinct reasons for unleashing this massacre.
 
-First, the stench of blood would stimulate the savage instincts of underground earth chief beasts, luring them to the surface.
+First, the stench of blood stimulated the savage instincts of underground earth chief beasts, luring them to the surface.
 
-Second, the massacre yielded abundant souls. Ever since the contest began, Fang Yuan had collected souls with soul burial toad; as long as Dang Hun Mountain survived, more souls benefited him immensely.
+Second, the massacre yielded abundant souls. Ever since the contest began, Fang Yuan had gathered souls with soul burial toad; as long as Dang Hun Mountain survived, more souls benefited him immensely.
 
-Third, he intended to probe Mo Yao's will in his mind.
+Third, he intended to probe Mo Yao's will.
+
+Furthermore, he cared nothing for the resentment of ordinary Gu Masters. At the mortal peak as Wolf King Chang Shan Yin, his individual might reigned supreme in the blessed land. Public sentiment meant nothing before absolute strength.
 
 A distant mound ruptured, hurling mud and stone as a fifty-foot-tall earth chief myriad beast king burst forth.
 
-Fang Yuan sneered with cold eyes: "You shall be the one."
+Fang Yuan sneered coldly: "You shall be the one."
 
-He directed the wolf pack to attack, countless thoughts cascading through his mind like rain.
+He mobilized the wolf pack, countless thoughts cascading through his mind like rain. Innumerable wolves surged forward like a tide. Mutated azure wolves spiraled through the air, while wolf groups split to envelop the titan like ants swarming an elephant.
 
-In his mind, Mo Yao gasped softly, astonished by his enslavement path mastery.
+When hordes of subterranean earth chief beasts surfaced to reinforce their king, the battlefield stretched across a thousand li. Fang Yuan calmly compartmentalized the chaos into dozens of isolated rings. He used ordinary wolves to surround each pocket, while elite mutated beasts served as arrowheads piercing through the enemy lines.
 
-"To command wolves so effortlessly and master attrition—this is master-level attainment..."
+In his mind, Mo Yao gasped softly, astonished by his enslavement path mastery: "To command wolves so effortlessly and master attrition—this is master-level attainment." Yet, as a refinement path grandmaster with immense vision, she also noted he was still far from grandmaster attainment in enslavement path.
 
-The wolves systematically dismantled each defensive ring, joining forces to crush subsequent lines as victory tipped decisively toward Fang Yuan. Finally, the wolf pack's slaughter accelerated until they butchered the earth chief myriad beast king.
+The wolves dismantled each defensive ring, joining forces to crush subsequent lines as victory tipped decisively toward Fang Yuan. Eventually, the exhausted earth chief myriad beast king collapsed loudly under the relentless onslaught, succumbing to heavy injuries.
 
-"His enslavement command is exquisite and bold, blending sharp and mild tactics, yet he remains far from grandmaster attainment," Mo Yao thought.
+Fang Yuan descended to skin the giant beast personally, immediately refining Gu beside the blood pool surrounded by wolf packs. Mo Yao's modified earth chief zombie Gu recipe required the freshest flesh, with an earth chief myriad beast king providing the best material, followed by thousand and hundred beast kings.
 
-Before long, the earth chief myriad beast king collapsed loudly, succumbing to its heavy injuries.
-
-Fang Yuan descended to skin it personally, immediately refining Gu beside the blood pool surrounded by wolf packs.
-
-Mo Yao's modified recipe required fresh flesh, with a myriad beast king being the best material.
-
-The Gu refinement lasted three days and three nights before succeeding perfectly.
-
-Having achieved his goal, Fang Yuan dismissed most of the wolves and returned to the sacred palace.
+The Gu refinement lasted three days and three nights before succeeding perfectly. Having achieved his goal, Fang Yuan dismissed the ordinary wolves to hunt in the wild, leading only the elite mutated beasts back toward the sacred palace.
 
 The battlefield fell deathly still until a blood-soaked figure crawled out from a hill-sized blood forest wolf corpse.
 
 It was none other than Ma Hong Yun.
 
-Fortunately, the hill-sized blood forest wolf had swallowed him whole.
+After being knocked unconscious by Jiang Dong, he had lain helpless on the ground. The old earth chief beast king had ignored him to chase Jiang Dong, but the wolf pack soon overran the terrain. Fortunately, a massive blood forest wolf had swept its giant tongue across a hundred steps, swallowing Ma Hong Yun whole alongside the old beast king's corpse. The wolf was later slain in the melee, its belly ripped open so Ma Hong Yun could breathe.
 
-Nearby, a wild Gu lay unexpectedly trapped in the fractured bone of a dead earth chief beast.
+Ma Hong Yun dizzily recovered his senses. Knowing the bloody stench would soon draw more wild beasts, he rose to flee toward the sacred palace.
 
-"This should be a rank two... something something Gu." Ma Hong Yun could not remember the name, but he knew its value.
+Just then, a faint gleam caught his eye. A wild Gu worm lay trapped in the fractured bone of a dead earth chief beast, unable to fly away.
 
-Thrilled, Ma Hong Yun walked over and easily grabbed the Gu worm.
+"This should be a rank two... something something Gu," Ma Hong Yun muttered. Unable to remember its name, he nevertheless recognized its value. Thrilled, he walked over and picked it up, eager to sell it for primeval stones.
 
 # Chapter 573: Human Experimentation
 
@@ -12306,61 +12236,57 @@ In an instant, the flying bear and Hao Ji Liu both vanished!
 
 # Chapter 584: Demise of Water Demon, Fang Yuan’s enlightening words
 
-Looking grim and uncertain, Sun Shi Han hesitated before asking: "Is it the battle space Gu?"
+Sun Shi Han’s expression was grim and uncertain as he hesitated before asking: "Is it the battle space Gu?"
 
-Hei Lou Lan's eyes flashed: "This is indeed space path. If it is battle space Gu, Elder Hao Ji Liu is in trouble."
+Hei Lou Lan's eyes flashed: "This is indeed a space path Gu worm. If it is battle space Gu, Elder Hao Ji Liu is in trouble."
 
-Ye Lui Sang explained: "Battle space Gu traps both combatants in an isolated space. In there, they will fight to the death, so only when the winner is decided, or when the time runs out, would they be released from that space."
+Ye Lui Sang, the leader of Ye Lui tribe who possessed a fire path Immortal Gu, explained gravely: "Battle space Gu is a rank five space path Gu worm. Once activated, it traps both combatants in an isolated space to fight to the death. They are only released when the victor is decided, or when primeval essence is exhausted and time runs out."
 
-Space suddenly shook, revealing the giant flying bear phantom.
+Tang Miao Ming asked if the time limit offered any hope, but Ye Lui Sang sighed: "That restriction applies only to Gu Masters. The flying bear's battle space Gu is a wild Gu, drawing continuously from the primeval energy in the surrounding air. It will not run out."
 
-It opened its mouth and roared in frenzy.
+Bian Si Xuan suggested absorbing the primeval energy, but dealing with ambient primeval energy required qi path—an ancient, virtually extinct path. Tai Bai Yun Sheng noted that severing the connection between primeval energy and wild Gu required restriction path, prompting Lui Shuang to curse his luck for not exchanging for the restriction path primeval break Gu from the treasure room earlier.
 
-Everyone's heart sank, quickly looking for Hao Ji Liu's traces.
+Before they could think further, space suddenly shook, revealing the giant flying bear phantom roaring in frenzy. Everyone searched frantically for Hao Ji Liu.
 
-Investigative Gu Master Sun Shi Han noticed first: "Quick, look at the flying bear's mouth!"
+Sun Shi Han noticed first: "Quick, look at the flying bear's mouth!"
 
-Looking over, they saw blood and scraps of cloth stuck between the bear's teeth.
+Traces of blood and scraps of cloth were stuck between the bear's teeth. Hao Ji Liu was dead, chewed and swallowed whole. Even Tai Bai Yun Sheng's Man as Before Gu was useless without a corpse.
 
-Hao Ji Liu was eaten by the flying bear!
+Morale plummeted. Hei Lou Lan's expression turned grim. Above all, he needed a one-edge owner token to ultimately obtain a strength path Immortal Gu. Returning empty-handed would deal a massive blow to his prestige.
 
-The Gu Masters' morale fell.
+As despair spread, Fang Yuan calmly said: "What difficulty is there in killing the flying bear?"
 
-Hei Lou Lan's expression turned grim: "With morale so low, do we return empty-handed this time?"
+Dozens of gazes turned toward him, then quickly looked down in apprehension. Chang Shan Yin was no longer merely the legendary hero of northern plains; he was an arrogant, ruthless enslavement and flying master who had nearly killed Hei Xiu Yi and publicly trampled Sun Shi Han's face into the dirt.
 
-Above all, Hei Lou Lan wanted a strength path Immortal Gu, requiring a one-edge owner token.
+Only Hei Lou Lan met his gaze directly, cupping his fists: "Brother Shan Yin, I would hear your brilliant plan!"
 
-As morale sank, Fang Yuan calmly said: "What difficulty is there in killing the flying bear?"
+Fang Yuan chuckled: "It is no brilliant plan. Battle space Gu is merely rank five; it must have a limited effective range. Otherwise, it would not have waited until Hao Ji Liu drew near. Attacking from afar will keep us safe."
 
-"Brother Shan Yin, I would hear your brilliant plan!" Hei Lou Lan cupped his fists.
+He added: "I will encircle the flying bear with my wolf group while you unleash long-range attacks."
 
-Fang Yuan chuckled: "It is no brilliant plan, but there is no harm in sharing."
+Hei Lou Lan was overjoyed and agreed immediately.
 
-He said: "Battle space Gu has limited range; attacking from afar will keep us safe."
+Battle ensued again. The wolf group trapped the flying bear within, while Gu Masters rained long-range attacks from outside. The flying bear roared, activating star river Gu, wind tiger cloud dragon Gu, and grand chaotic dance Gu, inflicting heavy casualties on the wolves.
 
-"I will encircle the flying bear with my wolves while you attack from afar," Fang Yuan commanded.
+Yet Fang Yuan did not flinch, coldly sacrificing his pack. Hei Lou Lan assumed Fang Yuan persisted because of the promised fifty percent floor reward. In reality, Fang Yuan wanted Hei Lou Lan to elevate his owner token, intending to seize it once it reached four edges to forge a ten-edge owner token and claim Giant Sun's true inheritance.
 
-Overjoyed that Fang Yuan was voluntarily joining battle, Hei Lou Lan quickly agreed: "We will do as Wolf King says!"
+Under the relentless barrage, the scales of victory tilted. The flying bear's wounds deepened, blood cascading down the mound like a waterfall.
 
-Battle ensued again.
+Suddenly, the flying bear roared and spat another invisible bubble.
 
-The wolf group pinned the flying bear inside while Gu Masters rained long-range attacks from outside.
-
-The flying bear roared, using its rank five Gu to inflict heavy casualties on the wolves.
-
-With Fang Yuan's intervention, victory tilted toward the Gu Masters.
-
-The flying bear's wounds deepened, blood cascading down the mound like a waterfall.
-
-Suddenly, the flying bear roared, spewing another invisible bubble.
-
-The rank five battle space Gu was activated once again.
+The rank five battle space Gu activated once more.
 
 The Gu Masters retreated promptly, but the bubble targeted a blood forest wolf instead.
 
 With a light sound, the flying bear and the blood forest wolf vanished.
 
-Fang Yuan, Tai Bai Yun Sheng, and the others looked equally grim.
+"Using the same move again, what is the point?" someone scoffed.
+
+"As long as we keep our distance, what can it do? Hahaha!"
+
+"All of you, shut up!" Hei Lou Lan roared in fury.
+
+Beside him, Fang Yuan and Tai Bai Yun Sheng looked equally grim.
 
 # Chapter 585: Finally getting through, Fang Yuan requests for an Immortal Gu
 
@@ -12850,6 +12776,10 @@ Upon leaving the blue sea, the deer-shaped life Gu Northern Dark Ice Soul held g
 
 As the fawn hopped away, Desolate Ancient Moon realized: "I understand the truth of life."
 
+"What exactly is the truth of life?" Northern Dark Ice Soul quickly asked.
+
+Pointing at the blue sea before them, Desolate Ancient Moon asked: "If we found a human-shaped blue gem life Gu and brought it back, what would it turn into?"
+
 Northern Dark Ice Soul thought for a moment and replied: "Like that fawn, it would become a living being, right?"
 
 Desolate Ancient Moon smiled: "We are life forms formed from life Gu—we ourselves are human-shaped blue gems!"
@@ -13032,49 +12962,41 @@ The shadow was extremely dark...
 
 # Chapter 593: Appearance of the strength path Immortal Gu
 
-Hei Lou Lan's brows furrowed as he walked out of Tai Bai Yun Sheng's room.
+Hei Lou Lan's brows furrowed as he walked out of Tai Bai Yun Sheng's room. He was thoroughly dissatisfied with the old healer's despondent mental state. Tai Bai Yun Sheng was the number one healer; without him, clearing rounds would become significantly harder. Furthermore, Tai Bai Yun Sheng's recent failure had cost five rank five experts their lives—Chang Biao, Pan Ping, Hao Ji Liu, Gao Yang, and Zhu Zai.
 
-"Without Tai Bai Yun Sheng healthy, clearing rounds will be vastly harder." Hei Lou Lan looked upward.
+Looking up at the sacred palace's summit, Eighty-Eight True Yang Building was currently condensing its sixty-eighth floor.
 
-Eighty-Eight True Yang Building was currently condensing its sixty-eighth floor.
+Through his one-edge owner token, Hei Lou Lan immediately perceived a newly assimilated rank six strength path Immortal Gu inside: flying bear strength Gu.
 
-Within the sixty-eighth floor lay a strength path Immortal Gu!
+A flying bear was a desolate beast possessing battle strength matching Gu Immortals. Flying bear strength Gu allowed a Gu Immortal a definite probability of bursting forth with a flying bear phantom during battle, striking with the beast's divine strength.
 
-With his owner token, Hei Lou Lan perceived the strength path Immortal Gu inside immediately.
+"I must get this Immortal Gu. Only with it does my revenge have hope!" Hei Lou Lan muttered, clenching his fists. Possessing the Great Strength True Martial Physique, he required a strength path Immortal Gu to safely ascend to Gu Immortal.
 
-This was a rank six strength path Immortal Gu called flying bear strength Gu.
+His trusted aide Hei Shu arrived and knelt to report: "Lord Chang Shan Yin is still stuck at the ninetieth round of the seventh floor. Lord Ye Lui Sang passed round eighty-one of the forty-ninth floor, but lost thirty percent of his forces."
 
-"I must obtain this Immortal Gu—only with it does my revenge have hope!" Hei Lou Lan muttered.
+"The sixty-eighth floor is our tribe's main focus, specially assigned to me by a supreme elder," Hei Lou Lan commanded. "Every bit of strength must be preserved. Announce that Eighty-Eight True Yang Building is closed until we breach the sixty-eighth floor."
 
-His trusted aide Hei Shu hurried forward and knelt before him.
+After Hei Shu retreated, Hei Lou Lan calculated his chess pieces. Tai Bai Yun Sheng could be mobilized after half a month's rest using his desperate need for lifespan Gu. Chang Shan Yin's son had perished on the seventh floor, staining his reputation, and the Wolf King owed heavy debts for the flying bear phantom Gu. Ye Lui Sang could be enticed with rich bait. Most importantly, he needed to utilize three Gu Immortals: Xue Song Zi, Hei Cheng, and Hei Bai. He immediately sent letters to them.
 
-Hei Shu reported: "Lord Chang Shan Yin is still stuck at the ninetieth round of the seventh floor. Lord Ye Lui Sang passed round eighty-one of the forty-ninth floor, but lost thirty percent of his forces...."
+Outside Imperial Court blessed land, Hei Bai was thrilled after reading Hei Lou Lan's letter: "Wooden chicken Gu has finally appeared on the sixty-eighth floor!"
 
-"The sixty-eighth floor is our main focus, specially assigned by supreme elders. Every bit of strength in the palace must be preserved. Announce Eighty-Eight True Yang Building closed until we breach the sixty-eighth floor," Hei Lou Lan instructed with authority.
+Hei Cheng smiled, then asked: "Did the letter mention a strength path Immortal Gu?"
 
-"Tai Bai Yun Sheng can be mobilized after half a month's rest by using his desperate need for lifespan Gu."
+Hei Bai's face flushed: "I was only thinking of wooden chicken Gu and forgot nephew's situation. He mentioned it, but unfortunately no strength path Immortal Gu has appeared yet."
 
-"Chang Shan Yin owes me heavily for the flying bear phantom Immortal Gu, so I can mobilize him easily as well."
-
-"Ye Lui Sang can be enticed with heavy bait. But the true key is utilizing the three Gu Immortals—Xue Song Zi, Hei Cheng, and Hei Bai."
-
-Hei Bai was thrilled by the letter: "Wooden chicken Gu has finally appeared on the sixty-eighth floor!"
-
-Hei Cheng smiled: "Virtuous brother, hard work pays off. Did the letter mention a strength path Immortal Gu?"
-
-Hei Bai flushed: "I forgot my nephew's Great Strength True Martial Physique requires a strength path Immortal Gu to advance. He mentioned it, but unfortunately no strength path Immortal Gu has appeared yet."
-
-"Still no strength path Immortal Gu?" Hei Cheng frowned.
-
-Hei Cheng sighed: "Immortal Gu Dark Limit cannot conceal his physique much longer; this is almost his final chance at life."
+Hei Cheng frowned. Immortal Gu Dark Limit could not conceal Hei Lou Lan's Great Strength True Martial Physique much longer; this contest was almost his son's final chance at life. Little did they know, Hei Lou Lan had intentionally deceived them to ensure he kept the strength path Immortal Gu for himself.
 
 Hei Bai urged: "Brother, time waits for no man. Let us quickly assist Hei Lou Lan!"
 
-"Indeed. Where did the letter specify?" Hei Cheng stood up slowly.
+The two Gu Immortals immediately set off for Demon Blood Hill.
 
-Hei Bai stood up as well: "Near Demon Blood Hill."
+Eighty-Eight True Yang Building was in Imperial Court blessed land, so why did they travel to Demon Blood Hill in Northern Plains?
 
-Soon, they arrived in the sky above Demon Blood Hill.
+The building was a rank eight Immortal Gu House designed by Long Hair Ancestor, using divert disaster Gu as a main cornerstone. Countless small towers across the blessed land resonated with the ten-year blizzard, plundering Northern Plains' precious Gu worms to condense floor after floor. The building refined these absorbed Gu worms into rounds, such as placing flying bear strength Gu at the hundredth round of the sixty-eighth floor.
+
+Refining Gu worms required a will. Giant Sun Immortal Venerable had left behind his own vast will to suppress and refine all plundered Gu. However, wills formed from thoughts without a soul carrier suffered continuous attrition. To endure the passage of time, Giant Sun's will had fallen into hibernation.
+
+With Giant Sun's will hibernating, Eighty-Eight True Yang Building's refinement speed slowed down. This delay created a loophole that Northern Plains' Gu Immortals could exploit from the outside world.
 
 # Chapter 594: Plan activated!
 
@@ -13779,6 +13701,8 @@ Mo Yao urged, "Don't be foolish—with a ten-edge owner token, you can only take
 Fang Yuan laughed loudly. "That makes me even more interested! Such an opportunity is exceedingly rare; I might never get another chance if I miss this."
 
 Mo Yao's will grew more frantic: "You lunatic! What are you thinking? Letting so many true inheritances slip by just to broaden your horizons? If you die, what about me? What about Water Pavilion?"
+
+"If I die, your will here perishes too, but rest assured—you still have a will in Water Pavilion to wait for another fated person," Fang Yuan replied unhurriedly.
 
 Driven frantic by worry, Mo Yao relented, "Fine, I surrender—you are truly stubborn! Stop looking, I'll tell you about the other two supreme true inheritances."
 
@@ -14604,35 +14528,59 @@ Frost Jade Peacock was so proud it would rather die than remain suppressed by Gi
 
 # Chapter 610: The key to victory and loss
 
-"In the past, the land spirit could never cause such trouble. But Giant Sun's will just awakened, caught off guard and forced to waste time resolving this mess. Meanwhile, Gruel Mud drastically weakened the seal, allowing the land spirit to struggle so violently."
+Cracks spread across the golden and silver sky of Imperial Court blessed land, revealing the starry sky of Northern Plains. The Gu Masters panicked, shouting in terror that the blessed land was collapsing.
 
-Thinking of this, Fang Yuan directed his gaze towards Tai Bai Yun Sheng.
+Fang Yuan remained calm. Imperial Court blessed land would not self-destruct so easily. Giant Sun Immortal Venerable’s rank nine arrangement and Eighty-Eight True Yang Building firmly anchored it. However, Giant Sun’s will had only recently awakened, caught off guard by the land spirit’s revolt. Gruel Mud Immortal Gu had severely weakened the seal, allowing the Frost Jade Peacock to struggle violently.
 
-Tai Bai Yun Sheng's expression was ashen.
+Unable to outpace Giant Sun’s will, the land spirit turned its focus toward Tai Bai Yun Sheng.
 
-"Why is a heavenly tribulation still forming?! My inheritance never mentioned this!" He was shocked and furious.
+Above Tai Bai Yun Sheng's head, the scattered tribulation clouds reformed, while calamity dust stirred below.
 
-Not only outside, but another tribulation and calamity were simultaneously forming inside his immortal aperture!
+"Why are heavenly tribulations and earthly calamities forming again?!" Ye Lui Sang’s eyes widened in shock.
 
-Only Fang Yuan knew the land spirit's intention!
+Even Hei Lou Lan looked bewildered. This defied all historical records.
 
-Unable to outpace Giant Sun's will in time, the land spirit turned its attention to Tai Bai Yun Sheng.
+Tai Bai Yun Sheng’s expression turned ashen. Not only was a second tribulation gathering outside, but another heavenly tribulation and earthly calamity were simultaneously erupting within his immortal aperture, triggered by the refinement of mortal Gu into Immortal Gu.
 
-Sacrificing its foundation to extract heaven and earth qi, its goal was to spawn tribulations that would destroy Tai Bai Yun Sheng.
+Only Fang Yuan understood the land spirit's vicious intent.
 
-"Chaotic lightning balls, restraining smoke!" Fang Yuan frowned slightly.
+By sacrificing its own foundation to extract heaven and earth qi, the land spirit sought to slay Tai Bai Yun Sheng. If he died, his newly formed immortal aperture would be devoured and assimilated by Imperial Court blessed land. Absorbing another immortal aperture would swell the blessed land’s foundation, empowering the land spirit to completely shatter Giant Sun's seal.
 
-Fang Yuan tightened his grip on the glass owner token: "My current strength leaves me heavily constrained by circumstances..."
+In the sky, purple lightning gathered into chaotic lightning balls, screeching like wailing women to assault the mind. From a colossal fissure in the earth, red flames spewed billowing restraining smoke capable of sealing a Gu Master’s five senses.
 
-"If the restraining smoke touches me, I'm finished! The calamities inside my aperture are forming too, and I've already lost my defensive Gu!" Tai Bai Yun Sheng gritted his teeth with resolute eyes.
+"Chaotic lightning balls and restraining smoke!" Fang Yuan frowned, gripping his glass owner token. With his current mortal strength, he was still constrained by circumstances.
 
-Tai Bai Yun Sheng charged toward the tribulation cloud under countless chaotic lightning balls, looking like a moth flying into a flame.
+"If the restraining smoke touches me, I'm finished! The calamities inside my aperture are forming too, and I've already lost my defensive Gu!" Tai Bai Yun Sheng gritted his teeth.
+
+Risk it!
+
+Activating several cloud path movement Gu, Tai Bai Yun Sheng shot straight into the air toward the tribulation clouds, resembling a moth plunging into fire.
+
+While others gasped in horror, Hei Lou Lan praised his decisiveness. Fang Yuan’s eyes gleamed as well; restraining smoke appeared harmless, but was far more fatal than the lightning.
+
+Charging into the barrage, Tai Bai Yun Sheng swerved and accelerated with consummate ease, evading the exploding lightning balls.
+
+"He's actually a flying master!"
+
+"He hid his skills so deeply!"
+
+Exclamations erupted. As Northern Plains' premier healing Gu Master, Tai Bai Yun Sheng had survived countless battlefields precisely because he specialized in flight rather than defense. Hei Lou Lan glanced toward Fang Yuan, who sat calmly atop his azure wolf king, silently comparing the two flying masters.
+
+"Little sparrow, you are really enjoying yourself," Giant Sun's will scoffed from within True Yang Building.
+
+Eighty-Eight True Yang Building trembled intensely as a brilliant aurora flared, discharging a magnificent pillar of light.
 
 Immortal Gu — Divert Disaster!
 
-Divert Disaster's radiance enveloped Tai Bai Yun Sheng, piercing through the lightning balls and restraining smoke.
+The immortal radiance enveloped Tai Bai Yun Sheng, cleaving through the chaotic lightning and restraining smoke.
 
-"As expected, he intervened," Fang Yuan sighed inwardly. Tai Bai Yun Sheng had become the crux between the land spirit seeking to destroy him and Giant Sun's will protecting him.
+"The ancestor is blessing Tai Bai Yun Sheng again!"
+
+"How can someone without Giant Sun's bloodline receive such favor?"
+
+Envy and suspicion spread among the Gu Masters.
+
+"As expected, he intervened," Fang Yuan sighed inwardly. Tai Bai Yun Sheng had become the decisive battleground between the two powers: the land spirit sought to slaughter him, while Giant Sun's will was forced to protect him.
 
 # Chapter 611: Landscape As Before
 
@@ -14694,67 +14642,61 @@ Giant Sun's will immediately fell into a difficult predicament.
 
 # Chapter 612: Hoodwinking the Land Spirit
 
-As the aperture's sky peeled away, the tribulation clouds thinned and the silver horn green scale python shrank to a tenth of its size, its might severely weakened.
+The immortal aperture's sky peeled away layer by layer, and the dense tribulation clouds thinned along with it. The devastating silver horn green scale python shrank to a tenth of its original size, its might severely weakened.
 
-The light of divert disaster suddenly dissipated!
+Tai Bai Yun Sheng opened tear-filled eyes as his aperture stabilized. Covered by the protective light of Divert Disaster, he felt immense gratitude: "This is all thanks to Eighty-Eight True Yang Building helping me, otherwise I would find it difficult to even have a hope of succeeding... Eh!"
 
-Caught off-guard, Tai Bai Yun Sheng was bombarded by chaotic lightning balls, losing all reason as his mind plunged into chaos.
+The light of Divert Disaster suddenly dissipated!
 
-Before the shocked onlookers could react, Eighty-Eight True Yang Building unleashed immense suction, capturing the hysterical Tai Bai Yun Sheng.
+Caught off-guard, Tai Bai Yun Sheng was bombarded by chaotic lightning balls. His mind turned chaotic, completely stripped of reason as he flew in disorder, crashing into more lightning balls.
 
-Giant Sun's will could neither sacrifice Divert Disaster Gu nor allow Tai Bai Yun Sheng to die.
+Before the shocked onlookers could process this, Eighty-Eight True Yang Building unleashed immense suction, directly capturing the hysterical Tai Bai Yun Sheng.
 
-Tribulation clouds engulfed Eighty-Eight True Yang Building as chaotic lightning balls rained down and restraining smoke coiled around the tower.
+Giant Sun's will could neither sacrifice Divert Disaster Gu nor allow Tai Bai Yun Sheng to die. The optimal choice was expelling him from the blessed land, but only Frost Jade Peacock possessed that authority. Left with no alternative, Giant Sun's will forcefully took him inside to shield his life.
 
-Inside Eighty-Eight True Yang Building, Frost Jade Peacock flapped frantically, weaving between gigantic trees.
+Surging tribulation clouds and calamity dust violently engulfed Eighty-Eight True Yang Building. Chaotic lightning balls rained down like a storm, while restraining smoke coiled around the tower like an immemorial python. As a rank eight Immortal Gu House, True Yang Building endured terrifying pressure; forcefully resisting the heavenly tribulation and earthly calamity disrupted the delicate coordination between its countless Gu worms under severe backlash.
 
-Five Immortal Gu trailing fiery tails pursued and obstructed it.
+Inside Eighty-Eight True Yang Building, Frost Jade Peacock flapped frantically, weaving between gigantic trees. Five Immortal Gu trailing fiery tails pursued it. True Yang Building acted as a natural cage; under Giant Sun's will's command, giant trees transformed into treemen, spreading their arms to block the bird's path.
 
-It crashed headfirst to the ground, unable to fly any longer.
+Frost Jade Peacock tore through three treemen, but the delay allowed a metal path Immortal Gu to catch up. A golden light encased its body in an unyielding shell. Next, a second Immortal Gu struck, flooding its mind with overwhelming drowsiness.
 
-Sensing it was about to be sealed again, tears of grief and indignation fell from its eyes.
+Boom.
 
-"Even if I die, I won't let you prevail!" Frost Jade Peacock radiated suicidal resolve, recklessly extracting the blessed land's heaven and earth qi to intensify the tribulations.
+It crashed headfirst onto the ground, unable to fly.
 
-Fuelling the tribulations, the surging heaven and earth qi caused chaotic lightning balls to expand tenfold while restraining smoke darkened and swelled.
+Tears of grief and indignation fell from its eyes. If it could absorb Tai Bai Yun Sheng's time path aperture into this space path blessed land, space and time would converge, allowing Imperial Court blessed land to advance into a grotto-heaven and expel True Yang Building. Yet Giant Sun's will would rather endure the tribulations than allow that to happen.
 
-Extracting massive qi damaged the blessed land's foundation. What was once a sturdy house was now stripped to its bare framework.
+"Even if I die, I won't let you prevail!" Radiating suicidal resolve, Frost Jade Peacock recklessly extracted the blessed land's foundational heaven and earth qi to intensify the tribulations.
 
-Countless breaches appeared, connecting it to the outside world.
+Chaotic lightning balls multiplied tenfold, and the restraining smoke darkened and swelled into a deadly miasma, corroding the tower's walls until pieces peeled away.
 
-Outside, northern plains was experiencing its decennial blizzard.
+Extracting massive qi severely damaged the blessed land's foundation. Stripped to its bare framework, countless breaches ruptured across space, connecting directly to Northern Plains.
 
-With Divert Disaster Gu dormant, Imperial Court blessed land also suffered the blizzard calamity's invasion.
+Outside, Northern Plains was experiencing its decennial blizzard—which was actually Imperial Court blessed land's own periodic calamity. With Divert Disaster Gu dormant, the blizzard poured through the fissures. Imperial Court blessed land ceased to be a refuge; temperatures plummeted, and formidable snow monsters began rising from the drifts.
 
-No longer a refuge, the blessed land filled with freezing gales and heavy snow.
+"Little sparrow, look at what a mess you've caused," Giant Sun's will grumbled in annoyance.
 
-"Little sparrow, look at what a mess you've caused," Giant Sun's will shouted in annoyance.
+To salvage the situation, Divert Disaster Gu had to eliminate the tribulations and convert them into heaven and earth qi to patch the breaches. However, absorbing that qi required Frost Jade Peacock's cooperation.
 
-There was one way to salvage this situation.
+"Getting this little sparrow to cooperate is an impossible dream!"
 
-Using Divert Disaster Gu to convert tribulations into heaven and earth qi would allow the blessed land to stabilize its foundation and seal the breaches to northern plains.
+Giant Sun's will was unaware that Tai Bai Yun Sheng possessed Landscape as Before Gu. He arrived at the only alternative: "Unless Frost Jade Peacock acknowledges a pair of new owners..."
 
-Giant Sun's will could risk forcibly activating Divert Disaster Gu, but absorbing the qi required Frost Jade Peacock's cooperation.
+The land spirit required a couple bound by mutual true love. But Giant Sun's will held the Immortal Gu False Emotion Fake Will. By using it on two candidates, he could hoodwink the land spirit into recognizing new owners. Best of all, because False Emotion Fake Will Gu answered to his will, the owners would remain entirely under his control.
 
-"Getting this little sparrow to cooperate is an impossible dream!" Even for Giant Sun's will, this was a thorny dilemma.
+Giant Sun's will immediately mobilized Eighty-Eight True Yang Building to select candidates bearing his bloodline.
 
-He arrived at the only solution: "Unless Frost Jade Peacock acknowledges new owners..."
+"Eh?" Hei Lou Lan's vision shifted rapidly. Even at rank five peak stage, he was powerlessly sucked into True Yang Building.
 
-Giant Sun's will did not know that Tai Bai Yun Sheng possessed Landscape as Before, which could easily resolve this trouble.
+"Ahhhhh, save me!"
 
-He thought of another Immortal Gu he had — false emotion fake will Gu!
+Not far away, Ma Hong Yun was running frantically, oblivious to the change in his surroundings.
 
-Frost Jade Peacock's ownership condition required a couple with mutual true love.
+Thud.
 
-Using False Emotion Fake Will Gu on two candidates could deceive the land spirit into recognizing new owners.
+He slammed headfirst into a giant tree.
 
-Once Frost Jade Peacock was controlled, each problem could be easily resolved.
-
-He immediately mobilized Eighty-Eight True Yang Building's power to screen candidates.
-
-Both naturally had to possess Giant Sun's bloodline, and he soon selected two suitable candidates.
-
-"Eh?" Hei Lou Lan's vision shifted. Even at rank five peak stage, he was powerlessly sucked into True Yang Building.
+Hei Lou Lan was utterly speechless. "Don't tell me this kid was running with his eyes closed..."
 
 # Chapter 613: Identity exposed
 
@@ -16884,57 +16826,45 @@ These were rank nine yellow apricot immortal essence!
 
 # Chapter 638: Unfilial Descendants
 
-Immortal Gu required immortal essence to activate; a will alone could not power them, and Giant Sun's will was no exception.
+Immortal Gu normally required immortal essence to activate; under ordinary circumstances, a will could not power Gu worms alone, and Giant Sun's will was no exception. It could activate Immortal Gu solely because it held Giant Sun's immortal essence.
 
-Yet wisdom Gu's strike severed the will dragon in two, exposing the Giant Sun immortal essence it was holding.
+Wisdom Gu sought freedom, and the dragon of Giant Sun's will—controlling over ten Immortal Gu—was its primary obstacle. Though fragile and lacking offensive power, rank nine wisdom Gu had no fear of the eight-fingered formless hands. Concealing itself until the critical moment, it severed the will dragon in two, cutting its connection to the immortal essence and rendering its Immortal Gu useless.
 
-"As expected of wisdom Gu! Such results in a single strike!" Fang Yuan's eyes shone with inward praise.
+"As expected of wisdom Gu! Such results in a single strike!" Fang Yuan marveled inwardly.
 
-As a rank nine Immortal Gu, wisdom Gu had no fear of the eight-fingered formless hands present.
+Heavily damaged, Giant Sun's will roared in fury! Yet instead of retaliating, it relentlessly chased the luck path true inheritance holding Ma Hong Yun and Zhao Lian Yun. Condensing into a colossal golden hand, it surged toward the tear in the wind veil of assimilation.
 
-Heavily damaged, Giant Sun's will roared in fury!
+Bathed in wisdom Gu's halo, the giant hand's thoughts violently collided and perished, shrinking visibly even as the intense collisions propelled it forward like a meteor. Just as the inheritance was about to breach the tear, the hand clamped down, intent on crushing the mortals regardless of the unique inheritance.
 
-Yet instead of attacking wisdom Gu, it relentlessly chased the luck path true inheritance holding Ma and Zhao.
-
-Condensing into a giant golden hand, Giant Sun's will hurtled toward Ma and Zhao like a meteor.
-
-Just as the luck path true inheritance was about to enter the wind veil, the giant hand blocked its path.
-
-"None of you can escape, die!" The giant hand clamped down, ignoring the inheritance to kill Ma and Zhao.
+"None of you can escape, die!"
 
 Boom!
 
-Powerful attacks hailed down, ruthlessly battering the giant hand of Giant Sun's will.
+A hailstorm of attacks rained down from outside. Driven by greed and unwilling to let the hand destroy the Immortal Gu, northern plains Gu Immortals struck ruthlessly.
 
-"You unfilial descendants!!" Giant Sun's will roared in fury as the giant hand collapsed.
+"You unfilial descendants!!" Giant Sun's will roared as its hand shattered.
 
-Carrying Ma and Zhao, the luck path true inheritance flew through the wind veil into Northern Plains.
+Carrying Ma and Zhao, the luck path true inheritance flew through the tear into Northern Plains, plunging the mortals from the wolf's den into the tiger's lair. Gu Immortals cast aside all prior agreements, fiercely battling over the prize.
 
-The greedy righteous path Gu Immortals had no idea whose will it was—and even if they knew, they would never let it destroy the Immortal Gu.
+"Imperial Court blessed land is collapsing; of course I've come to reap benefits! Strike!" shouted Old Ancestor Xue Hu, the rank eight leader of Snowy Mountain and Northern Plains' number one demonic immortal, leading his group into the fray.
 
-Leading them was an old Gu Immortal whose snow-white beard reached his toes.
+Outside the wind veil, Chanyu tribe's three immortals held back, unwilling to expend massive immortal essence to reuse their killer move, winged blade. The tear closed within eight breaths. Hei tribe's Hei Bai panicked over losing the chance to retrieve Immortal Gu Wooden Chicken from Hei Lou Lan. Hei Cheng grimly noted that formless hands would release captured Gu once their energy expired, yet remained deeply troubled by Hei Lou Lan's failure to escape.
 
-The righteous path Gu Immortals narrowed their eyes in recognition as someone gasped: "Old Ancestor Xue Hu, you came in person!"
+Inside the ruins, Fang Yuan was shocked that Hei Lou Lan had not fled. Yet he quickly put it out of mind and locked his gaze on Giant Sun's falling immortal essence.
 
-Old Ancestor Xue Hu was Snowy Mountain blessed land's leader, a rank eight expert and Northern Plains' number one demonic immortal!
+Just as Fang Yuan had to rely on Little Hu Immortal to use Hu Immortal's green grape immortal essence, he could never directly use Giant Sun's immortal essence. But that did not deter him.
 
-"Imperial Court blessed land is collapsing, of course I've come to reap benefits! Strike!" Old Ancestor Xue Hu shouted, leading his group into the fray.
+"I can't use it, but seizing it will reduce Giant Sun's strength to twenty or thirty percent!"
 
-As righteous and demonic factions clashed, the luck path true inheritance changed hands repeatedly, leaving Ma and Zhao hovering on the brink of death.
+Without immortal essence, Giant Sun's will could only rely on the power of its special will. Fang Yuan soared skyward, frantically activating movement Gu.
 
-As the gap in the wind veil closed, that Hei Lou Lan didn't seize the chance to escape the wind veil shocked Fang Yuan.
+"You dare!!" Attacked by his descendants and sensing Fang Yuan's intent, Giant Sun's will was both furious and anxious.
 
-He fixed his gaze on Giant Sun's falling immortal essence.
+"Damn it, it's too late!" The will condensed back into a giant hand and plunged like a meteor.
 
-"I can't use it, but seizing it will reduce Giant Sun's strength to twenty or thirty percent!" Fang Yuan soared upward, frantically activating movement Gu.
+"Hahaha!" Fang Yuan laughed aloud, barely a hundred steps away.
 
-"You dare!!" Attacked by descendants and sensing Fang Yuan's intent, Giant Sun's will was both furious and anxious.
-
-"Damn it, it's too late!" Recondensing into a giant hand, the will plunged down like a meteor.
-
-"Hahaha!" Fang Yuan laughed heartily, barely a hundred steps from Giant Sun's immortal essence.
-
-For between them stood rank nine wisdom Gu!
+He was not worried. Hei Lou Lan lacked speed and was burdened by holding Tai Bai Yun Sheng. More importantly, rank nine wisdom Gu stood directly between him and Giant Sun's will; detouring around its lethal light would cost the will precious time. Aside from the wandering formless hands, nothing stood in his way.
 
 Wind howling past, Giant Sun's immortal essence was within reach!
 
@@ -17128,45 +17058,55 @@ Without Water Pavilion to guard his brain, any flaw in combat would let Giant Su
 
 # Chapter 642: Thirty-Eight Sealing Arts
 
-"Giant Sun, all your immortal essence is in my immortal aperture. Without it, how can you use Immortal Gu? You cannot breach the wind veil relying on special will alone!" Fang Yuan attempted to negotiate.
+"Giant Sun, all your immortal essence is in my immortal aperture. Without it, how can you use Immortal Gu? You cannot breach the wind veil relying on special will alone!" Fang Yuan attempted to negotiate as his thoughts raced.
 
-"Negotiate?" Giant Sun's will laughed with naked hatred. "Once I kill you, I'll take the immortal essence back from your aperture anyway. Why not try destroying it?"
+"Negotiate?" Giant Sun's will laughed with naked hatred. "Once I kill you, I will seize it back anyway. If you destroy it in your aperture, the foreign immortal essence will tear it apart. If you destroy it outside, the scattered aura will only help me activate Immortal Gu. What can you do? Die quickly!"
 
-"Giant Sun's will, I'm standing right here—do you dare come?" Fang Yuan halted, deactivating Worldly Wave Trace.
+The wind veil of assimilation crept closer, silently devouring everything in its path and constricting the battlefield.
 
-Giant Sun's will halted hundreds of paces away, not daring to advance.
+"Giant Sun's will, I am standing right here—do you dare come?" Fang Yuan suddenly halted, deactivating Worldly Wave Trace.
 
-Fang Yuan stood directly within the light of wisdom.
+Giant Sun's will halted hundreds of paces away, not daring to advance. Fang Yuan stood directly within the halo cast by wisdom Gu.
+
+The light of wisdom was the bane of wills. After the brutal fighting, Giant Sun's will was reduced to the size of an adult man and could endure no further exhaustion.
 
 "Fang Yuan, your lifespan!!" Mo Yao's will warned.
 
-"There's no other way—what else can I do?" Fang Yuan gritted his teeth in bitter helplessness.
+"There is no other way—what else can I do?" Fang Yuan gritted his teeth in bitter helplessness. His lifespan drained unceasingly, but Giant Sun gave him no room to maneuver.
 
-Giant Sun's will barked to Hei Lou Lan's group: "Deal with this thief! Force him closer to wisdom Gu so the light burns his lifespan faster!"
+Giant Sun's will barked to Hei Lou Lan's group: "Deal with this thief! Most of his defensive Gu perished in our clash. Force him closer to wisdom Gu so the light burns his lifespan faster!"
 
-Within the light of wisdom, Fang Yuan snorted coldly, maintaining his defensive Gu while unleashing long-range counterattacks.
+Hei Lou Lan and the surviving Gu Masters immediately unleashed long-range barrages, unwilling to engage the zombie in close combat.
 
-Light barriers enveloped him, bone shields hovered nearby, and stone walls surged to block the mortals' barrage.
+Within the light of wisdom, Fang Yuan snorted coldly. Layers of light barriers enveloped him, dozens of bone shields hovered nearby, and stone barriers surged from the ground. Armed with unlimited primeval essence, he matched them with his own long-range attacks.
 
-Armed with unlimited primeval essence, he suffered no disadvantage against the mortal Gu Masters.
+"Keep attacking! Mortal Gu cannot endure continuous activation; they will collapse!" Hei Lou Lan shouted.
 
-Breaths later, he appeared above Hei Lou Lan's group, showering them with mortal Gu.
+Yet breaths turned to minutes, and Fang Yuan effortlessly swapped through a seemingly bottomless arsenal of mortal Gu. Giant Sun's will recalled the stargate Fang Yuan had opened earlier and realized the truth—Fang Yuan had obtained immense supplies from treasure yellow heaven through Hu Immortal blessed land.
 
-"Take them. I will impart a killer move to you!" Giant Sun's will split, carrying the Gu into their apertures.
+"Hmph, you relied on external strength. But your opponent is me!" Giant Sun's will shot through the air, avoiding the light of wisdom, and gathered Gu worms scattered across the battlefield.
 
-"It is a trick conceived in leisure," Giant Sun's will said. "For now, we'll call it Thirty-Eight Sealing Arts."
+He appeared above Hei Lou Lan's group, dropping batches of mortal Gu. "Take them. I will impart a killer move to you!"
 
-Hei Lou Lan's group activated the move at once, exhaling rays of purple light qi.
+Giant Sun's will split into a dozen strands, carrying the Gu into their apertures and refining them instantly. Each person received thirty-eight Gu.
 
-Thirty-eight sealing arts contaminated enemy techniques, sealing all the Gu worms used for them in succession.
+"It is a trick conceived during my leisure," Giant Sun's will said. "For now, we will call it Thirty-Eight Sealing Arts."
 
-After Fang Yuan was struck, his defensive Gu were sealed successively.
+Hei Lou Lan's group activated the killer move at once, exhaling rays of purple light qi.
 
-Fang Yuan attacked the purple qi directly, sacrificing offensive Gu to preserve his defensive Gu.
+Thirty-Eight Sealing Arts was an exceptional qi path killer move designed to seal Gu worms. Much stronger than pitch black Gu, it contaminated enemy moves and traced back along the qi to seal the Gu worms inside the aperture.
 
-If the purple qi touched his zombie king form, it could seal the core Gu and shatter the transformation.
+When the purple qi struck, Fang Yuan's stone barrier shield Gu and flying bone shield Gu were successively sealed, the bone shields clattering uselessly to the ground. Even when he attacked with wind blades, the purple qi contaminated the wind, sealing the wind blade Gu within his aperture.
 
-Soon, Fang Yuan's attacks thinned as the mob of Gu Masters pushed him into a disadvantage.
+Fang Yuan took the initiative to intercept the purple qi with offensive moves, sacrificing disposable attacking Gu to preserve his defensive Gu. If the purple qi touched his body, it could seal the core Gu maintaining six arm heavenly zombie king and collapse his transformation.
+
+Soon, Fang Yuan's counterattacks thinned as the mob pushed him into a severe disadvantage.
+
+"Kill this demon!" Ye Lui Sang roared, hurling exploding fireballs that tore open Fang Yuan's flesh.
+
+"You destroyed True Yang Building and ruined us all!" Gu Guo Long shouted with venomous fury, sending curving wind blades that sliced fresh wounds across Fang Yuan's body.
+
+The surviving Gu Masters attacked relentlessly, eyes blazing with hatred for the death of their clansmen, while Giant Sun's will reminded them strictly not to harm wisdom Gu.
 
 # Chapter 643: Final Trump Card
 

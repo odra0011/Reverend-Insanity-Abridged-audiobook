@@ -1,6 +1,6 @@
 # Reverend Insanity (蛊真人 / Gu Zhen Ren)
 
-### Abridged & Seam-Healed Repaired Edition (~134 Hours, 1.55M Words across all 2,334 Chapters)
+### Abridged & Seam-Healed Repaired Edition (~160.5 Hours, 1.58M Words across all 2,334 Chapters)
 
 <p align="center">
   <img src="cover.jpg" width="380" alt="Reverend Insanity Cover" />
@@ -20,8 +20,8 @@
 | **Author** | **Gu Zhen Ren** (`蛊真人`) |
 | **Novel Title** | *Reverend Insanity* (Gu Dao Zhen Ren / 蛊真人) |
 | **Edition** | **Abridged & Seam-Healed Repaired Edition** |
-| **Novel Scope** | **2,334 Chapters across 6 Epic Volumes** (~1.52M words distilled from ~5M original words) |
-| **Total Audio Duration** | **~134 Hours** across all 2,334 chapters |
+| **Novel Scope** | **2,334 Chapters across 6 Epic Volumes** (1.58M words distilled from ~5M original words) |
+| **Total Audio Duration** | **~160.5 Hours** across all 2,334 chapters |
 | **Audio Format** | **32 kbps VBR Opus** (Voice-optimized high-efficiency compression, 48 kHz) |
 | **Narrator Engine** | **Gemini 3.8 Flash TTS** (`Algenib` V3 (`atempo=1.08`), cold deadpan dark xianxia delivery) |
 | **Repaired Text Edition** | **Seam-Healed & Restored Markdown + EPUB** (6 Volumes + Complete Omnibus) |
@@ -33,13 +33,13 @@
 
 | Cover | Volume & Title | Chapter Range | Audio Duration | Included Formats |
 | :---: | :--- | :---: | :---: | :--- |
-| <img src="Volume%201/cover.jpg" width="110" alt="Volume 1 Cover" /> | **Volume 1**<br>*A Demon's Nature Doesn't Change* | Chapters 0001 – 0199<br>(199 chapters) | ~10.8 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 1 - A Demon's Nature Doesn't Change.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 1 - A Demon's Nature Doesn't Change.md>) |
-| <img src="Volume%202/cover.jpg" width="110" alt="Volume 2 Cover" /> | **Volume 2**<br>*The Demon Leaves the Mountain* | Chapters 0200 – 0405<br>(206 chapters) | ~11.7 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 2 - The Demon Leaves the Mountain.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 2 - The Demon Leaves the Mountain.md>) |
-| <img src="Volume%203/cover.jpg" width="110" alt="Volume 3 Cover" /> | **Volume 3**<br>*The Demon Wreaks Havoc in the World* | Chapters 0406 – 0649<br>(244 chapters) | ~14.3 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 3 - The Demon Wreaks Havoc in the World.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 3 - The Demon Wreaks Havoc in the World.md>) |
-| <img src="Volume%204/cover.jpg" width="110" alt="Volume 4 Cover" /> | **Volume 4**<br>*The Demon Lord Rampages Unhindered* | Chapters 0650 – 1021<br>(372 chapters) | ~22.4 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 4 - The Demon Lord Rampages Unhindered.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 4 - The Demon Lord Rampages Unhindered.md>) |
-| <img src="Volume%205/cover.jpg" width="110" alt="Volume 5 Cover" /> | **Volume 5**<br>*A Demon King's Might* | Chapters 1022 – 1966<br>(945 chapters) | ~52.2 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 5 - A Demon King's Might.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 5 - A Demon King's Might.md>) |
-| <img src="Volume%206/cover.jpg" width="110" alt="Volume 6 Cover" /> | **Volume 6**<br>*Demon Venerable's Eternal Life* | Chapters 1967 – 2334<br>(368 chapters) | ~22.1 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 6 - Demon Venerable's Eternal Life.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 6 - Demon Venerable's Eternal Life.md>) |
-| <img src="cover.jpg" width="110" alt="Omnibus Cover" /> | **Complete Omnibus**<br>*Volumes 1–6 Complete* | Chapters 0001 – 2334<br>(2,334 chapters) | ~134 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Complete Omnibus (Volumes 1-6).epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Complete Omnibus (Volumes 1-6).md>) |
+| <img src="Volume%201/cover.jpg" width="110" alt="Volume 1 Cover" /> | **Volume 1**<br>*A Demon's Nature Doesn't Change* | Chapters 0001 – 0199<br>(199 chapters) | ~13.0 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 1 - A Demon's Nature Doesn't Change.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 1 - A Demon's Nature Doesn't Change.md>) |
+| <img src="Volume%202/cover.jpg" width="110" alt="Volume 2 Cover" /> | **Volume 2**<br>*The Demon Leaves the Mountain* | Chapters 0200 – 0405<br>(206 chapters) | ~14.1 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 2 - The Demon Leaves the Mountain.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 2 - The Demon Leaves the Mountain.md>) |
+| <img src="Volume%203/cover.jpg" width="110" alt="Volume 3 Cover" /> | **Volume 3**<br>*The Demon Wreaks Havoc in the World* | Chapters 0406 – 0649<br>(244 chapters) | ~17.2 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 3 - The Demon Wreaks Havoc in the World.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 3 - The Demon Wreaks Havoc in the World.md>) |
+| <img src="Volume%204/cover.jpg" width="110" alt="Volume 4 Cover" /> | **Volume 4**<br>*The Demon Lord Rampages Unhindered* | Chapters 0650 – 1021<br>(372 chapters) | ~26.9 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 4 - The Demon Lord Rampages Unhindered.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 4 - The Demon Lord Rampages Unhindered.md>) |
+| <img src="Volume%205/cover.jpg" width="110" alt="Volume 5 Cover" /> | **Volume 5**<br>*A Demon King's Might* | Chapters 1022 – 1966<br>(945 chapters) | ~62.7 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 5 - A Demon King's Might.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 5 - A Demon King's Might.md>) |
+| <img src="Volume%206/cover.jpg" width="110" alt="Volume 6 Cover" /> | **Volume 6**<br>*Demon Venerable's Eternal Life* | Chapters 1967 – 2334<br>(368 chapters) | ~26.6 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Volume 6 - Demon Venerable's Eternal Life.epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Volume 6 - Demon Venerable's Eternal Life.md>) |
+| <img src="cover.jpg" width="110" alt="Omnibus Cover" /> | **Complete Omnibus**<br>*Volumes 1–6 Complete* | Chapters 0001 – 2334<br>(2,334 chapters) | ~160.5 Hours | [EPUB](<eBook (Repaired Edition)/Reverend Insanity - Complete Omnibus (Volumes 1-6).epub>)<br>[Markdown](<eBook (Repaired Edition)/Reverend Insanity - Complete Omnibus (Volumes 1-6).md>) |
 
 ---
 
@@ -67,7 +67,7 @@
 ## 📚 Repaired Edition eBooks (`eBook (Repaired Edition)/`)
 
 The text edition bundled in this repository is the **Repaired & Seam-Healed Edition**:
-- Fixed broken paragraph splits, missing transitions, and raw translation artifacts.
+- Fixed broken paragraph splits, missing Q&A/ordinal transitions, and raw translation artifacts.
 - Available as 6 single-volume `.epub` files, a unified **Complete Omnibus `.epub`**, and clean source GitHub-flavored `.md` files.
 
 ```

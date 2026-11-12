@@ -142,39 +142,37 @@ Ice Crystal Immortal Monarch sighed with a grim expression: "The five regions ar
 
 # Chapter 1970: Heavenly Court's Dilemma
 
-Soul Pacifying grotto-heaven's name and members revealed its soul path foundation, surely rich in cultivation resources Spectral Soul desperately needed.
+Lady Cold Ash flew out of Ice Crystal grotto-heaven, greeted by two rank seven Gu Immortals from Soul Pacifying grotto-heaven. Leading her soul beast army back alongside Night Heavenly Wolf Lord's wolf packs, she had no idea Spectral Soul was lurking nearby.
 
-"Qi tides rampage across the five regions and two heavens, and the black and white heaven grotto-heavens will not stay idle. Hehe, I can exploit this to strike other venerable forces and accelerate my growth!"
+Observing the soul beasts, Spectral Soul noted the grotto-heaven's deep soul path foundation. It was a scrumptious meal he desperately needed. With fate Gu destroyed, the venerables could revive. Since Fang Yuan had vanished, Spectral Soul planned to use these grotto-heavens as weapons to strike other venerable forces and accelerate his own recovery.
 
-Night Heavenly Wolf Lord said: "Ice Crystal Immortal Monarch wants us to form an alliance resisting the five regions. This is quite difficult."
+Meanwhile, Night Heavenly Wolf Lord returned to Night Wolf grotto-heaven. An experienced rank eight leader whose political authority was absolute, he convened his subordinates.
 
-Gu Immortal Ye Zhi nodded: "Indeed. With fate Gu destroyed, the five regions merged, and heaven and earth qi fusing into rampant qi tides, no grotto-heaven can conceal itself. The five regions are obviously stronger than the two heavens, so why can we not join them instead?"
+"Ice Crystal Immortal Monarch wants us to form an alliance resisting the five regions," Night Heavenly Wolf Lord stated.
 
-Night Heavenly Wolf Lord sighed: "That is why I agreed with Lady Cold Ash to unite our human grotto-heavens. We should secretly contact Central Continent's Heavenly Court first."
+Gu Immortal Ye Zhi nodded: "With fate Gu destroyed, the five regions have merged, and rampaging qi tides leave no grotto-heaven hidden. If we ally with variant humans, the five regions will view us as traitors to humanity. The five regions are far stronger than the two heavens, so why can we not join them instead?"
 
-Central Great Hall was finally repaired, with Qin Ding Ling currently in charge.
+"Our ancestor has ancient grudges with Longevity Heaven, ruling out Northern Plains," Night Heavenly Wolf Lord sighed. "Thus, Lady Cold Ash and I agreed to unite our human grotto-heavens. We should secretly contact Central Continent's Heavenly Court first."
 
-With Duke Long dead and Fairy Zi Wei turned traitor, Heavenly Court chose Qin Ding Ling as their new leader.
+In Heavenly Court, Central Great Hall had finally been repaired, with Qin Ding Ling presiding.
 
-"Oh?" Holding an information path mortal Gu, her expression shifted slightly: "Night Wolf grotto-heaven?"
+During the battle over Fate, Duke Long had fallen, while Primordial Origin Immortal Venerable's method—rage qi, unlucky qi, and grief qi—had repelled the three regions' forces once Limitless's suppression in Imperfection Regret Pavilion faded. As the enemy retreated behind Dragon Palace, Calamity Luck Altar, and Clear Jade Dripping Wind Tiny Bamboo Building, the world's first qi tide erupted. Heavenly Court's morale hit rock bottom after Fang Yuan refined destiny Gu.
 
-"Hmph, those of other races have such motives! Once fate Gu got destroyed, these variant humans jumped out immediately." Qin Ding Ling snorted, deep killing intense rose in her heart.
+With Fairy Zi Wei and Old Man Zheng Yuan enslaved by Spectral Soul, Heavenly Court chose Qin Ding Ling as their new leader. However, Heavenly Court faced unprecedented weakness. While their phantom apertures let them bypass qi tides, their surviving immortals had limited lifespan and had to hibernate in the immortal graveyard to support Star Constellation's will against heaven's will.
 
-Heavenly Court was at an unprecedented level of weakness.
+Holding an information path mortal Gu from Night Heavenly Wolf Lord, Qin Ding Ling learned of the variant humans' plot and the feud with Longevity Heaven.
 
-Recognizing the severity of the situation after brief reflection, Qin Ding Ling decided to discuss it with Zhou Xiong Xin and the others.
+"Hmph, these variant humans dare to jump out the moment fate Gu is destroyed!" she snorted, cold killing intent rising. Yet she could not confirm if the wolf lord was sincere.
 
-Zhou Xiong Xin suggested: "This is crucial, yet the situation remains unclear. Night Heavenly Wolf Lord and the others are merely the rank eights in Central Continent's black heaven. What of the other four regions' black heaven? We know neither how many grotto-heavens exist nor how many rank eight Gu Immortals they hold. I am willing to investigate the two heavens myself!"
+Zhou Xiong Xin suggested: "We know nothing of the rank eights across the other regions' two heavens. Since my phantom aperture is unaffected by qi tides, I will investigate the two heavens myself."
 
-Agreeing with his suggestion, Qin Ding Ling chose to maintain contact with Night Wolf grotto-heaven while investigating the situation.
+Qin Ding Ling agreed. Then, Jun Shen Guang presented a list of mortal Gu Master seeds to replenish their losses after Fang Yuan shattered the immortal graveyard: Immortal Crane Sect recommended Sun Yuan Hua, Spirit Butterfly Valley put forth Xiao Qi Xing, Ancient Soul Sect offered Gu Ting, and Heaven's Envy Manor nominated Wei Wu Shang.
 
-Jun Shen Guang produced an information path mortal Gu: "The candidates have been selected—talented Gu Immortal seeds loyal to Heavenly Court and the ten great ancient sects. However, there is one person requiring everyone's discussion."
+Only Spirit Affinity House's slot remained blank.
 
-The list held many names: Immortal Crane Sect recommended Sun Yuan Hua, Spirit Butterfly Valley put forth Xiao Qi Xing, Ancient Soul Sect offered Gu Ting, Heaven's Envy Manor nominated Wei Wu Shang... but Spirit Affinity House's section was blank.
+They intended to nominate Feng Jin Huang. But after Feng Jiu Ge betrayed Heavenly Court and vanished, his daughter was left in an awkward position. With fate Gu destroyed, her destiny as Great Dream Immortal Venerable was no longer certain. Furthermore, Duke Long’s first disciple, Red Lotus, had spent a million years scheming to destroy Fate Gu. Heavenly Court feared Feng Jin Huang would inherit that same traitorous tradition.
 
-She knew Spirit Affinity House's intended nominee had to be Feng Jin Huang.
-
-"We will talk about this again next time."
+Qin Ding Ling sighed: "We will talk about this again next time."
 
 # Chapter 1971: Struggle Between Feng and Zhao
 
@@ -214,6 +212,8 @@ Feng Jin Huang laughed and tapped Sun Yao's forehead: "You did well, so why apol
 
 Feng Jin Huang then turned to Qin Juan: "You have always been diligent and persevering, so why did you faint while fusing with the dao marks? Otherwise, the nomination would have been yours."
 
+"No, senior sister, Sister Qin Juan was injured at the time and could not endure the ordeal," Sun Yao quickly clarified.
+
 "So that was it." Feng Jin Huang nodded with regret: "It is indeed a great loss. Fang Yuan refined destroyed fate Gu into countless heaven path dao marks that dispersed across the world. Ultimately, your achievements in life will depend on your own talents and efforts."
 
 At the same time, on another mountain, Affection Peak.
@@ -229,6 +229,8 @@ Having become a Gu Immortal, Zhao Lian Yun was recently appointed Affection Peak
 "This..." Zhao Lian Yun hesitated: "Feng Jiu Ge betrayed Heavenly Court, and I know you hold grudges against him, but why implicate his family?"
 
 "Lian Yun, one cannot be overly kindhearted. Think back to your competition with Feng Jin Huang for the fairy position," Li Jun Ying urged. "If we miss this chance, we will regret it. You need not worry; our sect's original nominee was Feng Jin Huang, but she has already been removed from the list."
+
+"Seniors, one should show leniency when possible," Zhao Lian Yun explained, unwilling to comply.
 
 Xu Hao dismissed her words: "Back then, did the demon Feng Jiu Ge spare us?"
 
@@ -1248,23 +1250,35 @@ Qin Ding Ling smiled: "Why go to Eastern Sea? Wu Shuai can probe Qi Sea Ancestor
 
 "Heavenly Court is Heavenly Court after all..." Night Heavenly Wolf Lord sighed, looking at the information path Gu worm in his hand.
 
-Just as he anticipated, Heavenly Court was moving against the two heavens alliance.
+He had joined the two heavens alliance only out of necessity to protect his grotto-heaven from being besieged. But he knew that when the five regions counterattacked, the alliance would inevitably crumble. To ensure the survival of Night Wolf grotto-heaven, he had secretly approached Heavenly Court.
 
-Per their agreement, Heavenly Court would attack the moment Wu Shuai and Qi Sea Ancestor clashed—or within a month regardless.
+Heavenly Court’s Qin Ding Ling had sent him a secret letter asking him to act as an inside spy. Night Heavenly Wolf Lord admired Heavenly Court; unlike Qi Sea Ancestor or Wu Yong, and unlike Longevity Heaven with its hereditary monarchy mindset, Heavenly Court still upheld the righteousness of humanity despite losing the fate war. He immediately agreed. Per their arrangement, Heavenly Court would strike the alliance headquarters the moment Wu Shuai and Qi Sea Ancestor clashed, or within a month regardless.
 
-"There is another matter regarding qi path," Wu Ba Chong said, handing Wu Yong an information path mortal Gu.
+Meanwhile, Southern Border's Wu Yong was also watching Eastern Sea closely. Wu Yong was an ambitious man who craved world chaos so he could reap benefits and rise to the peak. He deeply resented the qi tides, which had forced the five regions to recuperate and spared Heavenly Court from complete destruction.
 
-"It seems qi path is flourishing again. Does this qi harvest fruit truly possess such miraculous effects?" Wu Yong asked with a sigh.
+Wu Ba Chong arrived to report: "Lord, Empress Wu Ji and the others have revived. What should we do now?"
 
-Wu Ba Chong nodded: "Indeed, many Gu Immortals have verified it. Fusing the five regions' qi, this fruit is extraordinary. In an immortal aperture, it generates turbulent qi that accelerates heaven and earth qi assimilation. Gathering more qi harvest fruits allows one to overcome this period of inactivity faster."
+After fate Gu's destruction, revival methods had become remarkably easy to use. Elite Gu Immortal seeds of Wu clan who had previously perished on Yi Tian Mountain were now brought back to life.
 
-Wu Yong instructed: "Collect more of this material. Inventory our clan's assets and compile a qi path inheritance so we can nurture qi path Gu Immortals."
+Wu Yong instructed: "Impart the immortal ascension methods to them and prepare ample resources. I want Wu clan to gain more than ten Gu Immortals in the next few years!"
 
-Three Gu Immortals went deeply into Qi Jue grotto heaven.
+Wu Ba Chong then handed over an information path mortal Gu detailing new qi path materials: "There is another matter regarding qi path."
 
-Advancing deeper, they reached the center of Qi Jue grotto-heaven.
+"Does this qi harvest fruit truly possess such miraculous effects?" Wu Yong asked after reviewing the contents.
 
-"Hurry, the raging qi tides will only leave Qi Jue grotto-heaven concealed for so long. We must claim Qi Jue's true inheritance before anyone discovers us. With it, our Luo clan can seize the initiative in this new era!" Luo Hao Ze's eyes shone brightly.
+Wu Ba Chong nodded: "Indeed. Formed from the essence of qi path and the fusion of the five regions' qi, it generates turbulent qi inside an immortal aperture that accelerates heaven and earth qi assimilation. Gathering more qi harvest fruits allows one to bypass this period of inactivity much faster."
+
+Wu Yong ordered: "Collect this material, compile our clan's inventory, and piece together a qi path inheritance to nurture qi path Gu Immortals."
+
+At the same time, in Southern Border, three Luo clan Gu Immortals ventured deep into Qi Jue grotto-heaven.
+
+"I broke through!" Luo Ran, a renowned peak rank seven expert of Luo clan, called out in excitement. Accompanied by Luo Mu Zi and Luo Hao Ze, they reached the center of the grotto-heaven.
+
+"To think the qi tides would alter Qi Jue grotto-heaven and ease our passage," Luo Mu Zi marveled.
+
+Luo Hao Ze urged: "Hurry, the raging qi tides will only keep Qi Jue grotto-heaven concealed for so long. We must claim Qi Jue's true inheritance before anyone discovers us. With it, our Luo clan can seize the initiative in this new era!"
+
+Several days later, in Eastern Sea.
 
 Qi Sea Ancestor suddenly appeared, raising boundless qi waves that surged openly toward Eastern Sea Xia clan's headquarters.
 
@@ -1540,6 +1554,10 @@ Xiao Qi Xing sized up Sun Yao: "Are you Spirit Affinity House's candidate? Feng 
 
 Xiao Qi Xing sneered: "You're actually helping these beggars? They aren't real people, why bother? You're wasting your time!"
 
+"No reason, we just feel like helping them," Chen Da Jiang smiled.
+
+"Hehe, sympathy..." Xiao Qi Xing shook his head disdainfully. "You don't understand the importance of this journey at all."
+
 "Oh?" Chen Da Jiang's eyes lit up: "What does Brother Xiao know?"
 
 "This painting world is so vivid because of Genesis Lotus Immortal Venerable's contented lifestyle killer move. Our sects nominated us to be nurtured by Heavenly Court here. As you've likely noticed, the Gu Masters cultivating here focus primarily on human path."
@@ -1603,6 +1621,8 @@ Healthy stone mushrooms stood five feet tall, but these were stunted like felled
 Light flashed as Fang Yuan's will manifested mid-air.
 
 Fang Yuan's will waved a hand: "The destruction of the stone mushrooms was a natural disaster. Return for now; materials will arrive shortly to rebuild the valley."
+
+Fang Yuan's will smiled knowingly: "Are you wondering what destroyed these stone mushrooms?"
 
 Shi Shi Cheng nodded: "Lord is perceptive. Can these stone mushrooms be recycled somehow? It would be a pity to discard them."
 
@@ -1932,79 +1952,81 @@ Their leader was a thumb-sized miniman Gu Immortal with translucent wings.
 
 # Chapter 1997: Both Sides Seek Reinforcements
 
-Days later, in the headquarters of Southern Border's Wu clan.
+Days later, at Wu clan's headquarters in Southern Border.
 
-As Wu Yong pondered his future, an information path Gu worm flew toward him.
+At a mountain peak, Wu Yong stood before three unconscious mortals tied to wooden poles.
 
-"Luo Zu (Luo Ran) pays respects to Lord Alliance Leader." The two Luo clan Gu Immortals bowed upon seeing Wu Yong.
+Immortal killer move — Farewell Friend Wind!
 
-Once the two sat down, Wu Yong asked directly: "What is the matter with Qi Jue grotto-heaven?"
+Wu Yong breathed in deeply and activated the peculiar move. Without any visible breeze, the three mortals disintegrated, their flesh, bones, and clothing scattering into nothingness.
 
-Luo Zu explained: while exploring white heaven with an Immortal Gu House, Luo clan had discovered Qi Jue grotto-heaven. With the qi tides' help, Luo clan finally breached Qi Jue grotto-heaven's central area.
+Wu Yong smiled in satisfaction. He had lost many wind path dao marks using unlimited wind during the fate war, but his attainment had risen during recuperation, allowing him to modify farewell friend wind. Originally a wind path killer move with human path effects that required touching the target and uttering parting words, he had removed those restrictions and greatly increased its range. Next, he would modify his other killer moves and Clear Jade Dripping Wind Tiny Bamboo Building to fully restore his battle strength.
 
-Upon being informed, Luo clan dispatched their Immortal Gu House in reinforcement, clashing fiercely at the heavenly wind qi wall. Although the variant human Gu Immortals lacked high battle strength, their leader, the miniman Gu Immortal Xiao He Jian, was formidable. As the variant humans also possessed an Immortal Gu House, Luo clan was forced to flee back to Southern Border in disgrace.
+An information path Gu worm interrupted his thoughts. Halting his cultivation, Wu Yong returned to his guest hall to meet two Luo clan Gu Immortals: first supreme elder Luo Zu and injured space path expert Luo Ran.
 
-Defeated, angry, and helpless, Luo clan's immortals returned to recuperate at headquarters. Recognizing they could not claim Qi Jue grotto-heaven alone, they decided to seek external help.
+"Luo Zu (Luo Ran) pays respects to Lord Alliance Leader."
 
-Wu Yong smiled: "Southern Border stands united. Since Luo clan suffered a setback, the Southern Alliance—and I, Wu Yong—will naturally lend our strength!"
+Once seated, Wu Yong asked directly, "What is the matter with Qi Jue grotto-heaven?"
 
-As Wu Yong negotiated with Luo clan, Wu Shuai also granted an audience to a Gu Immortal.
+Luo Zu explained that Luo clan had discovered Qi Jue grotto-heaven in white heaven years ago. Aided by the rampant qi tides, they breached its central area to claim Qi Jue's true inheritance, only to be ambushed by variant human Gu Immortals. Luo Ran used his trump card to escape with his companions, but the enemies pursued them. When Luo clan dispatched their Immortal Gu House in reinforcement, they clashed at the heavenly wind qi wall against the variant humans' own Immortal Gu House, led by the formidable rank eight miniman Xiao He Jian. Luo clan suffered defeat and fled back to Southern Border.
 
-"A miniman Gu Immortal named Xiao He Jian is asking to see me?" Wu Shuai squinted.
+Realizing they could not contest Qi Jue grotto-heaven alone, Luo clan sought help. Wu Yong agreed that the Southern Alliance would lend its strength, though both sides understood the real negotiation lay in how to divide the true inheritance.
 
-"Yes," the subordinate answered. "He is a renowned rank eight miniman whose strength rivals the vice alliance leader's."
+Meanwhile, Wu Shuai received a subordinate's report: "A miniman Gu Immortal named Xiao He Jian requests an audience. He claims to offer a huge fortune and wishes to join our alliance."
 
-"Why does he want to see me?" Wu Shuai asked deliberately.
+Xiao He Jian was a renowned rank eight expert whose strength rivaled vice alliance leader Ice Crystal Immortal Monarch, who had recently repelled Demon Judgment Board with his immortal sealing coffin killer move.
 
-"Xiao He Jian likely clashed with Luo clan over Qi Jue grotto-heaven. Having suffered a loss, Luo clan will definitely seek help from their Southern Alliance and approach Wu Yong."
+From memories sent by his main body, Wu Shuai knew Xiao He Jian had contested Heavenly Court evenly in the previous life. Xiao He Jian had clearly clashed with Luo clan and now sought the Two Heavens Alliance to shield himself against Southern Border.
 
-"Xiao He Jian cannot resist the Southern Alliance alone. Joining us protects him while using our strength to contest the true inheritance."
+However, Wu Shuai also knew that in the previous life, Qi Jue grotto-heaven had self-detonated, devastating the Two Heavens Alliance and likely killing Ice Crystal Immortal Monarch.
 
-"However, in my previous life Qi Jue grotto-heaven self-detonated, dealing the two heavens alliance an irrecoverable blow."
-
-From his seat, Wu Shuai set aside his thoughts and instructed, "Go, bring Xiao He Jian in."
+Aware of Xiao He Jian's scheme to borrow his strength, Wu Shuai smiled coldly from his throne: "Bring Xiao He Jian in."
 
 # Chapter 1998: Exploring Qi Jue Grotto-Heaven
 
-Two Immortal Gu Houses faced each other.
+Two rank eight Immortal Gu Houses faced each other in the bluish jade sky of white heaven. One was the majestic, golden Dragon Palace; the other was Clear Jade Dripping Wind Tiny Bamboo Building, delicate yet brimming with vitality.
 
-One was the grand, golden Dragon Palace; the other was Clear Jade Dripping Wind Tiny Bamboo Building, a two-story bamboo structure brimming with vitality and exquisite craftsmanship.
+Inside Dragon Palace, Wu Shuai sat at the main seat. Flanking him were Gu Immortals from the two heavens, including Ice Crystal Immortal Monarch, Lady Cold Ash, Night Heavenly Wolf Lord, and the newly allied miniman expert Xiao He Jian. In the opposing bamboo building, Wu Yong had gathered elites from Wu clan and Luo clan.
 
-"Wu Yong," Wu Shuai called from Dragon Palace. "Let us hold a best-of-three duel—the winner claims the true inheritance, the loser takes the grotto-heaven."
+"Wu Yong," Wu Shuai called out. "Why don't we hold a best-of-three duel? The winner claims Qi Jue's true inheritance, while the loser takes the grotto-heaven."
 
-"Why so cowardly, Wu Shuai?" Wu Yong sneered. "Let the true inheritance go to whoever has the ability to seize it!"
+"Why so cowardly, Wu Shuai?" Wu Yong sneered. "Let the inheritance go to whoever has the skill to seize it!" 
 
-With that, Clear Jade Dripping Wind Tiny Bamboo Building shot like a rainbow into an opening leading into Qi Jue grotto-heaven.
+Wu Yong refused without hesitation. The Southern Alliance was outnumbered in high-end combat strength, and if a duel provoked heaven and earth qi tides, the two heavens' immortals would hold an even greater advantage. Spotting an opportunity, Clear Jade Dripping Wind Tiny Bamboo Building shot like a rainbow into a milky white opening in the grotto-heaven's boundary.
 
-Dragon Palace followed, entering Qi Jue grotto-heaven.
+Wu Shuai observed the openings using the qi path attainment he shared with Fang Yuan's main body. In the five hundred years of Fang Yuan's previous life, Qi Jue grotto-heaven had self-detonated, killing many rank eights and crippling the two heavens alliance. Now, with Dragon Palace protecting them, Wu Shuai had no hesitation and piloted the palace inside.
 
-"Qi Jue grotto-heaven is unique—countless white qi currents weave into tunnels like a giant's intestines, turning the entire grotto-heaven into a maze. We must navigate these tunnels quickly to find the path to the center, where Qi Jue's true inheritance is hidden!" Xiao He Jian explained upon entering.
+Within, surging white qi currents formed countless winding tunnels.
 
-"The closer to the center, the more valuable the monsters—and at the core, the qi harvest fruit has reached rank nine!" Xiao He Jian added.
+"Qi Jue grotto-heaven's interior resembles a giant's intestines, forming a vast maze," Xiao He Jian explained. "The closer to the center, the more valuable the resources. At the very core, the qi harvest fruit has reached rank nine!"
 
-"Stay alert; Clear Jade Dripping Wind Tiny Bamboo Building is much faster than us," Wu Shuai said plainly.
+Wu Shuai chose a route. Soon, a pack of orange-yellow qi monsters shaped like beasts and birds surrounded them. 
 
-He picked a path and navigated Dragon Palace inside.
+"These are luck qi monsters," Xiao He Jian warned. "Without luck path methods, killing them will severely damage our luck."
 
-Ahead appeared an immemorial qi monster—a colossal, pitch-black beast resembling a whale.
+Immortal killer move — Dreamy Light Smoke!
 
-Dragon Palace surged forward and slammed into the immemorial qi monster.
+A gush of dream smoke surged from Dragon Palace, instantly suppressing and capturing every luck qi monster. Xiao He Jian stared in stunned disbelief.
 
-The immemorial qi monster shattered into black hard qi, which Wu Shuai swiftly collected.
+Deeper in the tunnels, a sleeping immemorial qi monster made of hard qi blocked the path like a colossal black whale. Ignoring Xiao He Jian’s advice to take a detour, Dragon Palace surged forward and violently rammed it repeatedly until the beast shattered into lumps of black hard qi. Wu Shuai stored most of the rank eight materials and distributed the rest to his subordinates, winning their loud praises while Ice Crystal Immortal Monarch smugly mocked Xiao He Jian's continued shock.
 
-Clear Jade Dripping Wind Tiny Bamboo Building reached the center. Before Wu Yong could celebrate, his pupils shrank: "Hmph, they were not slow at all."
+Following the trail of dense resources, Dragon Palace swiftly reached the central area.
 
-Behind Clear Jade Dripping Wind Tiny Bamboo Building, Dragon Palace arrived.
+Before Wu Yong could celebrate arriving first, his pupils shrank as Dragon Palace caught up from behind.
 
-Qi Jue grotto-heaven's center was a colossal hollow sphere, interlaced with qi pillars that formed countless tunnels.
+The core of Qi Jue grotto-heaven was a colossal hollow sphere packed with shifting, interlaced qi pillars that formed a shifting beehive. Under Wu Yong's careful control, Tiny Bamboo Building weaved through the gaps, taking sharp turns.
 
-"These qi pillars are rank eight immortal materials—disturbing them will invite trouble," Xiao He Jian warned.
+"These qi pillars are rank eight immortal materials," Xiao He Jian warned hurriedly. "Disturbing them will invite disaster! Earlier, Luo clan's space path expert Luo Ran used this precise terrain to escape my battlefield killer move."
 
-"No need for such trouble." Wu Shuai waved his hand.
+"No need for such trouble," Wu Shuai said dismissively.
 
 With a thunderous roar, the Evil Dragon descended.
 
-The Evil Dragon rampaged forward, shattering qi pillars in its path to forge a way for Dragon Palace.
+Boom boom boom!
+
+The colossal beast rampaged forward, directly shattering every rank eight qi pillar in its path to carve a straight passage for Dragon Palace.
+
+Wu Yong frowned, while Xiao He Jian stood with his mouth agape, utterly dumbstruck.
 
 # Chapter 1999: Qi Jue, Xi
 
@@ -2148,69 +2170,73 @@ With a boom, Demon Judgment Board froze midair. Inside, the shocked immortals fo
 
 # Chapter 2001: Recruiting Qi Sea Ancestor
 
-News of Demon Immortal Qi Jue's revival and his suppression of Heavenly Court, Southern Border, and the two heavens quickly shocked the entire Gu Immortal world.
+News of Demon Immortal Qi Jue's revival and his suppression of Heavenly Court, Southern Border, and the two heavens shocked the Gu Immortal world, sparking widespread fears that past venerables would soon revive as well.
 
-"Have you said enough?" From the head seat, Wu Shuai snorted in displeasure.
+Inside Dragon Palace, tension flared. Variant human Gu Immortals directed their hostility toward Xiao He Jian for leading them into Qi Jue's trap. Xiao He Jian sneered inwardly, recognizing Ice Crystal Immortal Monarch's attempt to suppress his rising influence. As Xiao He Jian stepped forward and bowed to apologize, Wu Shuai cut him off with a cold snort: "Enough, keep quiet. With the Evil Dragon and Dragon Palace, what is there to fear from Demon Immortal Qi Jue? The urgent crisis is the qi harvest fruits in your grotto-heavens."
 
-Wu Shuai cut him off: "Enough, silence. With the Evil Dragon and Dragon Palace, we need not fear Demon Immortal Qi Jue. The urgent issue is the qi harvest fruits inside your grotto-heavens."
+Since Demon Immortal Qi Jue had revived from one, these fruits posed an existential threat. They continuously absorbed heaven and earth qi and could not be forcibly removed. Panic spread through the palace; Ice Crystal Immortal Monarch's grotto-heaven housed the largest fruit, placing him in the greatest peril.
 
-"Demon Immortal Qi Jue revived from a qi harvest fruit—if left unchecked, these mysterious fruits will destroy your grotto-heavens."
+Night Heavenly Wolf Lord's aperture was also afflicted. However, relying on his secret allegiance to Heavenly Court—whose founder, Primordial Origin Immortal Venerable, was a qi path expert—he secretly sent an urgent report requesting their assistance.
 
-His own grotto-heaven was no exception—though small, a qi harvest fruit was growing at terrifying speed.
+Demon Judgment Board had not entered Qi Jue grotto-heaven, so Night Heavenly Wolf Lord's message gave Heavenly Court the full truth. Qin Ding Ling attached immense importance to the crisis, especially since Heavenly Court itself had sprouted a qi harvest fruit.
 
-Night Heavenly Wolf Lord secretly informed Heavenly Court and requested their aid.
+She swiftly convened the immortals. Drawing upon their deep foundations in qi path and heaven path, Heavenly Court deduced the cause: just as five-region earth veins were fusing to generate qi tides, heaven veins were also merging. Grotto-heavens situated along heaven veins bore the brunt, condensing qi harvest fruits from the qi tides' quintessence.
 
-Qin Ding Ling attached great importance to Qi Jue's revival and the crisis in the two heavens, especially since Heavenly Court itself had sprouted a qi harvest fruit.
+"So relocating away from heaven veins will solve the problem?" Qin Ding Ling asked.
 
-She immediately convened the immortals to devise countermeasures.
+"Theoretically, moving them would halt the fruit's growth," an immortal answered.
 
-"So relocating these grotto-heavens away from heaven veins solves the qi harvest fruit problem?" Qin Ding Ling asked.
+Qin Ding Ling frowned deeply: "Placed grotto-heavens are difficult to relocate without specialized methods. Heavenly Court is founded upon Primordial Origin, successive venerables, and countless members' immortal apertures. How could we possibly relocate it?"
 
-Qin Ding Ling frowned: "Placed grotto-heavens are difficult to relocate without specialized methods. Heavenly Court is built on the apertures of Primordial Origin, successive venerables, and countless members. How could we possibly relocate it?"
+A heavy silence fell over the hall until Fang Zheng spoke: "Maybe... Demon Immortal Qi Jue has a method?"
 
-"Maybe... Demon Immortal Qi Jue has a method?" Breaking the silence, Fang Zheng spoke.
+Qin Ding Ling's eyes brightened, but the immortals quickly dismissed the thought. Historical records proved Qi Jue would never cooperate with Heavenly Court.
 
-"According to historical records, Demon Immortal Qi Jue will definitely not cooperate with Heavenly Court. We have a better chance with Qi Sea Ancestor."
+"Rather than Qi Jue, we have a better chance with Qi Sea Ancestor," an immortal suggested. "Duke Long gave him half of Primordial Origin's true inheritance, and he kept his word by sitting out the fate war. His desire to lead Eastern Sea's righteous path conflicts with Fang Yuan's interests, so any past connection is irrelevant."
 
-"Duke Long once gave Qi Sea Ancestor half of Primordial Origin's true inheritance. Qi Sea Ancestor kept his word and skipped the fate war, so cooperation is still possible."
+With the immortal graveyard destroyed and Star Constellation's will absent, Heavenly Court desperately lacked pseudo venerable combat strength to resolve the crisis alone.
 
-"We might even recruit him into Heavenly Court—we desperately lack pseudo venerable battle strength now."
-
-Qin Ding Ling sighed, deciding: "Let's try it then."
+Qin Ding Ling sighed and made her decision: "Let's try it then."
 
 # Chapter 2002: Fragment of Xi
 
-Eastern Sea rank seven Gu Immortal Qing Hui Zi flew through the aurora lights, unleashing immortal killer moves to continuously harvest them.
+In immemorial white heaven, Eastern Sea rank seven Gu Immortal Qing Hui Zi flew through dazzling aurora lights, using immortal killer moves to continuously harvest them. 
+
+Qi tides had temporarily weakened the heavenly wind qi wall, allowing him to enter. After gathering the aurora lights into balls, he stored them in his immortal aperture's cloud soil; watered with lightning water and magnetic sound, they sprouted into flowing light fruits, making him one of their three major sellers in treasure yellow heaven. Even so, he had to monitor the gap in the heavenly wind qi wall below. If it closed, his strength would not suffice to break through, leaving him to perish in immemorial white heaven.
 
 "Xi—!"
 
-Within breaths, tens of li of the surrounding heavenly wind qi wall were sucked into the central whirlpool.
+Suddenly, a terrifying formless force pulled tens of li of the heavenly wind qi wall into a central whirlpool within breaths. When the wall vanished, a concave secluded domain of heaven and earth appeared. Its silhouette swiftly entered the nose of a boyish Gu Immortal.
 
-As the heavenly wind qi wall vanished, a concave secluded domain of heaven and earth was revealed.
+"Demon Immortal Qi Jue!" Qing Hui Zi fell into despair.
 
-Next, the silhouette of this secluded domain of heaven and earth entered the nose of a boyish Gu Immortal.
+Following the recent battle in Qi Jue grotto-heaven, Qi Jue’s terrifying reputation had spread across the world alongside demons like Fang Yuan and Wu Shuai.
 
-"Demon Immortal Qi Jue!" Qing Hui Zi fell into despair. "Why am I so unlucky? I only wanted to collect aurora lights, yet I encountered Demon Immortal Qi Jue!"
+Demon Immortal Qi Jue looked at his smooth, small palm with annoyance. The Evil Dragon’s rampaging movement had forced him to revive prematurely, halting his physical growth and limiting his potential. Fortunately, absorbing this heavenly wind qi wall replenished some of his losses from the earlier battle.
 
-"Junior, come here," Demon Immortal Qi Jue called out to Qing Hui Zi.
+"Junior, come here," Demon Immortal Qi Jue called out.
 
-Smiling lightly, Demon Immortal Qi Jue pointed a finger, sending out an eerie qi current.
+Qing Hui Zi obeyed with a bitter expression. Demon Immortal Qi Jue pointed a finger, sending an eerie qi current toward him. "Don't move!"
 
-After some time, Demon Immortal Qi Jue absorbed the qi currents back from Qing Hui Zi into his body.
+Qing Hui Zi dared not resist, allowing the qi current to permeate his soul. After absorbing the qi currents back into his body, Qi Jue gained vast information regarding the current era. 
 
-"This is truly a wonderful era filled with excitement, interesting!" Demon Immortal Qi Jue marveled with shining eyes.
+"This is truly a wonderful era filled with great excitement, interesting!" Demon Immortal Qi Jue's eyes shone. He then demanded: "Hand over your Gu worms."
 
-Demon Immortal Qi Jue smiled: "Junior, you were smart not to resist. Who do you think I am? Why would I covet your trifling Immortal Gu? Scram now."
+Qing Hui Zi obediently surrendered all his Gu worms. Demon Immortal Qi Jue inspected them, barely glancing at the light path Immortal Gu and focusing instead on novel mortal Gu like soul search Gu before returning the Immortal Gu.
 
-"Hahaha, I searched your soul, why thank me?" Demon Immortal Qi Jue laughed. "Hate me if you want, I don't care. Even though this era is great, without venerables, few people in the world interest me. Though I lack Immortal Gu, I have not sunk so low as to snatch light path Immortal Gu. I want to take some qi path Immortal Gu!"
+Seeing Qing Hui Zi's surprise, Demon Immortal Qi Jue smiled: "Junior, you were smart not to resist. Who do you think I am? Why would I covet your trifling Immortal Gu? Scram."
 
-A thought struck Qing Hui Zi: "Senior, you want to go to qi sea?"
+"Junior will never forget Senior Qi Jue’s magnanimity!" Qing Hui Zi said with immense relief.
 
-"I wonder how powerful Qi Sea Ancestor is. Hehe, I hope his qi path Immortal Gu won't disappoint me." Full of confidence, Demon Immortal Qi Jue headed toward qi sea.
+"Hahaha, I searched your soul, why thank me?" Demon Immortal Qi Jue laughed. "Hate me if you want, I don't care. In the absence of venerables, few people interest me. Though I lack Immortal Gu, I have not sunk to snatching light path Immortal Gu. I want qi path Immortal Gu!"
 
-En route, he stopped at the turbulent flow sea area. After inspecting it closely, Demon Immortal Qi Jue rejoiced: "Wonderful, wonderful! This sea area must hold a fragment of Xi, which is why it creates such turbulent currents."
+Qing Hui Zi blurted: "Senior, you want to go to qi sea?"
 
-"I'll retrieve and absorb this fragment before finding Qi Sea Ancestor."
+Qi Jue waved his sleeve impatiently, sending Qing Hui Zi flying through the air in qi currents. He then flew openly toward qi sea with soaring confidence, eager to see if Qi Sea Ancestor's qi path Immortal Gu would satisfy him.
+
+En route across Eastern Sea, Demon Immortal Qi Jue felt a sudden tremor within his secluded domain of heaven and earth. Turning southwest, he arrived at a sea area shrouded in white clouds with calm waters concealing chaotic, unpatterned currents—the turbulent flow sea area.
+
+"Wonderful!" Qi Jue rejoiced after inspecting it. "This sea area holds a fragment of Xi, which is why it creates such turbulent currents. I will retrieve and absorb this fragment before finding Qi Sea Ancestor."
 
 Demon Immortal Qi Jue plunged into the sea, vanishing from sight.
 
@@ -2628,63 +2654,59 @@ Though sealed within Divine Bean Palace's painting, Fang Di Chang retained parti
 
 # Chapter 2011: Divine Bean Soldier Calamity
 
-Inside the painting, Fang Di Chang waved his hand, scattering a large amount of white sand.
-
-Expending his rank eight milk sand, Fang Di Chang fertilized the barren land until green bean sprouts broke through.
-
-The beans rapidly grew into divine bean soldiers standing in silent rows, awaiting Fang Di Chang's orders.
+Inside the painting in Divine Emperor City, Fang Di Chang scattered rank eight milk sand, which melted into puddles of milk that seeped underground. He then tossed in a snow path immortal material, which Divine Emperor City digested into broken lightning rays that stimulated the tender bean sprouts. After three days and three nights of exhausting his final immortal materials, silent rows of divine bean soldiers stood ready like statues.
 
 Fang Di Chang sighed: "This is the last batch of divine bean soldiers. My immortal materials are basically all spent."
 
-Unable to contact his main body, Fang Di Chang relied on his partial authority over Divine Bean Palace to keep Genesis Lotus' will at bay.
+As Fang Yuan's clone, Fang Di Chang had been trapped in the painting ever since Genesis Lotus' will schemed against him. Unable to contact his main body or access treasure yellow heaven, he relied on his partial authority over Divine Bean Palace to borrow its power and mass-produce soldiers for self-rescue.
 
-"It is time. Move out, invade, and seize control of all the paintings!" Fang Di Chang commanded without hesitation, and the divine bean soldier army set out.
+"It is time. Move out, invade, and seize control of all the paintings!" Fang Di Chang commanded without hesitation.
 
-Splitting into countless divisions, they moved toward the painting's edge to invade other painting worlds.
+The army split into countless divisions, invading neighboring painting worlds. In an autumn farmland outside Emperor City, over three hundred divine bean soldiers charged in and slaughtered the harvesting farmers. In a scenic spring painting, Gu Master guards and scholars initially resisted a small scout group, only to be overwhelmed and crushed when a thousand divine bean soldiers arrived.
 
-Inside the painting, these desolate-beast-level soldiers were constrained by rules minimizing the gap between immortal and mortal.
+Each divine bean soldier possessed desolate-beast-level strength, but within the painting worlds, strict rules minimized the gap between immortal and mortal. Transported randomly, some divisions were annihilated by local Gu Masters, while others conquered smoothly.
 
-"Divine Bean Palace's paintings connect to Emperor City's paintings. Although I am sealed here, my divine bean soldiers share the same origin as Divine Emperor City, so they can mobilize."
+Fang Di Chang smiled in satisfaction. Divine Bean Palace's paintings connected directly with Emperor City's paintings. Because these soldiers shared the origin of Divine Emperor City, they could traverse the worlds. The more painting worlds they conquered, the greater his control over Divine Emperor City would grow, eventually allowing him to suppress Genesis Lotus' will and claim ownership.
 
-"Occupying more painting worlds grants me greater control over Divine Emperor City. Eventually, I can suppress Genesis Lotus' will and claim ownership!"
+This massive invasion prompted Heavenly Court's Gu Immortal seeds within the painting to gather. Sun Yao grieved for the slaughtered mortals, while Tang Ru Qi and Ying Sheng Ji wondered if this was a test. Wei Wu Shang analyzed that these were wood path soldiers from Divine Bean Palace, previously deployed by Western Desert against Central Continent's ten great ancient sects.
 
-Fang Di Chang's massive move prompted Heavenly Court's Gu Immortal seeds in the painting world to gather and deliberate.
+Xiao Qi Xing then arrived. Having advanced into a junior officer within the painting's military faction, he possessed the greatest progress among them.
 
-Xiao Qi Xing said: "The higher-ups ordered their extermination. I am leading troops and need your assistance. We will cooperate to kill them. There will definitely be rewards after the battle."
+"The higher-ups have ordered the army to exterminate these divine bean soldiers," Xiao Qi Xing announced. "I am leading troops and need assistance. Cooperate with me, and there will definitely be rewards after the battle."
 
-Soon, these Gu Immortals agreed and temporarily joined Xiao Qi Xing as subordinates.
+Chen Da Jiang, Sun Yao, and Zhao Shu Ye agreed, temporarily joining as his subordinates.
 
-Pleased and proud with this surge in manpower, Xiao Qi Xing laughed heartily: "Move out! Let us kill these divine bean soldiers."
+Pleased with his surge in manpower, Xiao Qi Xing laughed heartily: "Move out! Let us kill these divine bean soldiers."
 
 # Chapter 2012: Fang Di Chang's Death
 
-In the vast plaza, Xiao Qi Xing led a large force facing a detachment of divine bean soldiers.
+In Divine Emperor City's painting world, Xiao Qi Xing led a detachment facing a large group of divine bean soldiers. When Sun Yuan Hua asked how to fight them, Xiao Qi Xing smiled and released over five hundred Gu worms from his aperture.
 
-After defeating the defenders, the troops regrouped and battled their way toward Fang Di Chang.
+"Soldier Gu, sergeant Gu, lieutenant Gu?" Gu Ting observed, while Wei Wu Shang noted Xiao Qi Xing's rapid accumulation in the military camp.
 
-Though greatly weakened in this painting world, Fang Di Chang still retained a contingent of divine bean soldiers around him.
+Activating arrow formation Gu, Xiao Qi Xing ordered his troops into an arrow formation. His disciplined soldiers clashed head-on with the disordered divine bean soldiers, quickly gaining dominance until the yellow bean divine soldiers were completely wiped out.
 
-"He is Fang clan's Gu Immortal Fang Di Chang, who once refined Divine Bean Palace."
+Advancing through the paintings into the city's flourishing streets, they found divine bean soldiers slaughtering the populace. The Gu Immortal seeds stepped forward to demonstrate their progress. Ying Sheng Ji released doctor Gu to treat the wounded. Chen Da Jiang led officer Gu with a long sword and steel chains. Wei Wu Shang slipped fluidly through the battlefield using thief Gu. Sun Yao fielded dancer Gu whose fluttering sleeves weakened the enemy, reinforcing allies with her human path killer move, Joy in Helping People. Hidden among the local militia, Ye Fan and Hong Yi fought discreetly, wary of exposing their identities to Heavenly Court despite their superior progress.
 
-"Strange, why didn't Heavenly Court kill Fang Di Chang directly? Is this a test for us, or must we deal with him under the painting world's rules?"
+Through continuous clashes, the defenders discerned the soldiers' properties: yellow bean soldiers served as cannon fodder, green bean soldiers fired arrows, red bean soldiers self-detonated, and black bean soldiers possessed the highest defense.
 
-The painting world's Gu Masters charged at Fang Di Chang.
+At Divine Emperor City's outer walls, an ocean of divine bean soldiers surged forward like swarming ants. Xiao Qi Xing allied with the local warriors, mounting a desperate defense. For three days and three nights, the battlefield turned into a meat grinder before the horde was finally eradicated.
 
-"A bunch of trash." Fang Di Chang calmly commanded the divine bean soldiers, coordinating their formations with seamless precision.
+While clearing the field, the survivors discovered a path leading out of Divine Emperor City toward the enemy base. Following it, they confronted Fang clan's Gu Immortal, Fang Di Chang, who had once refined Divine Bean Palace. Though greatly weakened within the painting world, he was flanked by an elite detachment of divine bean soldiers.
 
-Suddenly coughing up blood, Fang Di Chang looked skyward and laughed coldly: "Genesis Lotus' will, you couldn't hold back after all."
+The Central Continent elites murmured among themselves, wondering whether Heavenly Court had spared Fang Di Chang as a test for them, or if the painting world's rules restricted direct intervention. Sensing an unprecedented opportunity, the cry spread through the ranks: "Slaughter the immortal!"
 
-Suppressed by Genesis Lotus' will, Fang Di Chang's command over the divine bean soldiers faltered.
+The painting world's Gu Masters charged in fury. Standing calmly at the center, Fang Di Chang commanded his soldiers. His formations shifted like flowing water, effortlessly cutting down the attackers. Even when Xiao Qi Xing's group joined the fray alongside Ye Fan and Hong Yi, Fang Di Chang's wisdom path coordination inflicted overwhelming casualties while suffering negligible losses.
 
-Fang Di Chang's divine bean soldiers steadily fell until none remained.
+Just as the elites contemplated retreat, Fang Di Chang's body shuddered violently. Coughing up a mouthful of blood, he glared skyward and sneered: "Genesis Lotus' will, you couldn't endure it and took action after all."
 
-Forced to fight personally, Fang Di Chang rampaged through the army unopposed.
+Suppressed by Genesis Lotus' will, Fang Di Chang's command faltered. Xiao Qi Xing's forces seized the opening, annihilating the remaining divine bean soldiers. Forced to fight personally, Fang Di Chang rampaged through the army, slaying scores before his injuries rapidly mounted.
 
-"To think that I, Fang Di Chang, would die in such a place!" Fang Di Chang shouted in grief before resolutely self-detonating.
+Soaked in blood and staggering, Fang Di Chang roared in anguish: "To think that I, Fang Di Chang, would actually die in such a place!"
 
-The surrounding Gu Masters were annihilated without leaving intact corpses.
+With resolute decisiveness, he self-detonated. The explosion obliterated the surrounding Gu Masters into fine ash.
 
-Xiao Qi Xing's group flushed with excitement: "We killed an immortal! We succeeded in slaughtering an immortal!"
+As the surviving Gu Masters wept in relief, Xiao Qi Xing and the Central Continent seeds flushed with wild ecstasy: "We killed an immortal! We succeeded in slaughtering an immortal!"
 
 # Chapter 2013: Survival Through Death
 
@@ -2904,11 +2926,11 @@ Simultaneously, the giant beast opened its mouth and shot out its long purple-re
 
 The tongue pierced a Mo clan Gu Immortal at astonishing speed. Almost instantly, the potent poison corroded the immortal into nothingness.
 
-"A legendary immemorial beast?!" The surviving Mo clan Gu Immortal retreated in horrified panic.
-
-The beast was Qing Chou; dense ghost qi surged around it, forming figures that slaughtered the remaining immortal.
+"A legendary immemorial beast?!" The surviving Mo clan Gu Immortal retreated in horrified panic, crying in terror: "Spare me! I belong to Mo clan—spare me and Mo clan won't pursue you!"
 
 "Pursue me?" Anger flashed across Qing Chou's face: "You two idiots don't even know you're being used. Die!"
+
+The beast was Qing Chou; dense ghost qi surged around it, forming figures that pounced and slaughtered the remaining immortal.
 
 With the monster driven off, Qing Chou's ghost qi intensified. Looking toward the sky, it sneered: "Two despicable worms, are you still not coming out?"
 
@@ -3366,6 +3388,8 @@ Yet Lightning Gu restrained its power and approached slowly, rumbling: "Don't wo
 
 Myriad Gold Wondrous Essence stopped crying and asked curiously: "Lightning Gu, you are so strong, how can we possibly help you?"
 
+Lightning Gu replied: "I have been trapped here for so long. Immemorial blue heaven is vast, but I am sick of it. Unable to find a way out, I grew angry. Anger breeds hatred, which drew hatred Gu here."
+
 "Yet through your brother, I can see the exit. Let us cooperate, humans. I will break the heavenly wind qi wall if you bring me out. Deal?" Lightning Gu proposed.
 
 "I agree. Your help will be immense," Blazing Glory Lightning Brilliance replied.
@@ -3656,6 +3680,8 @@ Fairy Zi Wei nodded: "According to my deductions, he is indeed in Heavenly Court
 
 Bing Sai Chuan frowned: "How could he remain undetected by Heavenly Court all this time?"
 
+Fairy Zi Wei's eyes gleamed: "I only deduced his current presence in Heavenly Court; he may not have been there the whole time. Yet that demon's methods are unfathomable, and his strength grows explosively with every battle."
+
 Old Man Zheng Yuan urged: "Regardless, we must report this crucial information to master!"
 
 Fairy Zi Wei replied: "I already reported it to master when storing the formation away."
@@ -3685,6 +3711,8 @@ Wu Shuai smiled coldly: "I have crucial news: Qi Sea Ancestor is not in Eastern 
 He continued: "The solution is simple. Since Qi Sea Ancestor went to Heavenly Court, we shall attack Heavenly Court and kill him there!"
 
 Wu Shuai chuckled: "Your grotto-heavens suffer from qi harvest fruits; why wouldn't Heavenly Court, a grotto-heaven in white heaven, face the exact same problem?"
+
+"Lord Alliance Leader is wise!" Ice Crystal Immortal Monarch realized. "Heavenly Court invited Qi Sea Ancestor because despite having a qi path inheritance, they lack a qi path Gu Immortal!"
 
 "Precisely." Wu Shuai praised him: "Heavenly Court is at its weakest, and Qi Sea Ancestor has gone to resolve their qi harvest fruit. Striking them off-guard during this period will yield astonishing results!"
 
@@ -5282,41 +5310,45 @@ Facing death, Fang Yuan smiled: "You fell for my trap, Spectral Soul."
 
 # Chapter 2047: Carelessness
 
-Fairy Zi Wei and the others arrived to an endless swarm of black bats.
+Fairy Zi Wei and the others arrived only to be met by an endless sea of black bats. In this layer of the underground abyss, black bats were the sole rulers. Immemorial black bats commanded ancient black bats, ancient black bats commanded desolate beasts, and desolate beasts controlled the countless ordinary bats. The enraged swarm vented its boundless fury upon the arriving Shadow Sect, Longevity Heaven, and Heavenly Court.
 
-The enraged bat swarm vented its fury upon Shadow Sect, Longevity Heaven, and Heavenly Court the moment they arrived.
+Although these rank eight Gu Immortals quickly carved a path through the swarm, Myriad Year Flying Warship, Spectral Soul, Qing Chou, Qi Sea Ancestor, and Demon Immortal Qi Jue had completely vanished.
 
-By the time the immortals broke through the bats, the warship, Spectral Soul, Qing Chou, and the others had vanished.
+Calamity Luck Altar burst with golden radiance, melting the surrounding bats. From within, Bing Sai Chuan demanded impatiently: "Fairy Zi Wei, where is Fang Yuan?"
 
-"Hmph, just watch." Fairy Zi Wei activated her killer move, rapidly deducing.
+Old Man Zheng Yuan snorted coldly, while Qin Ding Ling sneered, accusing Shadow Sect of deliberately stalling to disrupt them.
 
-Paling and shivering as immortal essence drained rapidly, Fairy Zi Wei finally opened eyes filled with purple light.
+"We have lost contact with master," Fairy Zi Wei frowned deeply. "Another force has intervened. If we fight among ourselves, this external force will succeed."
 
-Under their watchful eyes, she exhaled: "A battlefield killer move has enveloped them all, hiding them from our senses."
+Purple-gold aurora radiated from Fairy Zi Wei as she activated a wisdom path killer move, rapidly deducing. As her immortal essence drained, her body shivered and paled until she finally opened eyes filled with purple light: "A battlefield killer move has enveloped all of them, concealing them from our senses."
 
-Parting the bats, Fairy Zi Wei directed the immortals toward a dissipating trace of earth path aura.
+Parting the bats, Fairy Zi Wei directed the immortals toward a faint, dissipating trace of earth path aura. A Heavenly Court Gu Immortal attempted to trace it, but returned empty-handed before the aura completely vanished.
 
-Her mood heavy, Fairy Zi Wei fended off the black bats and asked: "Heavenly Court, you should be most familiar with this earth path aura. What do you think?"
+"Heavenly Court, you should be most familiar with this earth path aura. What do you think?" Fairy Zi Wei asked with a heavy expression.
 
-Qin Ding Ling paused briefly before saying: "Indeed, this resembles Paradise Earth Immortal Venerable's method. Our goal is aligned: find this immortal battlefield and destroy it!"
+Qin Ding Ling fell silent for a moment before replying: "Indeed, this resembles Paradise Earth Immortal Venerable's method. Our goal is aligned: find this immortal battlefield and destroy it!"
 
-Qin Ding Ling agreed: "We pursued Fang Yuan, but he was actually leading us here. Throughout the chase, this route was planned by him. Or rather, which force under Paradise Earth is it?"
+Among the venerables throughout history, Paradise Earth Immortal Venerable was publicly recognized as the foremost expert in battlefield killer moves; the Reincarnation Battlefield he created still stood in Central Continent. Furthermore, Paradise Earth had devoted his life to pacifying the world and suppressing the demonic path, standing directly opposed to Spectral Soul Demon Venerable's slaughter.
 
-At the same time, in the earth path battlefield.
+"It must be Fang Yuan's doing," Fairy Zi Wei said with certainty. Fang Yuan had repeatedly turned situations around; this escape route had surely been planned to lure Spectral Soul into an ambush.
 
-Spectral Soul surveyed the surrounding sand, ice-cold: "So you are Lu Wei Yin, the current inheritor of Paradise Earth?"
+Yet Paradise Earth had aided countless forces without establishing a single centralized organization, leaving behind various inheritances—such as Southern Border's Mushroomman Paradise led by Lu Wei Yin, from whom Fairy Zi Wei had once borrowed benevolence Gu. Had Paradise Earth's inheritor truly allied with a demon like Fang Yuan?
 
-Standing atop a yellow cloud, a Gu Immortal cupped his fists: "Lord Demon Venerable is perceptive; I have waited here for a long time."
+Meanwhile, inside the earth path battlefield, boundless yellow sand stretched in all directions.
 
-Beside them, Fang Yuan urged: "Lu Wei Yin, I lured him here. Don't expect me to act now, show your sincerity... urgh!"
+Spectral Soul surveyed the surroundings, his tone freezing cold: "Good, very good. So you are Lu Wei Yin, the current generation inheritor of Paradise Earth?"
 
-Fang Yuan suddenly stopped speaking as he retreated rapidly.
+Standing atop a yellow cloud, a Gu Immortal cupped his fists: "Lord Demon Venerable is perceptive. I have waited here for a long time."
+
+Beside them, Fang Yuan urged: "Lu Wei Yin, I lured him here already. Don't expect me to act now, show your sincerity... urgh!"
+
+Fang Yuan abruptly choked off, retreating at top speed.
 
 It was too late!
 
-Instantly, Spectral Soul appeared before him using an unknown method.
+Spectral Soul appeared directly in front of him using an unknown method.
 
-"Fang Yuan, you are too careless. A pity you got this far, but die now!" Spectral Soul reached out and grabbed Fang Yuan's neck.
+"Fang Yuan, you are too careless. A pity you got this far, but go and die now!" Spectral Soul thrust his arm out and seized Fang Yuan by the neck.
 
 Fang Yuan's eyes widened; he could not break free!
 
@@ -5892,7 +5924,9 @@ Clad in a black robe, young Ming You from Southern Border stood proudly in the s
 
 "Qing clan, as a Western Desert super force, how long will you hide?" Ming You taunted. "Are you just going to watch your clan get slaughtered? Hehehe, the Qing clan is nothing special after all!"
 
-"No, this isn't solely Ming You's doing. Don't you find it suspicious that news of Divine Bean Palace leaked?"
+"To think our second supreme elder would die at his hands, this is truly unbelievable."
+
+"No, this isn't solely Ming You're doing. Don't you find it suspicious that news of Divine Bean Palace leaked?"
 
 With a purplish complexion and weak aura, Qing clan's first supreme elder struggled to sit up: "Ming You has likely colluded with other forces against us. Demonic Gu Immortals attacked all our giant resource points recently. Dispatching our Immortal Gu Houses to defend them has left our headquarters completely vulnerable... cough, cough."
 
@@ -6106,43 +6140,41 @@ Lu Wei Yin nodded: "Fang Yuan, now that we killed Spectral Soul, you know my sin
 
 "What?" Hearing this for the first time, Wu Shuai was stupefied.
 
-While Wu Shuai was shocked, Fang Yuan remained completely expressionless.
+Paradise Earth Immortal Venerable was renowned for benevolence, spending his life cleaning up Spectral Soul's mess without using a single offensive method. Meanwhile, Fang Yuan slaughtered without hesitation, destroying fate Gu and plundering everywhere. Now that Spectral Soul was dead, Fang Yuan was the undisputed number one demon in the world. Did Paradise Earth want to reform him into a kind person?
 
-He had already heard such words before speaking with Lu Wei Yin.
+Fang Yuan remained expressionless. Back on the Red Lotus stone island, Paradise Earth had told Red Lotus's will that he wanted to take Fang Yuan as his inheritor, even moving regret Gu to the blue dragon whale.
 
-"Ever since rebirth, I obtained many venerable true inheritances. Past venerables invested in me, using me as a tool to destroy fate Gu."
+In the recent battle, Fang Yuan had teetered on the brink of death. Externally, Spectral Soul had pursued him to reclaim sovereign immortal fetus Gu and the dream realms, while internally, Red Lotus's three thousand heaven path dao marks suppressed him completely. When Spectral Soul unleashed the killer move eat heart, Fang Yuan had only survived by feigning strength and tricking Demon Immortal Qi Jue into betraying Spectral Soul. Yet at his most vulnerable moment, Paradise Earth had reached out.
 
-"I thought Paradise Earth Immortal Venerable shared that goal, but he had far deeper intentions."
+Surrounded by brown soil, Flying Earth sped through the grand earth vein.
 
-"The Prophecy of Three Venerables names Great Dream Immortal Venerable as the next venerable. Does Paradise Earth Immortal Venerable think I can become Great Dream Immortal Venerable?" Fang Yuan probed, breaking the silence.
+"The Prophecy of Three Venerables names Great Dream Immortal Venerable as the next venerable," Fang Yuan probed, breaking the silence. "Does Paradise Earth Immortal Venerable think I have the capability to become Great Dream Immortal Venerable?"
 
-Lu Wei Yin replied: "The Prophecy of Three Venerables is widely known, but with fate Gu destroyed, the future is uncertain. Great Dream Immortal Venerable may emerge, or perhaps not, right?"
+Lu Wei Yin replied: "With fate Gu destroyed, the future is uncertain. Great Dream Immortal Venerable may or may not emerge. Once you visit Mushroomman Paradise and inherit Paradise Earth's true meaning, you will understand everything."
 
-"No need to say more, Fang Yuan. Once you visit Mushroomman Paradise and inherit Paradise Earth's true meaning, you will understand everything. I will welcome you enthusiastically."
+Lu Wei Yin remained cautious. Earlier, he had saved Wu Shuai and Qi Sea Ancestor during Spectral Soul's self-detonation to demonstrate goodwill, and his ability to steer Flying Earth preserved his value. Had he shown weakness or fainted, Fang Yuan would have struck him down and soul-searched him without hesitation.
 
-Eventually, Fang Yuan chose to leave mid-journey.
+Pestered by the myriad tribulation and restrained by heaven path dao marks, resolving his internal crisis was Fang Yuan's top priority. He chose to leave mid-journey.
 
-Pestered by the myriad tribulation, resolving it was his top priority!
+Lu Wei Yin warned with deep sincerity: "Fang Yuan, all the venerables want you dead. Time is short, and our circumstances are more perilous than during the fate war. If we delay, a terrible death awaits us. Please visit Mushroomman Paradise as soon as possible."
 
-Before departing, Lu Wei Yin spoke with great sincerity: "Fang Yuan, you know the situation. All the venerables want you dead, and this is not your only predicament. Time is short, and our circumstances are more perilous than during the fate war. If we delay, a terrible death awaits us. Please visit Mushroomman Paradise as soon as possible."
+Fang Yuan took Wu Shuai and departed. An hour later, they emerged on the surface in a desolate desert.
 
-Fang Yuan nodded, bringing Wu Shuai and leaving.
+Wu Shuai smiled: "Helping us will draw immense pressure on Lu Wei Yin from Southern Border's righteous path, especially Wu Yong." He then asked, "Was Lu Wei Yin merely trying to scare us before leaving?"
 
-The two immortals ascended from the earth vein, reaching a surface desert an hour later.
+Fang Yuan shook his head with a solemn expression. "Let's go and recuperate; we truly have no time left!"
 
-Wu Shuai smiled: "Lu Wei Yin will face trouble. Helping us as a variant human leader will draw immense pressure from Southern Border's righteous path."
+Deep inside the earth vein, yellow currents rumbled like a surging river.
 
-Fang Yuan nodded: "Indeed. Wu Yong won't miss this opportunity, but given Lu Wei Yin's political skill, he surely has a solution."
+"That demon Fang Yuan really escaped!" Inside Heavenly Court's Immortal Gu House, Qin Ding Ling glared with clenched fists.
 
-"Let's go and recuperate; we truly have no time left!" Fang Yuan said.
+Within Calamity Luck Altar, Bing Sai Chuan sighed in disbelief. Spectral Soul had perished, yet Fang Yuan fled with the help of Lu Wei Yin, Paradise Earth's inheritor.
 
-Earth vein.
+The non-earth path Immortal Gu Houses suffered continuous erosion from the earth qi, with hundreds of Gu worms breaking and requiring replacement. Seeing the vast earth path materials in the Earth Abyss that would soon enrich Ancient Soul Sect, the exhausted Heavenly Court immortals secretly wished to retreat. Flying Earth was long gone.
 
-"That demon Fang Yuan really escaped!" Inside Heavenly Court's Immortal Gu House, Qin Ding Ling glared furiously, gritting her teeth and clenching her fists.
+Qin Ding Ling suppressed her frustration. Spectral Soul had failed to kill Fang Yuan and instead died by his hands; her trepidation toward this demon multiplied.
 
-Inside Calamity Luck Altar, Bing Sai Chuan sighed as well—who could have expected Spectral Soul to perish while Fang Yuan escaped with the help of Lu Wei Yin?
-
-"Wait, where are the Shadow Sect members?"
+Suddenly, her expression shifted: "Wait, where are the Shadow Sect members?"
 
 # Chapter 2060: Bai Ning Bing Versus Fang Zheng
 
@@ -6646,67 +6678,55 @@ Deeply moved, Wu Ba Chong knelt and swore with a trembling voice: "This subordin
 
 # Chapter 2067: Seven-Seven Profound Soul Bird
 
-"Wu Ba Chong, get up quickly." Wu Yong's laughter resounded in the hall.
+"Wu Ba Chong, get up quickly." Wu Yong's laughter resounded in the hall as a formless wind lifted Wu Ba Chong firmly and gently.
+
+"With your help, I will have nothing to worry about." Wu Yong smiled.
+
+"I am ashamed," Wu Ba Chong bowed deeply, pledging his wholehearted allegiance. Seeing Wu Yong's brilliant leadership—recovering lost clan territories, commanding the Southern Alliance during the fate war by sacrificing his own wind path dao marks with unlimited wind, and surpassing even his late mother Wu Du Xiu—Wu Ba Chong felt honored to follow him.
 
 With a soft whistle, an information path Immortal Gu flew into the hall and landed in Wu Yong's hand.
 
-Wu Yong probed it with divine sense, instantly learning its contents.
+Wu Yong probed it with divine sense, immediately learning its contents. He handed the Gu to Wu Ba Chong: "Good news keeps coming, take a look."
 
-Wu Yong soon smiled: "Good news keeps coming, take a look."
+Inspecting the Gu, Wu Ba Chong was thrilled. Wu Yong's scheme had succeeded: the Fierce Gorge Seven Ghosts had been lured into their formation.
 
-Inspecting the Gu, Wu Ba Chong realized Wu Yong's scheme had succeeded: the Fierce Gorge Seven Ghosts had been lured into the formation.
+The Fierce Gorge Seven Ghosts were a notorious seven-member demonic faction in Southern Border whose inheritance originated from Spectral Soul Demon Venerable. As long as a single ghost survived, the inheritance endured and new members were recruited. Wu Du Xiu had personally slain over ten members in her life but failed to eradicate them completely, citing it as one of her three great regrets. Now, all seven had walked into Wu clan's trap.
 
-The Fierce Gorge Seven Ghosts were a notorious seven-member demonic faction in Southern Border. Every generation brought chaos and heavy losses to the righteous path.
+Wu Yong took back the Immortal Gu and walked outside while instructing: "The Fierce Gorge Seven Ghosts are a scourge Wu clan must eliminate, lest they drag us down in the future. To ensure success, I will handle this personally."
 
-Now, however, the entire Fierce Gorge Seven Ghosts had fallen into Wu Yong's trap.
+Wu Ba Chong asked to participate, but Wu Yong refused: "A lion uses its full strength even when hunting a rabbit. I will take Clear Jade Dripping Wind Tiny Bamboo Building. Guard the headquarters while I am gone."
 
-Retrieving the Immortal Gu, Wu Yong walked out while instructing: "The Fierce Gorge Seven Ghosts are a scourge Wu clan must eliminate, lest they drag us down in the future. To ensure success, I will handle this personally."
+Under Wu Ba Chong's respectful gaze, Wu Yong soared into the sky.
 
-Wu Yong instructed: "I will take Clear Jade Dripping Wind Tiny Bamboo Building. Guard the headquarters while I am gone."
+Flying northeast toward the intersection of Red Dragon River and Yellow Dragon River, Corpse Emperor Yu Ding Tian soon came into view. This thousands of feet tall corpse mountain had formed upon the remains of a rank eight immortal zombie, producing transformation path zombie Gu and qi path zombie qi Gu. The recent qi tides sweeping the five regions had exposed a rank eight Corpse Emperor true inheritance here, which Wu Yong had used as bait.
 
-Under his respectful gaze, Wu Yong soared into the sky and vanished beyond the horizon.
+At the mountain peak, an intense battle was raging.
 
-After some time, a corpse mountain was already in his sight.
+"Cardinal directional wind formation! Too bad our Fierce Gorge Seven Ghosts know your Wu clan well—this formation cannot trap us! Once it breaks, Wu Zhen, you are dead!"
 
-At Corpse Emperor Yu Ding Tian, Wu clan's trap had successfully ensnared the ghosts. Wu Yong had laid traps accordingly, and now all seven ghosts were ensnared, waiting to be captured.
+The Fierce Gorge Seven Ghosts assaulted the wind formation from all four directions. Controlling the formation from outside, rank seven Gu Immortal Wu Zhen was already covered in wounds.
 
-An intense battle had been raging at the mountain's peak.
+Suddenly, Wu Zhen received Wu Yong's voice transmission. His face brightened and he altered the formation. A gentle breeze blew inside, condensing into Wu Yong.
 
-"Cardinal directional wind formation! Too bad our Fierce Gorge Seven Ghosts know your Wu clan well—this formation cannot trap us!"
-
-The Fierce Gorge Seven Ghosts assaulted the wind formation in all four directions.
-
-Controlling the formation from outside, Wu Zhen was already covered in wounds.
-
-Upon receiving Wu Yong's voice transmission, his expression brightened and he activated his methods.
-
-The wind formation shifted instantly as a gentle breeze blew in, condensing into Wu Yong.
-
-The Fierce Gorge Seven Ghosts charged Wu Yong while secretly conferring on how to break through.
+"Wu Yong! It was a trap!" The ghosts were shaken. Wu Yong was an expert publicly acknowledged across the five regions to be just beneath pseudo venerable level. Stimulating their ferocity, the seven charged him to force a breakthrough.
 
 Watching them charge, Wu Yong sneered: "Cowards putting on a brave front—you are nothing much."
 
-Winds roared and snow started pouring down like a blizzard!
+He activated his new killer move from closed cultivation: Snowy Wind of No Return!
 
-Three ghosts were frozen solid, and within two breaths, two froze to death.
+Roaring winds and freezing snow poured down like a blizzard. Three ghosts were frozen solid; within two breaths, two of them froze to death.
 
-This was Wu Yong's newly created killer move from secluded cultivation—Snowy Wind of No Return.
+"Cowards, you are not qualified to be my enemies." Wu Yong unleashed another new creation: Willow Wind!
 
-Green leaves sprouted from the remaining ghosts' bodies as branches grew rapidly.
+Green leaves and branches rapidly sprouted from the remaining five ghosts. They screamed miserably as their lifeforce was completely seized, lush willow branches bursting out of their corpses.
 
-The remaining five screamed miserably as their lifeforce was seized, lush willow branches bursting from their corpses.
+As the seven ghosts perished, their souls flew out and merged into an immemorial soul beast. The creature was pitch-black and possessed seven heads.
 
-It was another creation of Wu Yong — Willow Wind!
+Wu Yong's eyes lit up: "So it is the Seven Ghosts true inheritance—Spectral Soul's incomplete attempt to create an immemorial soul beast, the Seven-Seven Profound Soul Bird. Jade Building, strike!"
 
-As the seven ghosts died, their souls merged into an immemorial soul beast.
+Wu Yong waved his hand, sending Clear Jade Dripping Wind Tiny Bamboo Building crashing down like a green meteor.
 
-The soul beast resembled a bird, pitch-black with seven heads.
-
-Wu Yong's eyes lit up: "Spectral Soul's incomplete immemorial soul beast—Seven-Seven Profound Soul Bird. Jade Building, strike!"
-
-With a wave of Wu Yong's hand, Clear Jade Dripping Wind Tiny Bamboo Building crashed into the bird like a green meteor.
-
-With its fragmented consciousness, the soul bird was quickly suppressed by Clear Jade Dripping Wind Tiny Bamboo Building.
+Its consciousness alternating between clarity and chaos, the soul bird struggled fiercely but was swiftly suppressed by the Immortal Gu House.
 
 "Lu Wei Yin, I should not have trusted you!" the seven-seven profound soul bird shrieked indignantly before falling unconscious.
 
@@ -6790,37 +6810,33 @@ The immortals turned deathly pale as complete silence fell.
 
 # Chapter 2069: Eastern Sea's Alliance Army
 
-Confronted by the overbearing Fang Yuan, the variant human immortals hesitated, hoping someone else would speak up.
+Faced with the overbearing Fang Yuan, the variant human immortals hesitated, their gazes flickering as they hoped someone else would speak up. Fang Yuan was the number one demon in the world; he had destroyed Fate Gu, defeated Heavenly Court, and recently killed Spectral Soul. No one dared resist him, yet no one was willing to surrender their grotto-heaven headquarters either.
 
-None dared resist Fang Yuan, yet none surrendered their headquarters either.
-
-Crucially, without surrender, unchecked qi harvest fruits would destroy their grotto-heavens.
+Their grotto-heavens were their ancestral sacred lands. Moreover, Fang Yuan was notorious for ruthlessly abandoning his subordinates. Crucially, however, unchecked qi harvest fruits would soon destroy their grotto-heavens without his help. The human members among them felt even greater regret—had they known, they would have followed Night Heavenly Wolf Lord's example and defected to Heavenly Court.
 
 "Have you decided? My patience is limited," Fang Yuan gave his ultimatum indifferently.
 
-Buckling under the pressure, Golden Fur Immortal Monarch gritted his teeth and agreed to offer his immortal aperture to Fang Yuan.
+Buckling under the suffocating pressure, Golden Fur Immortal Monarch gritted his teeth and agreed to offer his immortal aperture. As a rank eight hairy man Gu Immortal, he knew Fang Yuan had annexed Lang Ya blessed land without throwing its hairy men into slaughter. He gambled on receiving similar treatment due to their refinement value.
 
-A rank eight hairy man Gu Immortal, Golden Fur Immortal Monarch had his reasons for this.
+Golden Fur's concession breached the dam, but just as others wavered, defensive alarms blared—a massive army of Eastern Sea Gu Immortals was approaching with over ten Immortal Gu Houses! Eastern Sea possessed abundant resources and the highest number of Immortal Gu Houses among the five regions, though only one rank eight house was present: Hua clan's Green Cloud Spark Warship. Furthermore, the first supreme elders of Shen clan, Tang clan, and Xie clan had arrived in person.
 
-Knowing Fang Yuan had annexed Lang Ya blessed land without throwing its hairy man immortals into battle, Golden Fur Immortal Monarch surrendered in hopes of similar treatment.
+Relieved by the distraction, the immortals exhaled. Wu Shuai glanced at Fang Yuan, who nodded lightly. Wu Shuai then declared: "The enemies have arrived; we will talk after repelling them."
 
-Just then, alarms rang — a large group of Eastern Sea Gu Immortals approached with several Immortal Gu Houses!
+While Fang Yuan and Wu Shuai remained behind the scenes, Ice Crystal Immortal Monarch and Xiao He Jian led the alliance out to confront the invaders in the sky.
 
-Wu Shuai glanced at Fang Yuan, who nodded lightly, then turned to the immortals: "The enemies have arrived, we will talk after repelling them."
+Xia clan's first supreme elder, rank seven Gu Immortal Xia Rui Zhi, stepped forward, shouting furiously at the variant humans who had seized his clan's territory. He demanded a duel to avenge his lost homeland.
 
-Wu Shuai and Fang Yuan stayed behind the scenes while the alliance leaders met the Eastern Sea army.
+Ice Crystal Immortal Monarch scoffed: "A mere rank seven dares challenge us? Our variant human alliance will not bully the weak; we'll send someone of equal rank."
 
-The Eastern Sea army was massive, joined personally by the first supreme elders of Shen, Tang, and Xie clans.
+At his command, a rank seven snowman Gu Immortal flew out to engage Xia Rui Zhi.
 
-As the two armies faced off in the sky, Xia clan's first supreme elder, rank seven Gu Immortal Xia Rui Zhi, stepped forward from the Eastern Sea alliance army.
+After barely three rounds, Shen Cong Sheng stepped forward, his sound path aura surging: "Who wants to fight me?"
 
-Ice Crystal Immortal Monarch replied: "A mere rank seven dares challenge us? No matter, our variant human alliance will not bully the weak; we'll send someone of equal rank to fight you."
+Shen Cong Sheng was publicly recognized as a peak rank eight expert in Eastern Sea. Under Fang Yuan's secret transmission, Xiao He Jian flew out to face him.
 
-At Ice Crystal Immortal Monarch's command, a rank seven snowman Gu Immortal flew out against Xia Rui Zhi.
+As Shen Cong Sheng and Xiao He Jian clashed, another Eastern Sea rank eight Gu Immortal stepped forward to issue a challenge. Though not as formidable as Shen Cong Sheng, he was still an imposing threat.
 
-After just three rounds, Shen Cong Sheng stepped forward: "Who wants to fight me?"
-
-Under Fang Yuan's secret command, Xiao He Jian stepped out to face the peak rank eight expert Shen Cong Sheng.
+Evaluating the situation, Ice Crystal Immortal Monarch dispatched a rank eight rockman Gu Immortal to meet the challenge.
 
 # Chapter 2070: Huge Victory in Battle
 
@@ -9092,123 +9108,129 @@ With the situation not yet at its worst, Fang Yuan had time to cultivate and rec
 
 # Chapter 2098: Hu Land
 
-Rotten Mud Mountain was one of Southern Border's famous peaks.
+Rotten Mud Mountain was one of Southern Border's famous peaks. At its periphery, mortal villages trembled as thunderous shouts shook the earth:
 
-"Kong Ri Tian, you cannot escape! You may hide here, but can you hide forever?"
+"Kong Ri Tian, you cannot escape! Hand over your Gu worms and I might spare your life. Otherwise, once I search the mountain, you will wish you were dead!"
 
-"Surrender your Gu worms and I might spare you. Otherwise, you'll wish for death!"
+Covered in bloody wounds, Kong Ri Tian hid in a rotten mud cave in despair. "Wu clan's Gu Immortal is too domineering. I've implicated you all."
 
-"Damn it!" Covered in wounds, Kong Ri Tian hid inside a rotten mud cave in despair.
+Beside him sat Wang Xiao Er and Central Continent's Four Great Obscenities. After they left the sinkhole, Sheng Tian true inheritance had been exposed, provoking Southern Border's super clans to dispatch Gu Immortals. The Four Great Obscenities had originally coveted the inheritance, but Kong Ri Tian lured them with promises of benefits, uniting them to flee experts like Wu Ji and Shang Xin Ci. Yet against a genuine Gu Immortal, mortal methods were futile.
 
-"Wu clan's immortal is too domineering. I've implicated you all," Kong Ri Tian sighed guiltily.
+"Alright, enough talk. Who said you would die?"
 
-"Enough talk. Who said you'd die?" A will suddenly drifted from Kong Ri Tian's body.
+A will drifted from Kong Ri Tian's body. Kong Sheng Tian's will, possessing Immortal Gu and immortal essence, was the sole reason they had survived this long.
 
-Kong Sheng Tian's will, along with Immortal Gu and immortal essence, granted Kong Ri Tian immortal methods.
+"Lord ancestor, you're awake!" Kong Ri Tian cried joyfully.
 
-With that, Kong Sheng Tian activated a Gu Immortal method.
+"Activating Gu Immortal methods exhausts my will; I had to sleep and use Gu worms to replenish myself," Kong Sheng Tian's will replied. "I directed you here before resting because this place guarantees our escape."
 
-To everyone's shock, a long tunnel silently opened within the rotten mud cave.
+Kong Sheng Tian activated an immortal method. A silent tunnel appeared in the cave, leading them deep underground into a massive hall.
 
-Entering the tunnel, they descended deep underground into a hall.
+"Back then, my main body spent a century searching for this Hu Land," the will sighed. "Alas, my lifespan was near its end, so I could only leave arrangements behind."
 
-Kong Sheng Tian's will sighed: "Back then, my main body spent a century to discover Hu Land. Alas, my body was already too old and short-lived, so I could only leave arrangements and depart."
+"Hu Land? The secluded domain of heaven and earth from The Legends of Ren Zu?" everyone gasped.
 
-"Hu Land? The secluded domain of heaven and earth from The Legends of Ren Zu?" Everyone gasped in surprise.
+"Indeed!" the will smiled proudly. "Complementary to Xi Land, Hu Land expels qi. It pairs flawlessly with my signature killer move that shoots air currents from body pores. With it, we can escape any pursuer."
 
-Kong Sheng Tian's will smiled proudly: "Of course! Alongside Xi Land, Hu Land is a supreme qi path secluded domain. Hu Land and Xi Land are complementary; paired with my killer move, we can surely escape our pursuers."
+The will added: "Unfortunately, Little Ri Tian, as a mortal, you cannot take this secluded domain. You will scatter like meteors that no one can catch, but Hu Land will fall into the enemy's hands."
 
-Kong Sheng Tian's will sighed: "Unfortunately, being a mortal, Little Ri Tian, you cannot bring this secluded domain with you. Once I use this killer move, you will scatter like swift meteors that none can catch, but Hu Land will be left for the immortals outside."
+Kong Ri Tian sneered ruthlessly: "Let Wu clan keep it safe for now! One day, I will reclaim it and make Wu Ji and Shang Xin Ci moan beneath my legs!"
 
-Chen Yin Dao asked: "Lord Gu Immortal, these men are my brothers; we wish to travel together. Will we be separated?"
+Kong Sheng Tian laughed: "Good! A true demonic descendant!"
 
-Kong Sheng Tian's will nodded: "As a mere will, I can barely activate it and cannot control direction or destination. You could hide elsewhere here; once Little Ri Tian and I leave, that Southern Border Gu Immortal may chase only us."
+Chen Yin Dao asked anxiously: "Lord Gu Immortal, my brothers and I wish to stay together. Will we be separated?"
 
-Yet escaping separately meant being parted from Wang Xiao Er.
+The will nodded: "As a mere will, I can barely trigger Hu Land. I cannot control destination or direction; you will scatter randomly. You may hide here instead, but that Southern Border immortal will surely scour the mountain."
 
-"Brother Kong, a word." Thinking this over, Chen Yin Dao sighed and revealed the truth.
+Chen Yin Dao fell into deep conflict. Staying was suicide, but if they scattered and were separated from Wang Xiao Er, their curse would trigger.
 
-Kong Ri Tian stepped aside with Chen Yin Dao, conversing quietly.
+"Brother Kong, a word in private," Chen Yin Dao sighed.
 
-"So that's it." Kong Ri Tian gasped.
+Kong Ri Tian stepped aside with him. Hearing the whispered confession, Kong Ri Tian gasped: "So that was why! And here I thought Central Continent Gu Masters simply had such bizarre preferences!"
 
-"Why else would we be like this?" Chen Yin Dao said helplessly.
+Watching them whisper, Wang Xiao Er asked curiously: "Brothers, what do you think boss is telling Brother Kong?"
 
 # Chapter 2099: Wu Yong's Excitement
 
-After understanding the situation, he returned to his ancestor Kong Sheng Tian's will and explained everything.
+After learning of the Central Continent Four Great Obscenities' embarrassing affliction, Kong Ri Tian returned to his ancestor Kong Sheng Tian's will and explained everything. The four obscenities endured intense humiliation, forced to deflect Wang Xiao Er’s earnest yet agonizing inquiries while their butts throbbed with pain.
 
-In no rush to treat them, Kong Sheng Tian's will first inspected their fortune.
+Kong Sheng Tian's will was in no rush to treat them. As a demonic path Gu Immortal driven by benefits, he first inspected their fortune qi, mindful that his remaining immortal essence was limited. Teleporting them through Hu Land required little effort, but curing them would demand a steep price. To his surprise, their fortune qi was remarkably vast, especially Wang Xiao Er's. Wondering if Wang Xiao Er was truly an amnesiac immortal, Kong Sheng Tian decided to assist.
 
-Examining them, Kong Sheng Tian's will noted: "Their fortune qi is unusually large and robust. Especially Wang Xiao Er—could he truly be an amnesiac immortal?"
+Upon closer inspection, however, Kong Sheng Tian's will turned solemn and shook his head: "I cannot cure your condition. This affliction was wrought by the legendary love Gu, belonging to Spirit Affinity House. The current generation fairy used it upon you."
 
-Kong Sheng Tian's will soon grew solemn, shaking his head: "I cannot cure your condition."
+When Chen Yin Dao and the others sank into despair, preparing to wait for death, Kong Sheng Tian offered an alternative: "Though I cannot cure it, I can temporarily suppress the ailment. Furthermore, my deductions show your fortune lies not in Southern Border, but back in Central Continent."
 
-Kong Sheng Tian's will sighed: "I can heal most ailments, but your condition is extraordinary, wrought by the legendary love Gu. This Gu belongs to Spirit Affinity House, meaning their current fairy used it on you. You're fortunate to have even met her."
+Wary of Wang Xiao Er's unknown background and unwilling to drag his inheritor Kong Ri Tian into deeper trouble, Kong Sheng Tian dismissed them. He activated an immortal killer move through Hu Land, flawlessly concealing all aura fluctuations—a method so refined that in the current five regions, only Wu Yong possessed a comparable feat.
 
-Kong Sheng Tian's will chuckled, waving his hand: "Though I cannot cure you, I can temporarily suppress the issue so it won't trouble you for a while."
+By the time the Wu clan Gu Immortal guarding Rotten Mud Mountain noticed something amiss, the mortals had already scattered across the horizons. Yet his frustration vanished instantly, replaced by wild ecstasy as he identified the cavern's secret: Hu Land, a qi path secluded domain of heaven and earth! He immediately sent word to first supreme elder Wu Yong.
 
-He pondered further: "According to my deductions, your fortune lies not in Southern Border, but in Central Continent."
+"Hu Land?!" Receiving the news, Wu Yong shot to his feet, eyes blazing with ambition.
 
-"Go," Kong Sheng Tian said, activating a killer move via Hu Land.
+He blew out a mouthful of green wind. The fist-sized gale entered his mind, accelerating thought collisions; though a wind path expert, Wu Yong effortlessly mimicked wisdom path traits.
 
-By the time Wu clan's Gu Immortal noticed, it was too late; they scattered in all directions beyond his reach.
+"Hu Land could be my springboard to domination!" Wu Yong's heart blazed. Secluded domains of heaven and earth recorded in <<The Legends of Ren Zu>>—such as Xi Land, Dang Hun Mountain, and Reverse Flow River—contained Dao mark quantities surpassing rank nine Immortal Gu. Given that rank nine Gu like fate, wisdom, and hatred were virtually impossible to obtain, secluded domains served as potent replacements, capable of anchoring supreme killer moves like Fang Yuan's reverse flow protection seal.
 
-"A qi path secluded domain of heaven and earth? What a massive contribution!" Thrilled upon confirming it, Wu clan's Gu Immortal immediately contacted first supreme elder Wu Yong.
+Wu Yong resolved to claim Hu Land in absolute secrecy. Fortunately, qi tides had unearthed inheritances across the five regions, keeping rival Southern Border super forces distracted with their own territories after Wu clan had already driven them away from Rotten Mud Mountain.
 
-"Hu Land?!" Wu Yong shot to his feet, eyes gleaming.
+Rather than Southern Border's righteous path, Wu Yong feared the pseudo venerables. Demon Immortal Qi Jue was suppressed within Divine Emperor City, while Qi Sea Ancestor was occupied combating the variant human alliance.
 
-"Obtaining Hu Land could be my springboard to domination!" Wu Yong rejoiced, an intense fire blazing in his heart.
-
-"I must secure this secluded domain in absolute secrecy, preventing any information leak!" Wu Yong made up his mind.
-
-Other forces only knew of Sheng Tian true inheritance, completely unaware of Hu Land.
-
-Rather than Southern Border's righteous path, Wu Yong feared pseudo venerables more.
-
-Wu Yong was still most worried about Gu Yue Fang Yuan!
+That left only one remaining monster. Above all others, Wu Yong was still most worried about Gu Yue Fang Yuan!
 
 # Chapter 2100: Fire Thunder True Inheritance
 
-Once, Wu Yong had pursued Fang Yuan from Southern Border to Western Desert; now, he feared Fang Yuan would come snatch Hu Land away!
+In the past, Wu Yong had pursued Fang Yuan from Southern Border to Western Desert; now, he feared Fang Yuan would come snatch Hu Land away. 
 
-"With his sovereign immortal body able to cultivate any path, Hu Land is terrifyingly useful to Fang Yuan. If exposed, Wu clan cannot keep it. By then, we will waste resources, suffer casualties, and lose prestige—better to leave it alone!" Wu Yong reflected.
+Immortal Gu were easily destroyed, but secluded domains of heaven and earth were durable. If Fang Yuan came for it, Wu clan could never stop him. 
 
-He decided to secretly retrieve Hu Land, intending to abandon it immediately if exposed.
+"Fang Yuan possesses the sovereign immortal body and can cultivate any path; Hu Land is terrifyingly useful to him. If exposed, Wu clan cannot keep it. We would suffer casualties, waste resources, and lose prestige—better to secretly take Hu Land away, abandoning it immediately if exposed," Wu Yong analyzed.
 
-"To distract Southern Border's Gu Immortal world, I may need to trigger my arrangement in Ba clan early as a smokescreen to secure Hu Land."
+To prevent news from leaking, he planned to use a beast tide to clear the mortal villages around Rotten Mud Mountain. As for Kong Ri Tian, who carried Kong Sheng Tian’s will, Wu Yong decided to investigate him secretly rather than create a commotion. Kong Ri Tian cultivated qi path and would want Hu Land for himself without attracting competitors, making it unlikely he would expose the secret to Treasure Yellow Heaven.
+
+"To distract Southern Border's Gu Immortal world, I can trigger my arrangement in Ba clan early as a smokescreen while I secure Hu Land."
 
 Some days later.
 
 Above Red Dragon River, Gu Immortals from Wu, Xia, and Ba clans tensely anticipated a contest.
 
-A newly discovered rank eight true inheritance was hidden at the bottom of this river segment.
+The qi tides had unveiled a rank eight true inheritance at the bottom of the fire thunder river segment. It was left behind by Fire Thunder Divine Lord, a Western Desert lone cultivator who cultivated fire path primarily and lightning path secondarily before dying here from his injuries.
 
-Floating in the air, Ba De called to Wu Yong: "Wu clan, you are overstepping your boundaries; this is Ba clan territory. Whatever the true inheritance, it belongs to Ba clan. Wu clan, as the leader of the Southern Alliance, the leader of Southern Border's Gu Immortals, why are you not being a role model, are you ignoring the rules of the righteous path?"
+Ba clan's first supreme elder, Ba De, floated in the air with his dark green beard and moss-covered skin. He called to Wu Yong: "Wu clan, you are overstepping your boundaries; this is Ba clan territory. As leader of the Southern Alliance, are you ignoring the rules of the righteous path?"
 
-Wu Yong smiled gentlemanly: "Since when did this fire thunder river segment become yours? The boundary between Xia clan and Ba clan is a sensitive area. Ba De, speak more carefully—at least consult our Xia clan comrades' opinion."
+Wu Yong smiled gentlemanly: "The boundary between Xia clan and Ba clan is a sensitive area. Ba De, you should consult our Xia clan comrades."
 
-Before he finished, Xia clan Gu Immortal Xia Zhao interjected: "Lord Wu Yong, whether this is Xia clan's or Ba clan's territory, it remains our affair. Wu clan is far to the south, and even Qiao clan is nowhere near the fire thunder river segment."
+Xia clan's new first supreme elder, rank seven Gu Immortal Xia Zhao, interjected: "Whether this is Xia clan's or Ba clan's territory, Wu clan is far to the south, and even your subsidiary Qiao clan is nowhere near here."
 
-Facing Xia and Ba clan's resistance, Wu Yong smiled even more visibly: "Go, bring the person here."
+Accompanying Wu Yong, Qiao Si Liu felt anxious. Righteous path rules bound them; without a legitimate pretext, Wu Yong taking it by force would ruin his reputation as alliance leader.
 
-The Wu clan Gu Immortal behind him opened his immortal aperture's entrance, a mortal Gu Master came out.
+Facing their unified resistance, Wu Yong smiled: "Bring the person here."
 
-Wu Yong introduced: "This Western Desert Gu Master is Fire Thunder Divine Lord's bloodline inheritor. Regardless of whether the fire thunder river segment belongs to Ba clan or Xia clan, the Fire Thunder true inheritance in the river clearly belongs to this little friend."
+A Wu clan Gu Immortal opened his immortal aperture, releasing a mortal Gu Master.
 
-When Ba De and Xia Zhao refused to back down, within three rounds, Wu Yong decisively defeated both Ba De and Xia Zhao.
+Wu Yong introduced: "This Western Desert Gu Master is Fire Thunder Divine Lord's bloodline inheritor. Regardless of who claims this river segment, the Fire Thunder true inheritance belongs to this little friend. If anyone suspects his identity, you may test his blood."
 
-Ba clan and Xia clan left in the end.
+Ba De and Xia Zhao’s expressions turned ugly. Wu Yong had seized the moral high ground. Unwilling to yield the inheritance in their own backyard, Ba De shouted: "How can we let an inheritance of Southern Border return to Western Desert? Let me exchange blows with you!"
 
-Wu Yong led the Western Desert Gu Master to the river bottom and retrieved the Fire Thunder true inheritance.
+Ba De activated a wood path killer move, filling the sky with ancient trees and flying leaves, while Xia Zhao provided long-range support. Wu Yong laughed heartily as fierce winds howled, dark clouds gathering. His wind path killer moves sliced the trees apart and withered the leaves. 
 
-Wu Yong instructed calmly: "Spread news of today's battle; I want the entire Southern Border Gu Immortal world to hear of it."
+Within three rounds, Wu Yong decisively suppressed them both. 
 
-"Lord Wu Yong, I, mushroomman Gu Immortal Ke Xin Hong, seek an audience." A mushroomman Gu Immortal approached from the southeast, riding the waves.
+Ba De clenched his fists, then relaxed them. He still had a hidden trump card killer move, but exposing it over the Fire Thunder inheritance was not worth the price. 
 
-Ke Xin Hong then transmitted: "Lord Wu Yong, I come from Mushroomman Paradise on Lord Gu Yue Fang Yuan's orders."
+Admitting defeat, Ba clan and Xia clan departed.
 
-His expression unchanged, Wu Yong replied: "For what matter have you come?"
+Wu Yong led the Western Desert Gu Master to the river bottom and retrieved the inheritance. The mortal, named Zhong Yi, immediately knelt and asked to join Wu clan. Having lost multiple Gu Immortals due to Fang Yuan, Wu Yong readily accepted this promising seed as a future external elder.
+
+As Qiao Si Liu and the Wu clan immortals praised his might, Wu Yong instructed calmly: "Spread news of today's battle; I want the entire Southern Border Gu Immortal world to hear of it."
+
+"Lord Wu Yong, I, mushroomman Gu Immortal Ke Xin Hong, seek an audience." 
+
+A mushroomman Gu Immortal wearing a white shirt approached from the southeast, riding the waves.
+
+The surrounding Gu Immortals were shocked by the appearance of a variant human immortal, but Wu Yong remained composed. 
+
+Ke Xin Hong transmitted secretly: "Lord Wu Yong, I come from Mushroomman Paradise on Lord Gu Yue Fang Yuan's orders."
+
+Wu Yong's expression did not change as he replied: "For what matter have you come?"
 
 Ke Xin Hong smiled: "Sheng Tian true inheritance."
 
@@ -9319,6 +9341,8 @@ After extensive discussion, the Song clan Gu Immortals resolved to leave the mat
 Several days later.
 
 "Father, how can it be you?!" the young man shouted, trembling.
+
+His fallen father smiled with satisfaction: "Son, you did well. You mastered our clan's killer moves, but your heart lacks sufficient grief and hatred. I am terminally ill and cannot live long anyway; sacrificing myself for you is far better."
 
 The father stared fixedly at him: "The enemy slaughtered our entire family—your mother, grandparents, younger brothers, and sisters! This hatred surpasses everything; how can we not seek vengeance?! Remember, your father died for this. If you do not take revenge, my death will be in vain, I would have died because of you!"
 
@@ -11064,83 +11088,77 @@ After receiving the report, Shang Yan Fei smiled.
 
 # Chapter 2126: Ni Clan
 
-In Shang Liang Mountain's first inner city, Shang Xin Ci handled clan affairs.
+In Shang Liang Mountain's first inner city, Shang Xin Ci handled clan affairs inside her mortal Gu House study room.
 
-Shang Xin Ci smiled, inspecting a report: "Reparations are complete and the fake Gu incident is settled."
+Inspecting an information path mortal Gu, she smiled: "Second inner city's reparations are finished, and the fake Gu incident is settled." She instructed Shang clan's stores to offer discounts under the pretext of compensating Gu Masters, recouping primeval stones while restoring Shang clan's reputation.
 
-A dazzling information path mortal Gu flew before Shang Xin Ci.
+She reviewed another report from Shang Chi Wen regarding merchants hoarding goods to inflate prices. While Shang Chi Wen urged executing them all, Shang Xin Ci ordered only the ringleader killed. A third report detailed a vassal village beset by a beast tide. Knowing her subordinates had delayed the report through regular channels to avoid wasting resources during the great era's competitive opening, Shang Xin Ci still dispatched a rescue team, lamenting her powerlessness.
 
-Shang Xin Ci's mind jolted: "A task from the higher-ups."
+At dawn, a dazzling information path mortal Gu arrived from Shang clan's Gu Immortals.
 
-Thinking to entrust Feng Tian Yu with an important mission, Shang Xin Ci summoned him.
+It concerned the contest over Fur blessed land in central Southern Border, recently exposed by qi tides. Its creator, Fur Immortal, had carelessly dual-cultivated wood path and transformation path, causing conflicting dao marks and mediocre combat strength. Though the inheritance was unremarkable, the blessed land's strategic location was immensely valuable. Southern Border's righteous path had agreed that only Gu Masters would contest it without immortal interference.
 
-Feng Tian Yu arrived excitedly: "Clan leader, I have great news!"
+Lacking capable personnel, Shang Xin Ci decided to appoint Feng Tian Yu, a rank five refinement path master, to lead the expedition. She promptly summoned him.
 
-"I have been researching that strange mud monster and discovered a shocking secret!"
+Upon entering, Feng Tian Yu exclaimed excitedly: "Clan leader, I have great news! I have been interrogating that strange mudman and uncovered a shocking secret."
 
-"He was Ni Jian, whose village was slaughtered by a demonic expert."
+"He was Ni Jian, a young clan leader whose village was slaughtered by a demonic expert. A qi path Gu Immortal revived him, questioned him about the culprit, and abandoned him. Though once possessing near-immortal strength, he has weakened over time."
 
-"After dying, he was revived by a qi path Gu Immortal, questioned about the culprit, and then discarded."
+Feng Tian Yu continued with gleaming eyes: "Ni clan possesses an extraordinary secret! Occasionally, when a clan member awakens their bloodline, an Immortal Gu grows directly inside their mortal body! That slaughtered village was merely one branch; many others are scattered across Southern Border."
 
-Feng Tian Yu continued: "Ni clan possesses a huge secret: occasionally, an awakened member's body directly births an Immortal Gu!"
+"I request permission to investigate this secret," Feng Tian Yu urged. "If we master this method, mortals could refine Immortal Gu!"
 
-"A mortal body birthing an Immortal Gu is extraordinary! That slaughtered village was merely one branch— many other Ni clan branches are scattered across Southern Border."
+Shang Xin Ci offered escorts, but Feng Tian Yu declined: "Rank four Gu Masters would only slow me down. Solving this will grant immense merit. I must accumulate contribution points to have any hope of meeting Lord Fang Yuan!"
 
-Feng Tian Yu urged: "I request permission to investigate this secret! If we master this refinement method, mortals could refine Immortal Gu."
+Seeing his resolute determination, Shang Xin Ci permitted him to depart.
 
-"No escorts needed," Feng Tian Yu waved. "Solving this secret will be an immense contribution. I must accumulate contribution points to have any hope of meeting Lord Fang Yuan!"
+Meanwhile, inside the sovereign immortal aperture's Mini Yellow Heaven, a group of Gu Masters gathered by the gold fragment current.
 
-Seeing his resolute determination, Shang Xin Ci nodded and permitted him to go.
-
-Meanwhile, in Mini Yellow Heaven of the sovereign immortal aperture, a group of kinsmen Gu Masters arrived beside the gold fragment current.
-
-"Over the past dozen years, our Ni clan has grown tenfold, but recently this mysterious realm has turned dangerous. Now we face a life-and-death crisis."
-
-"The gold fragment current is rising—we must dig new channels before it submerges our home!"
+A white-haired rank five clan leader addressed them: "Over a dozen years ago, our Ni clan was mysteriously relocated here from Southern Border by a Gu Immortal existence. Our population has grown tenfold, but recently this realm has turned unstable and dangerous. The gold fragment current's water level is constantly rising. We must dig new channels immediately, or a flood will submerge our home for a thousand li!"
 
 # Chapter 2127: Sovereign's Commotion
 
-Mini Western Desert.
+Inside the sovereign immortal aperture, Mini Western Desert.
 
-An enormous pitch-black city occupied the desert.
+An enormous pitch-black city occupied the desert—Inkman City, created by inkman Immortal Yi Yan as a smaller version of Emperor City, later captured and relocated here by Fang Yuan.
 
-Created by inkman Immortal Yi Yan, Fang Yuan had seized and relocated it here.
+Mo Tan Sang and Mo Qi Yi hovered aloft, surveying their surroundings with grave expressions. A terrifying tide of purple-black toxic vines and azure-gold windmill trees had spread ten li in three days, advancing to within twenty li of Inkman City.
 
-Two inkman Gu Immortals, Mo Tan Sang and Mo Qi Yi, hovered aloft, surveying their surroundings with grave expressions.
+Mo Qi Yi sighed: "They are already spawning desolate plants, making them harder to clear. I thought this was a paradise, but the environment here is dozens or a hundred times worse than Northern Plains!"
 
-"These toxic vines and windmill trees spread ten li in three days—only twenty li from Inkman City," Mo Tan Sang noted.
+Mo Tan Sang patted his shoulder: "Master is the number one demon in the world. Speak less of such complaints; reinforcements have arrived."
 
-Mo Qi Yi sighed: "They are already spawning desolate plants, making clearing them even harder. I thought this was a paradise, not that the environment would be dozens or a hundred times worse than Northern Plains!"
+Four Gu Immortals flew over: Xue Er, Bing Yuan, a hairy man, and a mushroomman. Xue Er was nominally Fang Yuan's fiancée, a connection Bing Yuan constantly trumpeted across the sovereign immortal aperture. Xue Er agreed to help, requesting that the inkmen assist the snowman tribe in Mini Northern Plains once Inkman City was secured.
 
-Mo Tan Sang patted his shoulder: "Master has dispatched reinforcements; keep such complaints to yourself."
-
-The variant human reinforcements included Xue Er, Bing Yuan, and hairy man and mushroomman Gu Immortals.
-
-Bing Yuan spoke: "We assessed the situation en route. Xue Er and I will use ice and snow killer moves to freeze and stunt the growth, buying you time."
+Bing Yuan announced: "Xue Er and I will use ice and snow killer moves to freeze and slow the vegetation's growth to buy you time."
 
 The hairy man Gu Immortal said: "I brought hairy man Gu Masters to reconstruct Inkman City into a unified Gu House, making future relocations effortless."
 
-The mushroomman said: "These toxic vines are resources for us mushroommen, and I've found their source. By fighting poison with poison, I can use the vines to stabilize this vegetation for some time."
+Mo Tan Sang worried about disturbing the city's one million two hundred thousand residents and squandering Master's Immortal Gu.
 
-The hairy man Gu Immortal interrupted Mo Tan Sang: "Do not worry. Lang Ya Sect was ordered to reconstruct every city in the sovereign immortal aperture. Most will become mortal Gu Houses, while major cities like Inkman City will become Immortal Gu Houses!"
+The hairy man Gu Immortal laughed: "You underestimate Master! Lang Ya Sect received Master's command to reconstruct every city in the aperture. Most will become mortal Gu Houses, while major cities like Inkman City will become Immortal Gu Houses! Master's refinement path attainment surpasses all predecessors. He designed these ingenious blueprints in mere minutes. This investment is trivial to him."
 
-Shi Zong said, "Master annexed Fire Plain grotto-heaven and the apertures of its immortals and Grotto Lord, greatly increasing fire path dao marks in the sovereign immortal aperture. This volcanic Fire Bird Mountain nearly erupted as a result. Fortunately, we discovered it in time and deployed an immortal formation to suppress it, but someone must now remain to preside over it."
+The mushroomman added: "These toxic vines are superior cultivation resources for us mushroommen. By fighting poison with poison, I can use the vines to stabilize this area."
+
+Meanwhile, in Mini Southern Border, at the base of Fire Bird Mountain, rockman Gu Immortals Shi Shi Cheng and Shi Zong activated an immortal formation to suppress the trembling volcano.
+
+Shi Zong exhaled: "Master annexed Fire Plain grotto-heaven along with the apertures of its immortals and Fire Plain Grotto Lord, causing fire path dao marks to surge. Fire Bird Mountain nearly erupted as a result. We suppressed it, but someone must remain stationed here, and we need fire path Gu Immortals to modify the volcano so it adapts to the environment."
+
+Shi Shi Cheng agreed: "Master annexed too many apertures recently, stretching our manpower thin. We must send a request to Star Collection City."
 
 Mini Blue Heaven, Star Collection City.
 
-This was managed by the previous generation's Combat Beast King.
+The city was managed by the previous generation's Combat Beast King. After resisting the three thousand heaven path dao marks tribulation and being healed by Fang Yuan, this rank eight Gu Immortal had been ordered to oversee the aperture's internal affairs.
 
-Due to aperture instability, Fang Yuan designated Star Collection City as the primary metropolis under Combat Beast King.
+Combat Beast King processed the incoming reports: Inkman City was stabilizing, while Fire Bird Mountain required fire path immortals.
 
-Just then, an information path Gu worm buzzed loudly as it flew over.
+Suddenly, an information path Gu worm buzzed loudly as it flew over.
 
-Combat Beast King's expression changed: "Where did the rank eight disaster appear again?"
+Combat Beast King's expression changed: "Where did another rank eight disaster appear?"
 
-Inspecting the Gu worm, he found the disaster originated as a massive rain of fire in Mini Red Heaven.
+Inspecting the Gu worm, his heart sank. A fire rain in Mini Red Heaven had pierced a charcoal lake, forming a rank six meteor rain killer move. As it fell into Mini Orange Heaven, its power grew to rank seven. Upon entering Mini Yellow Heaven, it resonated with metal path dao marks, escalating into a rank eight disaster covering a thousand li.
 
-"Damn it! Only I can handle this disaster, but it's already too late to resolve it!" Combat Beast King paled.
-
-Combat Beast King grieved, "This disaster will annihilate dozens of resource points and the Ni clan."
+"Damn it! Only I can handle this disaster, but it's already too late!" Combat Beast King paled in agony. Hailing from Beast Calamity grotto-heaven, he considered protecting mortals his sacred duty. Yet he was helpless; the falling meteors would annihilate dozens of resource points, the rockman metal water branch tribe, and the human Ni clan.
 
 # Chapter 2128: Hu Land Projection
 
@@ -12024,45 +12042,37 @@ Receiving it excitedly, the Qi Sea clone said: "Good! With Hu Land, my combat sy
 
 Immortal killer move — Landscape as Before!
 
-Previously only rank six, Fang Yuan had raised landscape as before Immortal Gu to rank eight two months ago.
+Fang Yuan activated the killer move. Two months ago, he had successfully raised landscape as before Immortal Gu to rank eight, which was its peak limit. Rank eight landscape as before was a time path Gu, but Fang Yuan now deployed it as a compound killer move containing the profundities of time, earth, water, rule, and soul paths.
 
-Though a time path Gu, Fang Yuan now deployed it as a compound killer move.
+Under its effect, Reverse Flow River gurgled softly and expanded at a rapid pace. After dozens of activations, the faint remnant grew into a long, narrow river. Fang Yuan had previously considered using the rank nine killer move orderly well from Shadow Sect's true inheritance. That move used City Well as the core to remove dao mark conflicts and restore secluded domains, but Fang Yuan lacked its unique core Immortal Gu, and his rule path attainment was only great grandmaster, insufficient to modify a rank nine move.
 
-Under this compound move's effect, Reverse Flow River gurgled softly and began rapidly expanding.
+"Reverse Flow River is recovering quickly now, but at the later stages, Landscape as Before's compound move will lose effectiveness until it becomes negligible."
 
-After dozens of activations, the faint remnant of Reverse Flow River expanded into a long, narrow river.
+Fang Yuan had gathered many secluded domains of heaven and earth: Dang Hun Mountain, Luo Po Valley, Reverse Flow River, City Well, Hu Land, and the incomplete Refinement Sea, Human Sea, and Qian Kun Crystal Wall. Hu Land had been given to his Qi Sea clone, while Refinement Sea was currently being consumed by the Four Elements Square Regret Blood Refinement Pool. As for Qian Kun Crystal Wall, Fang Yuan had obtained countless genuine grey-white stone slabs from Great Wisdom Immortal Mother's inkman inheritance. However, *The Legends of Ren Zu* noted that Primordial Domain was originally within it, and Limitless Demon Venerable had already moved Primordial Domain into Crazed Demon Cave.
 
-"Reverse Flow River is recovering quickly now, but Landscape as Before's compound move will steadily lose effectiveness until it becomes negligible."
+Among them all, Fang Yuan prioritized the incomplete Human Sea looted from Eastern Sea's Xia clan. Every venerable possessed terrifying human path killer moves; Fang Yuan required a solid human path foundation to defend against them.
 
-"I have gathered many secluded domains of heaven and earth: Dang Hun Mountain, Luo Po Valley, Reverse Flow River, City Well, Hu Land, and the incomplete Refinement Sea, Human Sea, and Qian Kun Crystal Wall."
+He had already ordered a hundred million humans slaughtered in Fire Plain grotto-heaven, yet Human Sea remained incomplete. Although the variant human alliance had many human grotto-heavens, slaughtering them would breed dissension, and they were needed as future seeds to develop human path within his sovereign immortal aperture. With countless humans across the world, there was no need to sacrifice his own.
 
-The incomplete Human Sea came from Eastern Sea's Xia clan, looted when Wu Shuai led the variant human alliance to invade their territory and drive them out.
+Fang Yuan issued a mission: slaughter outside humans and gather resources.
 
-"Every venerable possesses human path killer moves, so I must build a human path foundation. Even if I don't dominate the path, I need means to defend against it."
+Demonic cruelty permeated the task. Human Gu Immortals lamented inwardly, variant human Gu Immortals relished the slaughter, and human grotto-heaven lords felt relief that their own populations were spared. Soon, over ten Gu Immortals quietly mobilized from Xia clan's former territory.
 
-Fang Yuan had previously ordered a hundred million humans slaughtered in Fire Plain grotto-heaven for the incomplete Human Sea.
+On a remote Eastern Sea island, a miniman Gu Immortal unleashed a rain of razor-sharp leaves over tranquil fishing villages, massacring men, women, and children. "Back then, my mother was strangled before my eyes by human Gu Immortals," he snarled with venomous hatred. "Today, I take back some interest!"
 
-"The variant human alliance has many human grotto-heavens with vast populations, but targeting them is inconvenient."
+Elsewhere, on an island harboring an enormous city, two hairy man Gu Immortals conjured a towering tsunami.
 
-"It would cause dissension, and those mortals must develop human path in my aperture. With countless humans in the world, why sacrifice my own?"
+At the brink of catastrophe, an Eastern Sea lone immortal stepped forward and blocked the surging waves.
 
-Fang Yuan then issued a task — slaughter humans and gather resources.
+"Stop! I am Gu Ming Xu. This is my homeland—why harm innocent mortals?" he shouted furiously.
 
-Soon, over ten Gu Immortals quietly set out from Eastern Sea Xia clan's territory.
+The two hairy men descended from the clouds, sneering, "So it is Warm Sun Immortal Lord. This island was once our hairy man homeland before humans stole it."
 
-An enormous city stood on an island in Eastern Sea.
+Recognizing their race, Gu Ming Xu warned, "Variant humans! You dare run rampant near Tang clan territory? I have already called for reinforcements. Retreat now, or you will perish!"
 
-Two variant human Gu Immortals united to summon a massive tsunami.
+The two hairy men laughed mockingly. "Immortal Lord, why feign ignorance? Our master is Lord Gu Yue Fang Yuan! The Tang clan—indeed the entire Eastern Sea righteous path—are merely chickens and dogs before him. We are here to make you taste the suffering our kind endured."
 
-At the brink of catastrophe, an Eastern Sea lone immortal stepped forward and blocked the tsunami.
-
-"Stop! I am Gu Ming Xu, and this is my homeland. Why are you harming innocent mortals?" the Gu Immortal shouted furiously.
-
-Seeing them, Gu Ming Xu could not restrain his anger: "Variant humans! How audacious—this is near Eastern Sea's Tang clan, and I have already requested reinforcements. Get lost, or it will be too late!"
-
-The variant human Gu Immortals laughed: "Immortal Lord, why play dumb? Our master is Lord Gu Yue Fang Yuan! Tang clan—and even the entire Eastern Sea righteous path—are mere chickens and dogs before him."
-
-Gu Ming Xu lamented inwardly: "What a demon Fang Yuan is, sending variant humans to slaughter his own race! A shameless traitor without bottom line. Damn it! Damn it!!"
+Gu Ming Xu's heart sank into profound despair and fury. *What a heinous demon! Fang Yuan actually sends variant humans to slaughter his own race. Shameless traitor without a bottom line!*
 
 # Chapter 2137: Fang Yuan Deserves Death!
 
@@ -12252,63 +12262,29 @@ Bing Yuan chuckled reservedly: "I don't care much about contribution points. I s
 
 # Chapter 2140: Establishing Dao Veins
 
-Inside the sovereign immortal aperture.
+Inside the sovereign immortal aperture, a pure-white butterfly fluttered, radiating graceful cloud light. Its speed alternated between leisurely drifting and near teleportation. This was a totem killer move—Cloud Light Butterfly.
 
-A message appeared that disturbed Fang Yuan's cultivation.
+The totems Zhan Bu Du brought from Myriad Beast Fusion Color Heaven were divided into basic totems, unique totems, and legendary super totems. While Zhan Bu Du had combined rain eagle and thunder fish to forge his unique kunpeng totem, super totems could allegedly cultivate and exist independently, just as Qing Chou had transformed from Genesis Lotus Immortal Venerable's killer move into an immemorial desolate beast.
 
-The letter focused on methods for artificially creating earth veins.
+Fang Yuan sighed inwardly. He could not yet refine totem killer moves into compound killer moves. Once released from the sovereign body, totems lost the protection of unrestrained heavenly marks. Though continuously refining unrestrained heavenly marks and utilizing Heaven's Envy Gu, his heaven path attainment had not yet reached master level.
 
-"My idea of modifying the sovereign immortal aperture is feasible after all," Fang Yuan thought with joy.
+A message from Lu Wei Yin interrupted his cultivation, detailing methods to artificially construct earth veins.
 
-Fang Yuan estimated he could annex three more grotto-heavens before the ecosystem broke down again.
+"My plan to modify the sovereign immortal aperture is feasible after all," Fang Yuan thought.
 
-That was to construct veins!
+Fang Yuan had established the contribution exchange board and invested heavily in his subordinates, stabilizing the internal situation. However, he estimated he could annex only three more grotto-heavens before the ecosystem broke down again. To prepare for the battle in Crazed Demon Cave against venerables, he needed to annex all grotto-heavens in the two heavens to maximize his foundation. Even mobilizing every variant human Gu Immortal and Qi Sea Ancestor could not prevent total collapse, and his loose silver luck pillar warned that venerables would exploit this vulnerability.
 
-Heaven had heaven veins, earth had earth veins, and humans had human veins.
+The root cause of these ecological disasters was the non-conflicting dao marks. When the Ni clan faced a meteor disaster, a simple fire rain in Mini Red Heaven—caused by annexing Fire Plain grotto-heaven—had crossed a charcoal lake to form rank six meteors. It gathered strength in Mini Orange Heaven to rank seven, absorbed metal path dao marks in Mini Yellow Heaven to reach rank eight, and expanded into tens of thousands of giant meteors that Fang Yuan had to personally suppress. In the outside world, conflicting earth path dao marks would have extinguished the fire rain at the charcoal lake.
 
-Veins were extraordinary; not only were they agglomerations of dao marks, they also possessed dynamic movement.
+The ultimate remedy was making dao marks conflict at will. Lu Wei Yin’s letter revealed that Mushroomman Paradise had secretly assisted Shadow Sect during the refinement of sovereign immortal fetus Gu. While rank nine granted non-conflicting dao marks, advancing to rank ten required dao marks to obey their master's will, conflicting or harmonizing at whim. That would resolve the sovereign body's fatal flaw: overwhelming offense but frail defense.
 
-When Fang Yuan researched it, he reached a thought-provoking answer.
+Rank ten Gu were mere legends. Fang Yuan had only heard rumors of Destiny Gu—refined using Fate Gu—and Eternal Gu from <<The Legends of Ren Zu>>. Now, sovereign immortal fetus Gu was a possible third.
 
-The sovereign immortal aperture's non-conflicting dao marks!
+Lacking the capability for rank ten, Fang Yuan chose to artificially organize dao marks into dao veins. Just as Eastern Sea’s merchants utilized undercurrent water veins to travel tens of thousands of li, veins provided dynamic circulation and stability.
 
-Normally, different dao marks conflicted, but in the sovereign immortal aperture, dao marks of all paths coexisted harmoniously.
+Southern Border’s Paradise Earth true inheritance recorded artificial earth vein construction, but Fang Yuan still consulted Lu Wei Yin for practical implementation. Ever cautious, Fang Yuan barred Lu Wei Yin from entering the aperture, while leaving Paradise Earth's dream realms and Mushroomman Paradise undisturbed.
 
-Realizing this crucial point, Fang Yuan understood how to resolve the sovereign immortal aperture's issues.
-
-Simply put, he had to make the sovereign immortal aperture's dao marks conflict!
-
-With conflicting dao marks, the aperture's greatest issue would be solved, becoming as stable as the five regions.
-
-Lu Wei Yin's letter also confirmed Fang Yuan's idea.
-
-He mentioned: When Shadow Sect refined sovereign immortal fetus Gu, Mushroomman Paradise had also secretly helped.
-
-Lu Wei Yin analyzed that non-conflicting dao marks were the foundation of rank nine sovereign immortal fetus Gu, but advancing to rank ten required conflicting dao marks.
-
-This conflict was no step backward; rather, the sovereign body's dao marks would obey their master's will, conflicting or non-conflicting at whim!
-
-Conflicting dao marks would resolve the sovereign immortal body's greatest flaw—strong attack, weak defense!
-
-Even Spectral Soul Demon Venerable was unable to do this.
-
-Rank nine Immortal Gu were already exceedingly rare and mighty; rank ten was purely legendary.
-
-In hundreds of years, Fang Yuan had only heard rumors of two rank ten Immortal Gu.
-
-From Lu Wei Yin's letter, Fang Yuan learned of a possible third rank ten Immortal Gu: sovereign immortal fetus Gu!
-
-Unable to create conflicting dao marks, Fang Yuan went to the opposite extreme: condensing dao marks to make them even more harmonious.
-
-Southern Border's Paradise Earth true inheritance contained the method to construct artificial earth veins, but Fang Yuan still consulted Lu Wei Yin on practical implementation.
-
-Regarding him and Paradise Earth Immortal Venerable, Fang Yuan was always on guard.
-
-For instance, Fang Yuan never allowed Lu Wei Yin into the sovereign immortal aperture, and cautiously preserved Paradise Earth's dream realms and Mushroomman Paradise without rash action.
-
-"Incorporating Lu Wei Yin's suggestions, I can refine my plan into a mature method and have the Gu Immortals finish the preliminary steps."
-
-"Or perhaps Meng Qiu Zhen should explore Paradise Earth's dream realms first to raise my earth path attainment, making earth vein construction much more convenient."
+"Incorporating Lu Wei Yin's guidance, I can refine the plan and let the Gu Immortals begin preliminary construction," Fang Yuan planned. "Or perhaps Meng Qiu Zhen should explore Paradise Earth's dream realms first to raise my earth path attainment, making earth vein construction far more convenient."
 
 # Chapter 2141: Fang Huan's Revival
 
@@ -12456,9 +12432,11 @@ Meng Qiu Zhen quickly scanned his surroundings, discovering that both the granny
 
 "Grandma, is it really hopeless? Is there no other way?" Meng Qiu Zhen feigned disbelief while searching hard for clues regarding the dream realm.
 
+The mushroomman granny hesitated before saying: "There is a way."
+
 Meng Qiu Zhen immediately asked: "What way?"
 
-With her back to him, she said: "The only thing that might save you is not a method, but a person."
+The mushroomman granny shook her head and walked towards a table. With her back to him, she said: "The only thing that might save you is not a method, but a person."
 
 "Our tribe's previous witch, Huang Wan," the old granny said.
 
@@ -13478,7 +13456,7 @@ After all, the three worlds stood in opposition. If any two forces fought too fi
 
 "Heavenly Court has already seized the initiative by securing Book Mountain. We rely on our lord to catch up. Heaven Extremity, can't you see the big picture?"
 
-"That demon Fang Yuan disregards his human identity. I worry he might relocate Yellow Earth Great World's immortals and our captured forces into his sovereign immortal aperture. Look at his deeds in the five regions—he recruited variant humans without hesitation. In my opinion, he is very likely to do this."
+Yellow Extremity Jiao Huo, seated beside Gai Mei, tried to persuade him: "Brother Gai, just make the deductions. This concerns not only Yellow Earth Great World's strength, but Fang Yuan's potential moves as well. That demon Fang Yuan disregards his human identity. I worry he might relocate Yellow Earth Great World's immortals and our captured forces into his sovereign immortal aperture. Look at his deeds in the five regions—he recruited variant humans without hesitation. In my opinion, he is very likely to do this."
 
 Despite Jiao Huo's earnest persuasion, Gai Mei shook his head and smiled: "There is really no need to worry. Isn't Heavenly Court just as anxious? Why not observe what Heavenly Court does first? Guarded by Star Constellation Immortal Venerable, history's number one wisdom path expert, they are far better at deductions than me."
 
@@ -17380,6 +17358,8 @@ Just then, Shen Shang shouted: "I succeeded! My killer move is complete!"
 
 Paradise Earth said with a heavy voice: "Shen Shang, what are your chances?"
 
+"Eighty percent!" Shen Shang said excitedly. "It previously lacked heaven path results, but that was not the core. Intuition tells me it has an eighty percent success rate. Though improvable, it is complete enough to use!"
+
 Fang Yuan said: "Then, let's protect Shen Shang while he attempts it."
 
 Immortal killer move — Heaven Always Leaves A Way Out For People!
@@ -17436,51 +17416,37 @@ They were evenly matched!
 
 # Chapter 2199: Star Constellation's Difficulty
 
-Even while fighting, Star Constellation Immortal Venerable controlled the chessboard formation to assist Heavenly Court's members.
+Even while battling Immortal Zombie Giant Sun, Star Constellation Immortal Venerable controlled the Star Constellation Chessboard Formation to assist Heavenly Court's members, coordinating their killer moves into continuous waves that pressed Lu Wei Yin's group.
 
-Fang Yuan frowned inwardly: "Star Constellation's wisdom path attainment is astonishing. Even Giant Sun cannot push her to her limits; she still commands the battlefield and supports her allies."
+Fang Yuan observed closely. Star Constellation's wisdom path attainment was astonishing; even Giant Sun could not force out her limits, suggesting Giant Sun was also holding back. Both venerables restrained their might below the level of Qi Sea Ancestor's Hu elevation, wary of triggering Limitless' countermeasures or destroying the truthful floating ice nurtured over a million years. The eternal life research was invaluable; whoever obtained it could break the deadlock and reign supreme.
 
-Though the two venerables traded countless explosive moves, their power never exceeded Qi Sea Ancestor's Hu elevation.
+"In that case..." Fang Yuan commanded, "Qi Sea!"
 
-Both Star Constellation Immortal Venerable and Immortal Zombie Giant Sun feared triggering Limitless' countermeasures.
+Qi Sea Ancestor unleashed Immortal killer move — Hu Elevation!
 
-"In that case..." Fang Yuan's eyes flashed, and he suddenly commanded, "Qi Sea!"
+As the terrifying qi path move descended, allies and enemies alike retreated in alarm before realizing Fang Yuan's intent: to use Limitless' countermeasures to shatter the Star Constellation Chessboard Formation!
 
-Immortal killer move — Hu Elevation!
+Chains materialized from thin air and bound Qi Sea. Yet Star Constellation disengaged from Giant Sun with a calm smile: "Fang Yuan, your scheme is clever, but did you think I overlooked such a flaw?"
 
-Sure enough, chains materialized from thin air and bound Qi Sea Ancestor.
+Starlight surged. Crisscrossing starry paths attached to Limitless' chains, binding them and assimilating their power into the chessboard formation, making it even firmer.
 
-Fang Yuan intended to use Limitless' countermeasures to shatter Star Constellation Chessboard Formation!
+Lu Wei Yin gritted his teeth. Heavenly Court had begun infiltrating Crazed Demon Cave over a million years ago during Star Constellation's bet with Limitless. Giant Sun had only three hundred thousand years, Paradise Earth one hundred thousand, while Fang Yuan had virtually none. Crazed Demon Cave was over fifty percent Star Constellation's home ground.
 
-Disengaging from Giant Sun, Star Constellation said: "A clever scheme, Fang Yuan, but did you think I overlooked such a flaw? Look."
+Heavenly Court's immortals risked their lives to pin down the allied pseudo venerables. With Qi Sea bound by chains and unable to be recalled into the sovereign immortal aperture, Zhan Bu Du and the others stayed behind to protect him, while Fang Yuan ascended to join Giant Sun against Star Constellation.
 
-Starlight surged as crisscrossing starry paths shifted and attached themselves to Limitless' chains.
-
-Within breaths, the starry paths bound Limitless' chains, placing them under Star Constellation's control.
-
-Lu Wei Yin gritted his teeth: "Star Constellation is too well-prepared; her infiltration of Crazed Demon Cave runs too deep."
-
-Fang Yuan ascended to join Giant Sun and Star Constellation's battle.
-
-Bound by chains, Qi Sea Ancestor could not be recalled, leaving Zhan Bu Du and the others to defend him.
-
-"Then, let's try this move." Fang Yuan took a deep breath, his gaze shining brightly.
+"Then, let's try this move." Fang Yuan took a deep breath.
 
 Immortal killer move — Five Restriction Profound Light Qi!
 
-Five-colored light qi surged from Fang Yuan, forcing both Heavenly Court's immortals and Lu Wei Yin's group to retreat.
+Five-colored light qi surged, manifesting the five regional walls. Derived from Tao Zhu, this move was the nemesis of Gu formations and Immortal Gu Houses, restraining even the Crazed Demon formation.
 
-Fighting inside the five restriction profound light qi would inflict constant backlash.
+Star Constellation immediately suffered backlash. Limitless' chains shook violently, seeking to target Fang Yuan for threatening the Crazed Demon formation.
 
-As five restriction profound light qi spread through the chessboard formation, Star Constellation Immortal Venerable immediately suffered backlash.
+Instantly, Star Constellation's computational burden increased tenfold. She had to fight Giant Sun, assist Heavenly Court, accelerate the formation's eternal life derivations, endure the five restriction backlash, and forcibly suppress Limitless' chains. If she let the chains act freely against Fang Yuan, their uncontrolled rampage would destroy the Star Constellation Chessboard Formation. Once the formation collapsed, Heavenly Court's outnumbered immortals could never prevent the pseudo venerables from seizing the eternal life research results.
 
-Limitless' chains on the starry paths shook, restless to act.
+"Five restriction profound light qi, what an amazing move!" Shen Shang praised, seeing through the situation.
 
-Instantly, Star Constellation Immortal Venerable's computational burden increased tenfold.
-
-She had to fight Giant Sun, support Heavenly Court, control Limitless' chains, and accelerate the formation's eternal life derivations.
-
-Limitless' chains sought to shackle Fang Yuan, forcing Star Constellation to suppress them lest unchecked countermeasures devastate her Star Constellation Chessboard Formation.
+Even he could not help but pity Star Constellation Immortal Venerable!
 
 # Chapter 2200: Luck Gamble!
 
@@ -17560,103 +17526,95 @@ Such was Luck Gamble's power—uncontrollable by man. The numbers dictated victo
 
 # Chapter 2201: Damn You, Fang Yuan!
 
-Qin Ding Ling won the first gamble; now, Immortal Zombie Giant Sun won.
+Thieving Heaven Demon Venerable had expended his own otherworldly theft path dao marks to refine gamble Gu. Because of its otherworldly nature, the random results of the luck gamble killer move could not be influenced by anyone—not even by a luck path Dao Lord like Immortal Zombie Giant Sun.
 
-However, Immortal Zombie Giant Sun did not feel any joy.
+Qin Ding Ling won the first gamble; now, Immortal Zombie Giant Sun won the second.
 
-Win or lose, Qin Ding Ling would only profit.
+Yet Immortal Zombie Giant Sun felt no joy. Win or lose, Qin Ding Ling only profited. 
 
-First, Qin Ding Ling's luck was far smaller than his, giving her the inherent advantage of gambling with smaller chips.
-
-Second, transferring her abundant bad luck to Immortal Zombie Giant Sun would contaminate his own luck.
-
-Immortal Zombie Giant Sun fell into a dilemma.
-
-Transforming bad luck into good would expend precious immortal essence and mental energy, giving Star Constellation openings.
+As a rank eight Gu Immortal, Qin Ding Ling possessed far less luck than a venerable. Furthermore, against Giant Sun, the mutual interaction of luck turned most of hers into bad luck. Thus, she gambled with smaller chips, and any luck transferred to Giant Sun heavily contaminated his vast positive luck with misfortune. Giant Sun’s combat system relied entirely on having abundant, positive luck. Purifying the bad luck into good luck would waste precious immortal essence and mental energy, giving Star Constellation openings. Worse still, if he lost the subsequent gamble after purifying it, he would merely be gifting high-grade good luck to the enemy.
 
 Bam bam bam...
 
-A chain of self-detonations destroyed over thirty truthful floating ice pieces.
+Over thirty truthful floating ice pieces detonated. Only ten percent of the Crazed Demon formation remained, and forty percent of the eighth layer's great world was left, everything funneling into the central truthful floating ice piece carved fanatically by the three Crazed Demon Eccentrics.
 
-Only about ten percent of the Crazed Demon formation remained!
+With the formation weakening, the upper limit of strength rose. Star Constellation Immortal Venerable’s methods grew increasingly terrifying.
 
-As the Crazed Demon formation weakened, only forty percent of the eighth layer's great world remained, everything channeled into nurturing the central truthful floating ice piece.
-
-Hindered by Qin Ding Ling, Immortal Zombie Giant Sun unavoidably fell into a disadvantage.
+Her combat system integrated the personas of Ming Hao, Yu Xiu, and Feng Ya. Offensively, she relied almost exclusively on Fairy Ming Hao's flying star killer move. Though seemingly simple, each star was part of a consecutive move; repeated strikes stacked accumulated damage until the injuries became grievous. More crucially, by simplifying her offensive methods, Star Constellation shifted her immense wisdom path calculation capacity entirely toward grasping the macro battle situation, utilizing every external resource to dominate.
 
 Swoosh swoosh swoosh!
 
-Stars shot forward, shattering his protective golden light and forcing Immortal Zombie Giant Sun back.
+Stars shattered Giant Sun's protective golden light. He coughed cold corpse blood, starlight burning stubbornly on his chest. 
 
-He coughed up cold, dark corpse blood. Starlight blazed on his chest despite his golden light, leaving him heavily injured!
+"Fang Yuan, stake your life and fight! What are you hesitating for?!" Immortal Zombie Giant Sun darted toward the azure sphere, raining down luck path killer moves. Star Constellation intercepted him instantly, star shadows flickering as she disrupted his move and battered him backward.
 
-"Fang Yuan, stake your life and fight! What are you hesitating for?!" Immortal Zombie Giant Sun suddenly darted toward the azure sphere.
+"These damned fodder!" Zhan Bu Du bellowed, punching apart another Heavenly Court member who would simply revive moments later. Behind him, half of Limitless's chains on Qi Sea Ancestor had dissolved due to the rising power ceiling, but Qi Sea still lacked self-defense and needed constant protection.
 
-Luck path killer moves rained down, attempting to break the sphere and free Fang Yuan.
+Paradise Earth sighed deeply: "If my tomb had not been destroyed, I would have venerable cultivation now and could resolve this predicament."
 
-Guarded against this, Star Constellation Immortal Venerable struck with flickering star shadows, heavily battering Immortal Zombie Giant Sun and disrupting his killer move.
-
-"Help Fang Yuan—he will reinforce Giant Sun Immortal Venerable!" Lu Wei Yin called out.
+"Help Fang Yuan—he will reinforce Giant Sun Immortal Venerable!" Lu Wei Yin urged.
 
 "Everyone, protect me!" Paradise Earth shouted, retreating into the group's center.
 
-The immortals shielded Paradise Earth, buying precious time to unleash his killer move.
+Shielded by the allied immortals, Paradise Earth activated his heaven path killer move: Heavenly Summary Earthly Norm. 
 
-Heaven path killer move — Heavenly Summary Earthly Norm.
+A mysterious aura surged forth like an air wave. This move restored heaven and earth to their natural state, serving as the absolute nemesis to battlefield killer moves. Struck by this power while already under immense strain from Fang Yuan within, the azure sphere collapsed immediately.
 
-A mysterious aura radiated from him, surging toward the azure sphere like a wave.
+Fang Yuan roared, bursting free like a tiger released from its cage.
 
-Already strained under Fang Yuan's pressure, the azure sphere collapsed immediately upon being struck by Heavenly Summary Earthly Norm.
+Yet instead of helping Giant Sun, Fang Yuan cast a multicolored rainbow to sweep up Paradise Earth, charging straight toward Qin Ding Ling!
 
-Fang Yuan shouted, bursting forth like a tiger released from its cage.
+"Paradise Earth, lend me a hand again!"
 
-"Paradise Earth, lend me a hand again!" Fang Yuan cast a multicolored rainbow to carry Paradise Earth, charging straight toward Qin Ding Ling!
+Paradise Earth inhaled sharply, blood leaking from his facial orifices as he unleashed Heavenly Summary Earthly Norm once more. Formless currents dissolved the surrounding starry paths into nothingness.
 
-Heaven path killer move — Heavenly Summary Earthly Norm!
+Without the starry paths, Star Constellation could not instantly reposition Qin Ding Ling. Her eyes glinted cold. Recognizing the trade-off, she abandoned rescuing Qin Ding Ling entirely and hurled her full might at the exposed Immortal Zombie Giant Sun.
 
-Paradise Earth inhaled deeply; activating the move made his orifices bleed and his face turn paper-pale.
+"Damn you, Fang Yuan!" Immortal Zombie Giant Sun roared in fury as his chest was ripped open and his soul heavily injured. 
 
-Formless currents swept forward, disintegrating every starry path in their wake.
+Simultaneously, Fang Yuan struck down and killed Qin Ding Ling.
 
-Without starry paths, Star Constellation Immortal Venerable struggled to reposition Qin Ding Ling.
+Stardust motes poured down. Giant Sun destroyed thousands, but hundreds still penetrated his defenses. Starlight accumulated within his wounds until it blazed like raging fire.
 
-Eyes glinting cold, she abandoned rescuing Qin Ding Ling and fiercely assaulted Immortal Zombie Giant Sun instead.
+Immortal Zombie Giant Sun hovered at the brink of death. 
 
-"Damn you, Fang Yuan!" Immortal Zombie Giant Sun roared, his chest torn open and soul heavily injured.
-
-Meanwhile, Fang Yuan struck down Qin Ding Ling.
-
-Immortal Zombie Giant Sun destroyed most incoming stardust motes, but hundreds still struck him.
-
-Immortal Zombie Giant Sun was close to death.
-
-The final fatal attack!
-
----
+Star Constellation Immortal Venerable unleashed the final fatal attack!
 
 # Chapter 2202: Chu Du's Danger
 
-Northern Plains.
+At Chu tribe headquarters, anxiety filled the hall on the day of the appointed duel.
 
-Chu tribe headquarters.
+"First supreme elder is still in closed cultivation?" Chou Lao Wu rubbed his hands together, his depressed face darkening further. He and Hao Zhen were renowned as the wind and lightning demons, capable of executing the signature killer move wind thunder roar; together, they were Chu tribe's strongest battle strength beneath Chu Du.
 
-"Sigh, where did Fairy Black Moon come from? Her origins are completely mysterious—we cannot uncover a single trace of her background."
+"Relax," Hao Zhen folded his arms. "Since first supreme elder agreed to Fairy Black Moon's challenge, why would he retreat?"
 
-"Not necessarily. She is formidable—undefeated after challenging numerous experts, even recently defeating Liu Chang. Fairy Black Moon reveals new methods in almost every battle. Her totem killer move is her trump card, and she is rumored to be Reckless Savage's inheritor."
+"Actually, avoiding the battle is also an option," Immortal Wang muttered. He was a transformation path Gu Immortal proficient in dog breed transformations.
 
-Facing Fairy Black Moon's challenge, leaving a few unlucky Gu Immortals to guard headquarters, Chu Du led nearly all Chu tribe immortals toward the appointed battlefield.
+Hao Zhen seized Immortal Wang by the collar, furious, until Chou Lao Wu and Li Si Chun pulled them apart. Li Si Chun, a muscular man dressed bizarrely in a flower skirt, urged them to stop fighting in a feminine voice. Immortal Wang snorted coldly: "This is Chu tribe's crisis! If first supreme elder loses, do you know what the consequences will be?"
 
-En route, Huang Jin tribe Gu Immortals appeared and joined Chu Du's group.
+Hao Zhen fell silent. Chu tribe's foundation was inherently fragile. Chu Du had originally founded Chu Sect, but Longevity Heaven and the Huang Jin tribes pressured him to convert it into a tribe. Lacking bloodline descendants, Chu Du adopted strength path disciples as his sons. Following Fate Gu's destruction and rumors of Giant Sun Immortal Venerable's revival, Longevity Heaven pushed to unify Northern Plains by subduing lone and demonic immortals. Those unwilling to bow to Huang Jin rule chose to join Chu tribe and Bai Zu tribe instead. Chu tribe had expanded rapidly, but without genuine blood ties or a formal master-disciple sect system, it was held together solely by Chu Du's personal charisma.
 
-Midway through the journey, Heavenly Lord Bai Zu appeared.
+Now, Fairy Black Moon had challenged Chu Du. Emerging out of nowhere, she possessed peak rank seven battle strength comparable to rank eight, remained undefeated, and had recently bested Liu Chang. Brandishing profound totem killer moves and rumored to be Reckless Savage's inheritor, she had become the banner for Northern Plains' recalcitrant lone and demonic cultivators. To these recalcitrants, Chu Du was Longevity Heaven's running dog; defeating him would establish her unquestioned authority over them.
 
----
+When Li Si Chun floated the idea of seeking Lord Fang Yuan's aid, Immortal Wang flatly rejected it—relying on Fang Yuan would only isolate them from Northern Plains' righteous path, a suicidal blunder once Giant Sun Immortal Venerable revived.
+
+A clamor arose outside as Chu Du's adopted sons and newly recruited immortals arrived, demanding news. Before Hao Zhen could berate them, the bronze secret room doors opened. Chu Du emerged with an indifferent expression, calmly instructing them to hold the line.
+
+Beneath his calm exterior, Chu Du's heart was heavy. The newly recruited immortals were opportunists and spies, while his adopted sons secretly harbored resentment for being forced into strength path and exploited to absorb Reckless Savage's true meaning during their immortal ascensions. If he lost to Fairy Black Moon, Chu tribe's spiritual banner would collapse, leaving them as cannon fodder in the coming chaotic war.
+
+Treating their sparse resource points with indifference, Chu Du had a few Gu Immortals draw lots to guard the headquarters while leading the rest toward the appointed battlefield.
+
+En route, several Huang Jin tribe Gu Immortals joined Chu Du's retinue, setting aside internal prejudice to back Chu Du against an outside challenger.
+
+Midway through the journey, Heavenly Lord Bai Zu appeared. Only then did Chu Du truly breathe a sigh of relief.
 
 # Chapter 2203: Blood Sea Clone
 
 Currently, Heavenly Lord Bai Zu was in Longevity Heaven alongside the current South Desolation Immortal, Yao Huang.
 
 Seeing Heavenly Lord Bai Zu slightly distracted, Yao Huang smiled knowingly: "Bai Zu, who do you favor between Chu Du and Black Moon?"
+
+Retracting his consciousness, Heavenly Lord Bai Zu gave a bitter smile: "Naturally I hope Chu Du wins. Yet Fairy Black Moon is formidable and unpredictable—this will certainly be a fierce clash!"
 
 Amid their discussion, Five Elements Grandmaster flew over: "The formation is complete, please enter."
 
@@ -18288,6 +18246,10 @@ Limitless Demon Venerable smiled: "I do not wish to be your enemy. Having obtain
 
 "How do you want to test it?" Giant Sun Immortal Venerable asked.
 
+"Watch." Limitless Demon Venerable turned around slightly.
+
+Where Limitless Demon Venerable had stood, a tiny hole appeared.
+
 Through this hole, the Gu Immortals saw a vast sea of—Chaos!
 
 "You lunatic, breaching the world boundary again! Aren't you afraid the entire world will be destroyed?" Giant Sun Immortal Venerable called out.
@@ -18712,33 +18674,29 @@ With a loud boom, Spectral Soul Demon Venerable used his own body to block the h
 
 # Chapter 2213: Chu Du Versus Hei Lou Lan
 
-At this ordinary location, tens of Gu Immortals were gathered!
+On a desolate, nameless grassland, tens of Gu Immortals gathered under a hazy gray sky. All eyes were fixed on two figures: Domination Immortal Chu Du and Fairy Black Moon, whose true identity as Hei Lou Lan was known to very few. Having recently defeated Liu tribe expert Liu Chang, Hei Lou Lan had challenged Chu Du to a duel to determine the premier strength path cultivator of the current era.
 
-Chu Du did not back down, he directly agreed.
+Chu Du cordially invited her to visit Chu tribe afterward to exchange cultivation insights, but Hei Lou Lan snorted, stating he must first prove his qualification. Chu Du smiled and yielded the opening move.
 
-Without standing on ceremony, Hei Lou Lan shot into the clouds like lightning.
+Hei Lou Lan soared into the clouds, raining down waves of strength path phantoms like meteors. Chu Du retreated slightly, then pushed his palms outward. A surge of strength shattered the phantoms and dispersed the cloud layer, exposing Hei Lou Lan. Having already prepared her follow-up, she slammed her fists downward, unleashing distorted fist shadows. The blast forced Chu Du back a hundred steps, yet he simply brushed dust from his sleeves, completely unharmed.
 
-Hei Lou Lan initiated the battle with aggressive strength path techniques. Chu Du stood firm as a mountain while Hei Lou Lan displayed outstanding ranged methods; after ten rounds, both charged and clashed in the center.
+After more than ten rounds of long-ranged probing, the two charged and clashed in close quarters. 
 
-Before the watching crowd, the two traded punches and kicks in an intense brawl.
+Strength path excelled in melee combat. Their rapid punches and kicks distorted the air with thunderous booms, leaving no breathing room to activate conventional killer moves. However, as another ten rounds passed, Chu Du’s immensely rich combat experience began to tell. His foundation far surpassed Hei Lou Lan's, allowing him to gradually gain the upper hand and steadily suppress her.
 
-More than ten rounds passed again.
+Watching from the sidelines, Chen Cheng and Yin Wu Que wore grim expressions.
 
-Chu Du gradually gained the upper hand.
+"This cannot go on, I need to take a risk!" Hei Lou Lan resolved. She unleashed a furious flurry of blows, then sprang backward to activate a killer move. But Chu Du had anticipated the maneuver; he closed the distance with shocking speed.
 
-Though Hei Lou Lan was powerful and versatile, her combat experience still paled compared to Chu Du's.
+Forced to abruptly halt her killer move midway to defend, Hei Lou Lan suffered severe activation backlash and heavy internal injuries. Chu Du seized the opening ruthlessly, battering her into complete defense. Cheers erupted from Chu tribe's supreme elders and Chu Du’s god-children.
 
-"This cannot go on, I need to take a risk!" Hei Lou Lan's gaze flashed sharp as a blade.
+Pushed to the brink, Hei Lou Lan’s body shook: Totem killer move — Dark Capital Strength Biao!
 
-Halting the killer move midway caused severe backlash, inflicting heavy internal injuries on Hei Lou Lan.
+A winged black tiger roared into existence. Its massive claws swatted Chu Du away, then it vanished and reappeared directly behind him. Though Chu Du managed to guard in time, the tremendous impact hurled him toward the ground like a cannonball.
 
-Totem killer move — Dark Capital Strength Biao!
+"This totem killer move is too convenient," Chou Lao Wu observed coldly. "It remains dormant on the skin and can be unleashed with a single thought."
 
-At the next moment, Hei Lou Lan's body shook.
-
-A tiger roared, its huge black claws sent Chu Du flying.
-
-Chu Du swiftly defended, but even after blocking the dark capital strength biao's strike, he was hurled like a cannonball toward the ground.
+Hao Zhen gritted his teeth: "If not for this move, our first supreme elder would have obtained victory already."
 
 # Chapter 2214: You Have Won This Battle
 
@@ -19350,41 +19308,35 @@ Smiling kindly, Fang Yuan said: "Rise. Having joined my alliance first, you shal
 
 # Chapter 2220: Blending of Black and White
 
-In Profound Literature grotto-heaven, Old Immortal Hua Yu observed the turbulent fusion of the two heavens. "Sigh! To think Qi Sea Ancestor was actually Heaven Refining Demon Venerable's clone!"
+Li Xiao Bai waited in ambush alongside several information path Gu Immortals from Profound Literature grotto-heaven. Though a rank six Gu Immortal and a great scholar, he acted obediently, earning the favor of the Imperial Court seniors.
 
-"Fang Yuan is crafty and scheming. Had Heavenly Court and Longevity Heaven not exposed him, I would still be used."
+Soon, a pack of over three hundred remnant heavenly dogs and four heaven swallowing hounds appeared. Remnant heavenly dogs were space path ancient desolate beasts, while heaven swallowing hounds were immemorial desolate beasts that fed on grotto-heavens and nine heavens fragments, posing a constant danger to the two heavens' forces.
 
-"Calling himself Great Love Immortal Venerable can only deceive idiots."
+Profound Literature's immortals activated an information path killer move, misleading three heaven swallowing hounds and most of the pack toward a group of soul beasts disguised to appear like an immortal aperture. The remaining heaven swallowing hound, accompanied by over twenty remnant heavenly dogs, fell directly into a battlefield killer move set in advance by Old Immortal Hua Yu.
 
-"I cannot trust outsiders. Only these Gu Immortals before me are trustworthy."
+Hua Yu slew the immemorial beast, though its wild Immortal Gu was destroyed in the fight. When several remnant heavenly dogs slipped through the cracks of the battlefield killer move, Li Xiao Bai and the others swiftly eliminated them. Hua Yu smiled warmly at Li Xiao Bai, viewing him as the grotto-heaven's brightest talent and future pillar.
 
-"With the heavenly wind qi wall dissipated, the two heavens' fusion intensifies. Beyond beast clashes, dao marks are undergoing drastic shifts. Some conflict while others blend into stronger, inseparable effects."
+Yet inwardly, Hua Yu was fraught with distress.
 
-"I cannot drag this on anymore."
+"To think Qi Sea Ancestor was actually Heaven Refining Demon Venerable's clone!"
 
-"Fang Yuan has absorbed Eastern Sea's righteous path; our forces cannot watch idly."
+Fang Yuan had deceived him completely. Old Immortal Hua Yu had held Qi Sea Ancestor in high esteem, but the truth revealed by Heavenly Court and Longevity Heaven filled him with rage and humiliation. Calling himself Great Love Immortal Venerable could fool no one, yet who dared mock a venerable? Lu Wei Yin and Shen Shang had already led Eastern Sea's righteous path super forces to submit, folding the Righteous Qi Alliance into the Heaven and Earth Great Love Alliance.
 
-"Should we join Fang Yuan, Heavenly Court, or Longevity Heaven?"
+Moreover, the heavenly wind qi wall of the two heavens had dissipated, causing black and white heaven to violently fuse. Dao marks clashed or blended, while desolate beasts rampaged endlessly.
 
-Profound Literature grotto-heaven had previously joined the Righteous Qi Alliance to safeguard itself.
+"I cannot drag this on," Hua Yu thought. Profound Literature grotto-heaven had to choose between Fang Yuan, Heavenly Court, and Longevity Heaven. Joining Fang Yuan was geographically closest, but Fang Yuan possessed the sovereign immortal aperture and craved grotto-heavens for annexation. Sacrificing their homeland was unacceptable.
 
-Now, joining Fang Yuan was the most convenient outcome.
+Meanwhile, inside Longevity Heaven.
 
-Yet they could not preserve Profound Literature grotto-heaven.
+At the center stood Calamity Luck Altar, flanked by the Four Desolations and surrounded by the Eight Extremities. Golden and green radiance bathed the surroundings.
 
-Fang Yuan's sovereign immortal aperture made all grotto-heavens prime targets for annexation.
+A soft sound echoed as the last star path dao marks lingering on Giant Sun Immortal Venerable's body burned to ash and vanished.
 
-Unable to keep their homeland, why join Fang Yuan?
+"My injuries are finally healed," Giant Sun exhaled. "Next, I must refine the luck path dao marks of the five regions and two heavens to regain my power as a Dao Lord!"
 
-Giant Sun Immortal Venerable had returned to Longevity Heaven some time ago.
+During the battle in Crazed Demon Cave, neither he nor Star Constellation Immortal Venerable could wield genuine venerable-level amplification because the void possessed no natural dao marks. In contrast, Spectral Soul Demon Venerable had enjoyed the terrifying boost of countless soul path dao marks within the Door of Life and Death, though his madness prevented him from being a true Dao Lord.
 
-The last star path dao marks on Giant Sun Immortal Venerable vanished completely.
-
-"My injuries are healed." Giant Sun exhaled. "Next, I must refine the world's luck path dao marks as a Dao Lord!"
-
-Giant Sun had refined the world's luck dao marks in his era, but on death they reverted to Heavenly Dao.
-
-Thus, he had to refine them anew to utilize them.
+Giant Sun had refined the world's luck path dao marks during his prime, but upon his death, they had reverted to Heavenly Dao. To wield absolute might once more, he had to refine them anew.
 
 # Chapter 2221: Fang Yuan's Principles
 
@@ -19480,63 +19432,45 @@ Once Fang Yuan displayed sufficient sincerity, the five regions' Gu Immortal wor
 
 Western Desert.
 
-Gu Immortals Shi Kang, Zuo Qiu Yan Ming, and Tuoba Feng Yan received orders from their respective super clans. Just as they prepared to return, all three received simultaneous orders from their clans.
+An immemorial dragon crocodile crashed onto the desert sand and died, spewing fire from its mouth.
 
-"Oh? Wan clan wants to gather the clans and attack Fang clan together?"
+Three rank seven Gu Immortals emerged from its belly: Shi Kang of Shi clan, Zuo Qiu Yan Ming of Zuo Qiu clan, and Tuoba Feng Yan of Tuoba clan. Shi Kang cultivated earth path while the other two cultivated fire path. Due to the fusion of the two heavens, a displaced group of dragon crocodiles had wandered into Western Desert, prompting their three super clans to dispatch them to eradicate the beasts.
 
-"Hehe, so Wan clan is the first to act after all."
+Having slain the final beast and divided the spoils, all three received simultaneous orders from their respective clans just as they prepared to return.
 
-"Being closest to Wan clan's territory, we received this order together."
+Wan clan was rallying the super forces to launch a joint crusade against Fang clan.
 
-After discussing briefly, the three immortals decided to travel together.
+Realizing they were closest to Wan clan's territory, the trio agreed to travel together.
 
-Shi Kang smiled thoughtfully: "We will pass myriad ore desert on the way to Wan clan. My clansman Shi Zhong guards it; we can rest there."
+Shi Kang smiled: "We will pass myriad ore desert on the way to Wan clan. My clansman Shi Zhong guards that resource point; we can rest and reorganize inside its immortal formation."
 
-Above the Primordial Domain, there was a will.
+Shi Zhong was an ostracized Gu Immortal. His father had betrayed Shi clan, inflicting catastrophic losses in lives and resources. Though he changed his name to Zhong to profess loyalty, the clan still relegated him to this desolate desert to oversee rockmen mining ores.
 
-Taking humanoid form in white robes and black hair with peerless features, it was Fang Yuan's will.
+Shi Zhong's sole hope of breaking free lay in an incomplete Immortal Gu recipe for the legendary wealth Gu. In secret, he had even committed demonic acts by using humans to refine Gu, but after over a hundred failures, he was nowhere near success.
 
-"Heaven Refining Demon Venerable..."
+Inside treasure yellow heaven, Shi Zhong's divine sense observed the massive piece of Primordial Domain that Fang Yuan had acquired from Giant Sun Immortal Venerable during the battle of Crazed Demon Cave and openly displayed. Above it sat Fang Yuan's will, handsome in white robes and black hair.
 
-"If I ask him to refine Gu, can I obtain wealth Gu?"
+Shi Zhong had considered asking Heaven Refining Demon Venerable to refine wealth Gu, but quickly dismissed the thought. If he handed over the recipe, a venerable could simply seize the finished Gu, leaving him utterly helpless.
 
-"No, that is too risky."
+Alerted by the defensive formation, Shi Zhong exited treasure yellow heaven to welcome the three visitors.
 
-"Wealth Gu is my hope; if he succeeds and keeps the Gu, I would be helpless against a venerable!"
+Shi Zhong hosted a banquet, offering the seat of honor to Shi Kang. Shi Kang was a favored clan member who had recently obtained Sand Heap blessed land and retained all his dragon crocodile spoils as private property.
 
-Shi Zhong had heard Fang Yuan's declaration, but dared not take the risk.
+Over wine, Shi Kang inquired about Wan clan's upcoming crusade.
 
-The three entered the formation to rest, and Shi Zhong hosted a banquet.
+Zuo Qiu Yan Ming noted that Wan clan's long-standing grudge justified their initiative, but warned it would cause future trouble.
 
-Over drinks, Shi Kang asked, "What do you both think of Wan clan rallying forces to attack Fang clan?"
+Tuoba Feng Yan agreed: "First, with the regional walls gone, border clans hesitate to commit their forces. Second, Fang clan is formidable, boasting a rank eight first supreme elder and exceptional Immortal Gu Houses. Third, Fang clan earned great renown and strong connections during the fate war. Fourth, and most importantly: while Wan clan cites Fang clan's dealings with Fang Yuan, everyone fears provoking Fang Yuan himself. Who knows their true ties?"
 
-Zuo Qiu Yan Ming said: "Wan clan's grudge makes a crusade unsurprising, but will cause future trouble."
+Shi Kang nodded, satisfied that their clans shared Shi clan's cautious stance.
 
-"Agreed." Tuoba Feng Yan put down his cup: "First, regional walls are gone, and border clans hesitate to make bold moves."
+After seeing the guests off, Shi Zhong felt heavy-hearted over the contrast between his plight and Shi Kang's favored life. Dejected by his own slim prospects of refining wealth Gu, his divine sense drifted back into treasure yellow heaven.
 
-"Second, Fang clan is formidable, boasting a rank eight first supreme elder and exceptional Immortal Gu Houses!"
+Suddenly, Fang Yuan's will opened its eyes and announced grandly: "Rank seven movement Immortal Gu, capture wind Gu, has been refined as requested by Southern Border's Wu Yong. We consummate the deal now."
 
-"Third, Fang clan maintains strong ties and elevated renown from the fate war!"
+Treasure yellow heaven erupted in shock.
 
-"Fourth, targeting Fang clan over trading with Fang Yuan risks provoking him: who knows their true ties?"
-
-Shi Kang nodded continuously, sighing: "Brother Tuoba's analysis is sound and clear, I agree completely."
-
-After the meal, the three thanked Shi Zhong before setting off for Wan clan.
-
-Shi Zhong stored away the cups, he had a heavy mood.
-
-Thus, unknowingly, he entered yellow heaven again with his divine sense.
-
-In treasure yellow heaven, Fang Yuan's will announced: "Rank seven capture wind Gu is refined for Wu Yong. We consummate the deal now."
-
-"What?" Shi Zhong was shocked.
-
-At that moment, every Gu Immortal in treasure yellow heaven gasped.
-
-Under everyone's gaze, Wu Yong's will approached and received rank seven capture wind Gu.
-
-Wu Yong's will nodded wordlessly and departed treasure yellow heaven with the new Immortal Gu.
+Under countless divine senses, Wu Yong's will approached, accepted the newly refined rank seven capture wind Gu, nodded wordlessly, and departed.
 
 "Someone actually transacted with Fang Yuan—and it's Southern Border's Wu Yong!" Shi Zhong was dazed.
 
@@ -20094,9 +20028,11 @@ Both killer moves struck the ancient cloud beast, detonating it with a thunderou
 
 The beast's remains dissolved into clouds of immortal materials; after gathering them, Zhao Lian Yun's group rested on the spot.
 
+Zhao Lian Yun turned to Yu Yi Ye Zi, smiling as she handed him a refinement path true inheritance: "I got it."
+
 Yu Yi Ye Zi was thrilled: "My refinement path inheritance is eight refinement gates; to think the rumors were true and a past Spirit Affinity House fairy built the ninth gate upon it! Fairy Lian Yun, how can I ever repay you?"
 
-Zhao Lian Yun joked bitterly: "When you two advance to rank seven or eight, remember to look out for me."
+Zhao Lian Yun shook her head with a smile: "It was within my ability and your good fortune. Fortunately, as the current generation fairy, I have the authority to retrieve this true inheritance." She joked bitterly: "When you two advance to rank seven or eight, remember to look out for me."
 
 Shi Zheng Yi and Yu Yi Ye Zi's expressions dimmed slightly.
 
@@ -20844,45 +20780,43 @@ Fang Yuan laughed heartily: "Do I need your help? I can easily handle this. You 
 
 # Chapter 2236: Secretly Unsealing Truthful Floating Ice
 
-By emphasizing 'Central Continent, Northern Plains', Fang Yuan was blatantly threatening their territories.
+Fang Yuan continued unsealing immemorial soul beasts, allowing Spectral Soul Demon Venerable to devour them. By emphasizing 'Central Continent, Northern Plains', he blatantly threatened the two venerables' domains.
 
-Star Constellation transmitted: "Giant Sun, Heaven Refining is at his weakest right now. He poses a far greater threat than Spectral Soul! Why don't we..."
+Star Constellation and Giant Sun saw through his extortion. Fang Yuan had the weakest foundation and the least immortal essence; in a prolonged clash against Spectral Soul, he risked running dry and facing their combined assault. Yet neither venerable dared push him too far. Gu Immortals typically followed unspoken rules and avoided targeting mortals, but Fang Yuan had zero bottom line. If forced into a corner, he would slaughter Giant Sun's descendants and Central Continent's mortals without hesitation.
 
-Before she could finish, Giant Sun interrupted: "Make your move first, Star Constellation, and I will support you!"
+Star Constellation secretly transmitted: "Giant Sun, Heaven Refining spent vast immortal essence guarding heaven form and is at his weakest. He poses a far greater threat than Spectral Soul! Why don't we..."
 
-Star Constellation Immortal Venerable snorted: "Giant Sun, your words lack sincerity."
+"Make your move first, Star Constellation, and I will support you!" Giant Sun interrupted.
 
-Giant Sun spoke pleasantly, but his best interest lay in watching Star Constellation and Heaven Refining battle each other.
+Star Constellation snorted: "Your words lack sincerity."
 
-"It seems we cannot kill Fang Yuan or Spectral Soul Demon Venerable this time," Star Constellation Immortal Venerable sighed internally. "Why waste more time here?"
+Whoever struck first would bear Fang Yuan's retaliation. Giant Sun secretly reproached her for not stalling earlier to drain more of Fang Yuan's essence on heaven form. Star Constellation countered that Fang Yuan had decisively sacrificed the white heavenly spirit—unaware that Fang Yuan had simply prioritized refining rank nine Heavenly Essence Treasure Imperial Lotus.
 
-Snorting coldly, Star Constellation spoke aloud: "In that case, let us drop this. Until we meet again, everyone!"
+Seeing no opportunity to strike, Star Constellation announced her departure and left. Giant Sun smiled at Fang Yuan and departed as well.
 
-Saying so, she turned around to leave.
+Fang Yuan feigned anger, transmitting: "You leave so abruptly? Spectral Soul has lost his sanity, yet you let him slaughter innocents? How can you call yourselves Immortal Venerables?"
 
-Giant Sun smiled at Fang Yuan and left just as quickly.
+Giant Sun chuckled: "Fang Yuan, powerless excuses are merely the cry of the weak."
 
-Fang Yuan intentionally lingered, feigning hesitation before retreating while Spectral Soul Demon Venerable gave chase.
+"Good, good, good!" Fang Yuan gritted his teeth. He deliberately retreated slowly, drawing Spectral Soul Demon Venerable's pursuit, before activating a battlefield killer move to conceal himself. Losing his target, the frenzied Spectral Soul lingered outside, roaring relentlessly.
 
-After toying with him for a while, Fang Yuan activated a battlefield killer move to conceal himself once more.
+Returning to Heavenly Court, Star Constellation was satisfied: "Good. While Fang Yuan is trapped, I can refine Heavenly Court's wisdom path dao marks."
 
-Losing his target, Spectral Soul Demon Venerable lingered in the area, growling furiously and refusing to depart.
+Giant Sun returned to Longevity Heaven. In this contest, Star Constellation had refined more wisdom path dao marks in Northern Plains than he had refined luck path dao marks in Central Continent. Utilizing Longevity Heaven's luck path dao marks, Giant Sun inspected their luck. Star Constellation's luck had grown slightly. Fang Yuan's luck remained a broken cooking stove.
 
-Returning to Heavenly Court, Star Constellation Immortal Venerable observed this with satisfaction: "Good. While Fang Yuan is trapped, I can refine Heavenly Court's wisdom path dao marks."
+However, Giant Sun frowned as he inspected his own luck. Although it had strengthened, a looming external threat had expanded significantly.
 
-En route to Northern Plains, Giant Sun Immortal Venerable thought: "Fang Yuan suffered the heaviest losses in this three-way contest, losing the rank nine killer move heaven form, several Immortal Gu, and valuable immortal essence. Had he not craftily aided Spectral Soul Demon Venerable, his plight would be even worse."
+"Heavenly Court is indeed my greatest enemy," Giant Sun concluded, suspecting Star Constellation or unrevived venerables rather than the seemingly crippled Fang Yuan. He considered attacking Heavenly Court before Star Constellation refined its ancient wisdom path foundation, but abandoned the thought; without heaven form or luck path channels, an assault would merely waste essence and allow Fang Yuan to catch up. He departed to refine Northern Plains' luck path dao marks.
 
-Fang Yuan remained 'trapped' in his battlefield killer move while Spectral Soul Demon Venerable lingered outside.
+Meanwhile, inside his battlefield killer move, Fang Yuan remained concealed while Spectral Soul guarded the perimeter.
 
 "I will feign weakness a while longer to lower both venerables' guard."
 
-Obscured heavenly secret's temporary heaven path dao marks were now densely woven around him like a massive fishing net.
+Fang Yuan praised the killer move obscured heavenly secret. Its temporary heaven path dao marks were woven around him like a dense fishing net, thoroughly deceiving Giant Sun's luck inspection.
 
 Inside the sovereign immortal aperture, Heavenly Essence Treasure Imperial Lotus's first bloom yielded ninety-nine yellow apricot immortal essence beads!
 
-His eyes flashing, Fang Yuan rapidly burned yellow apricot immortal essence to activate a heaven path method.
-
-With this heaven path killer move, he began unsealing the truthful floating ice obtained from Crazed Demon Cave.
+Fang Yuan's eyes flashed as he rapidly burned yellow apricot immortal essence to activate a heaven path killer move, beginning to unseal the truthful floating ice obtained from Crazed Demon Cave.
 
 # Chapter 2237: Heaven Path Master
 
