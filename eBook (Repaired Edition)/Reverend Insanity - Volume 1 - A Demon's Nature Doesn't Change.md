@@ -6,6 +6,8 @@
 
 Fang Yuan's deep green robes were torn to shreds, his hair disheveled and his body covered in blood. He looked around.
 
+Enemies from the major righteous factions surrounded him on all sides, leaving no way out. His death was a foregone conclusion, yet his expression remained calm.
+
 Looking at the setting sun, Fang Yuan laughed softly. "The sun sets above the blue mountain, the autumn moon with the spring wind. Morning fine as hair, night like snow; success or failure, looking back, nothing remains."
 
 Originally a scholar who crossed over from Earth, he had endured over five hundred grueling years in the blink of an eye.
@@ -34,11 +36,15 @@ With splendid talent, the youth had already reached rank three Gu Master after j
 
 Another elder nodded, "Still, Fang Zhi's line produced a young genius who recited poetry at five. Exceptionally intelligent, though orphaned early and raised by his aunt and uncle."
 
+The Gu Yue clan head was the last to walk out of the ancestral temple. After closing the door, he heard the elders discussing in the corridor.
+
 He knew immediately that the elders were discussing the youth named Gu Yue Fang Yuan.
 
 As clan head, he naturally paid attention to prominent youths, and Gu Yue Fang Yuan was the most eye-catching among them.
 
 With A grade potential, he could rival Bai Ning Bing; even with B grade, he would become a pillar of the Gu Yue clan. Given such precocious intelligence, an A grade was far more likely than a B grade.
+
+Walking to the corridor window, the clan head looked out over Gu Yue Village, where most homes still had their lights on late into the night. "This is the hope for the clan's future," he sighed, the lights dancing in his eyes.
 
 At that very moment, a pair of clear eyes watched the sparkling lights with deep, complex emotions.
 
@@ -48,6 +54,9 @@ The Spring Autumn Cicada could reverse time. Ranked seventh among the Ten Great 
 
 Listening to the soft drizzle against the windowsill, he closed his eyes. "Five hundred years of experience... it really feels like a dream," he sighed.
 
+But he knew clearly that this was definitely not a dream.
+
+
 # Chapter 2: Going back in time with 500 years of knowledge
 
 Legend held that a River of Time sustained the world's flow. By using the Spring Autumn Cicada's power, one could travel upstream into the past.
@@ -55,6 +64,8 @@ Legend held that a River of Time sustained the world's flow. By using the Spring
 Fang Yuan sighed. Despite his rebirth, the Spring Autumn Cicada had not accompanied him.
 
 Humans are the spirit of all living beings; Gu are the essence of heaven and earth.
+
+Gu came in countless strange and mysterious varieties. Some could be reused repeatedly within their limits, while others dissipated completely after one, two, or three uses. The Spring Autumn Cicada was likely a single-use Gu that vanished forever once activated.
 
 "Even if it is gone, I can refine another. I did it in my past life, so why not this one?" Setting aside his regret, ambition and resolve surged within Fang Yuan.
 
@@ -86,13 +97,17 @@ Under the pretext of raising them, their aunt and uncle seized their parents' in
 
 He had originally intended to hide his abilities and bide his time, but hardship forced Fang Yuan to reveal some of his talent.
 
+That so-called talent was simply a mature intellect carrying a few famous ancient poems from Earth.
+
 Under widespread attention, young Fang Yuan maintained a cold, indifferent demeanor to protect his secrets, which eventually became an ingrained habit.
 
 Consequently, his aunt and uncle softened their treatment. As he grew, promising better prospects, they treated him increasingly well—not out of love, but as an investment.
 
 Hilariously, his younger brother never saw the truth; deceived by their aunt and uncle, he only harbored buried resentment. Though he seemed honest and good-natured now, Fang Yuan remembered that once his brother was revealed as an A grade talent, the clan poured everything into raising him. With all that buried jealousy and hatred unleashed, Fang Zheng would repeatedly target, suppress, and make life difficult for his older brother.
 
-As for his own grade, it was only C grade talent.
+As for Fang Yuan himself, he only possessed C grade talent.
+
+A pair of twins—the elder hailed as a genius for over a decade turned out to have C grade talent, while the overlooked younger brother had A grade talent. The Awakening Ceremony shocked the entire clan, and the brothers' treatment reversed overnight, leaving Fang Yuan to face his brother's hostility, his aunt and uncle's cold eyes, and the clan's contempt.
 
 In his previous life, Fang Yuan hated his lack of talent and the heartless clan. But with five hundred years of experience, his heart was entirely calm, without hatred.
 
@@ -102,7 +117,10 @@ Whoever blocked his pursuit of immortality, he would kill. This path made the wo
 
 "Revenge is not my intention; the demonic path does not compromise." Chuckling, he glanced faintly at his brother. "You may leave."
 
+Fang Zheng's heart trembled. His brother's eyes were sharp as ice blades, seemingly piercing the deepest corners of his heart. Under that gaze, he felt stripped bare in the snow, unable to hide a single secret.
+
 "Then I'll see you tomorrow." Not daring to say anymore, Fang Zheng slowly closed the door and left.
+
 
 # Chapter 3: Please go aside and scram
 
@@ -130,9 +148,11 @@ In his past life he had been blind to his brother's thoughts, but now he underst
 
 The two brothers left the house, encountering many peers in small groups along the way, all heading toward the same destination.
 
+Cautious whispers reached their ears: "Look, that's Fang Yuan in front—the one who composed those poems." "He looks completely indifferent, just as arrogant as the rumors say."
+
 "Outstanding talent truly invites jealousy," Fang Yuan sneered inwardly as he listened to the surrounding gossip.
 
-He recalled his aunt and uncle's scheming—assigning Shen Cui to spy on him while giving his brother an old wet nurse, alongside countless other disparities.
+He recalled his aunt and uncle's scheming—assigning Shen Cui to spy on him while giving his brother an old wet nurse, alongside countless other disparities. All these actions had a purpose: to breed resentment in his younger brother's heart and drive a wedge between them. People do not worry about having little, but about inequality. In his past life, his brother had been too naive, and their aunt and uncle had succeeded.
 
 With the Awakening Ceremony already upon him, the situation seemed set; yet with Fang Yuan's demonic wisdom, changing it was no impossible feat.
 
@@ -140,7 +160,10 @@ He could easily suppress his brother, take Shen Cui as a concubine, and defeat h
 
 "But, I don't feel like doing that…" Fang Yuan sighed carefreely.
 
+So what if he was his brother? Without blood ties, he was merely an outsider. So what if Shen Cui was pretty? Without loyalty, she was just a bag of flesh. And his aunt, uncle, and the clan elders? Mere passersby in life—why waste energy competing with them?
+
 As long as you do not block my way, you can scram aside; I need not care about you.
+
 
 # Chapter 4: Gu Yue Fang Yuan
 
@@ -182,7 +205,7 @@ Reaching the opposite bank, the lights entered his body; he stopped after walkin
 
 "Gu Yue Chi Cheng, huh…" In the crowd, Fang Yuan stroked his chin. In his memory, the clan heavily punished Chi Cheng for cheating in the Awakening Ceremony. Chi Cheng only had C grade talent, but his grandfather Gu Yue Chi Lian helped him fake a B grade result.
 
-Chi Cheng was different; his grandfather Gu Yue Chi Lian was one of the clan's two most authoritative elders, capable of covering for him.
+Fang Yuan possessed numerous methods to cheat if he wished, but having just been reborn, he lacked the time to prepare and could never fake his subsequent cultivation speed. Chi Cheng, however, was different; his grandfather Gu Yue Chi Lian was one of the clan's two most authoritative elders, fully capable of covering for him.
 
 "Gu Yue Chi Lian and Gu Yue Mo Chen are the clan's two chief rivals. To suppress his opponent, Chi Lian needed his grandson to display outstanding talent. With his grandfather's backing, Chi Cheng concealed the truth for a time. In my memories, if not for that incident, it would never have been exposed."
 
@@ -192,9 +215,12 @@ Exposing it now would yield only a minor reward while offending the powerful Gu 
 
 As he pondered, the academy elder called out, "Gu Yue Fang Yuan!"
 
+
 # Chapter 5: The First Human and 3 Gu, Hopes Awakening
 
 It's getting more and more exciting, Fang Yuan chuckled inwardly. Under the crowd's gaze, he crossed the river to the opposite bank.
+
+He could feel a layer of pressure bearing down on him from the spirit spring deep in the flower sea, where the primeval qi was exceedingly rich.
 
 Soon, specks of light rose from the flowers beneath his feet, enveloping his body before entering him.
 
@@ -209,6 +235,8 @@ He gave his youth to the largest Gu, which granted him strength in return.
 With strength, Ren Zu secured food and defeated many Predicaments, but soon realized strength was not everything.
 
 Bitterly reflecting on this lesson, Ren Zu offered his prime middle years to the most beautiful Gu, which granted him wisdom.
+
+With wisdom, Ren Zu learned to think and reflect, accumulating experience. Relying on both wisdom and strength, he conquered goals he previously could not and defeated many Predicaments, surviving with tenacity.
 
 Yet Ren Zu aged rapidly after surrendering his youth and middle age; his muscles withered and his mind slowed.
 
@@ -238,7 +266,8 @@ At the twenty-seventh step, the orb of light between his kidneys reached its lim
 
 Focusing inward, Fang Yuan saw an aperture had formed out of thin air below his navel.
 
-The Awakening Ceremony was a success!
+The Awakening Ceremony was a success! This was the hope to immortality!
+
 
 # Chapter 6: The road to the future will be interesting
 
@@ -296,6 +325,7 @@ Lowering his head, Fang Zheng waded forward in a daze until he stood deep in the
 
 "Silence! No one is more qualified to raise this child than the clan head!" Gu Yue Bo glared fiercely around the hall.
 
+
 # Chapter 7: A Gu Master has 9 ranks, Flower Wine leaves behind treasure
 
 Soon a week passed.
@@ -312,7 +342,7 @@ A youth raised his hand and, upon receiving permission, asked, "Elder, we know t
 
 The Gu Yue teacher nodded and waved his hand to ask the young man to sit down. "Gu Masters have 9 ranks, from bottom to top—Rank one, Rank two, Rank three all the way up to Rank nine. Each rank is a major realm divided into four minor realms: initial, middle, upper, and peak stage. As newly awakened Gu Masters, you are all at Rank one initial stage."
 
-"For D grade talent, the Primeval Sea takes up about 2-3 layers of the aperture, the highest promotion reachable is Rank one to Rank two. For C grade talent, the Primeval Sea is 4-5 layers of the aperture. Such exceptional talent is best suited for cultivation, capable of reaching Rank five."
+"For D grade talent, the Primeval Sea takes up about 2-3 layers of the aperture, capping advancement at Rank two. For C grade talent, the Primeval Sea is 4-5 layers, usually stopping at Rank two. B grade talents have a Primeval Sea that takes up 6-7 layers of the aperture, able to cultivate to Rank three or even Rank four. As for A grade talent, the Primeval Sea takes up 8-9 layers; such exceptional talent is naturally the most gifted and capable of reaching Rank five."
 
 "Gu Masters of Rank six and above are legendary. Our clan has never produced a Rank six, though we have had Rank four and five masters."
 
@@ -333,6 +363,7 @@ For days Fang Yuan had bought wine and roamed the village at night, hoping the s
 "Refining that Liquor worm into my vital Gu would be far better than the clan's Moonlight Gu. It's already April; time is running out." Fang Yuan sighed, gazing out the window.
 
 As class ended, the elder announced, "You have learned to inspect your Primeval Sea and circulate primeval essence. Now you must refine your vital Gu. Head to the Gu room after class, pick a Gu worm, and return home to refine it. Only after succeeding may you return to class. This is your first assessment—the first to finish will receive twenty primeval stones."
+
 
 # Chapter 8: Things will always be things, but humans will change
 
@@ -378,6 +409,7 @@ Fang Zheng sharpened his glare and turned back, but Fang Yuan was already walkin
 
 The accumulated tension in Fang Zheng's chest abruptly dissipated into helpless frustration. Seeing his brother pull ahead, Fang Zheng quickened his pace to catch up, lifting his head toward the sun and fixing his eyes on his own feet stepping firmly onto Fang Yuan's shadow.
 
+
 # Chapter 9: Two people who start on the same road, gradually becoming distant
 
 In the dimly lit living room, Aunt and Uncle sat high in their chairs, their expressions hidden in shadow.
@@ -412,7 +444,7 @@ But Fang Yuan still shook his head.
 
 As the sun set and darkness filled the room, Uncle's cold voice broke the silence. "It seems that brat Fang Yuan saw through our plan."
 
-Clan regulations stipulated that an eldest son could inherit family property at sixteen. Fang Yuan's deceased parents had left a fortune, which Aunt and Uncle were currently managing. That inheritance far exceeded two hundred primeval stones, but adoption would forfeit his claim.
+Clan regulations stipulated that an eldest son could inherit family property at sixteen. Fang Yuan's deceased parents had left a fortune, which Aunt and Uncle were currently managing. That inheritance far exceeded two hundred primeval stones, but both adoption and declaring early independence at fifteen would forfeit his claim.
 
 "Fortunately, we secured Fang Zheng, and Fang Yuan only has C-grade talent," Uncle sighed in relief.
 
@@ -426,13 +458,18 @@ Uncle hissed, "We have Shen Cui seduce him and cry assault, blaming it on drunke
 
 Matron Shen was their trusted head housekeeper in charge of all household servants, and Shen Cui, Fang Yuan's maid, was her daughter.
 
-"Aunt and Uncle are likely plotting to frame and expel me, just like in my past life."
+Walking along the dark streets, Fang Yuan sneered inwardly. "Aunt and Uncle are likely plotting how to frame and expel me right now, just as they did in my past life."
 
 "All beginnings are difficult, especially for me. I lack exceptional talent and have no mentor to guide me. In my past life, Aunt and Uncle stole my inheritance, costing me two full years just to reach Rank one peak stage. I cannot repeat that mistake."
 
 Carrying the two wine jars, he headed toward the village outskirts instead of going home.
 
 Mountain rain approached, but with inheritance locked until sixteen, the Flower Wine Monk's treasure was his only immediate hope.
+
+The further Fang Yuan walked from the village, the sparser the houses became and the dimmer the lights grew. Before him lay deep darkness as the mountain wind howled against the swaying trees, sounding like roaring beasts. Yet his steps never faltered, carrying him alone into the wild.
+
+Behind him, in the warm heart of the village, Fang Zheng sat in a brightly lit room with a cup of hot ginseng tea, shielded from the cold. When Shen Cui entered with hot bath water, her eyes brimmed with fawning sweetness. Fang Yuan was merely a C-grade talent, but Fang Zheng was an A-grade genius—and she knew where her future lay.
+
 
 # Chapter 10: A storm may arise from a clear sky, refining Gu is full of hardships
 
@@ -482,6 +519,7 @@ Stowing the Moonlight Gu, Fang Yuan got off the bed. Just as he went to open the
 
 Maid Shen Cui called from outside, "Young Master Fang Yuan, I brought food and wine to cheer you up."
 
+
 # Chapter 11: It’s just power play
 
 Fang Yuan frowned slightly. With five hundred years of experience, he immediately smelled a conspiracy.
@@ -510,6 +548,8 @@ Gazing coldly, Fang Yuan gripped her neck and squeezed as she choked in terror. 
 
 Shen Cui gasped greedily for air, coughing violently. Fang Yuan gave a light chuckle, gently caressing her cheek. "Shen Cui, do you think I can kill you, or not?"
 
+Under the gaze of his pitch-black, emotionless eyes, a deep fear seized Shen Cui from the bottom of her heart. Paralyzed with terror, her body trembled and her face turned pale as paper, unable to utter a single word.
+
 "Because you served me for years, I will spare your life. If you want to escape servitude, go find my naive little brother."
 
 "You can leave."
@@ -521,6 +561,8 @@ Hidden in the shadows, the waiting men looked on in confusion as Shen Cui emerge
 Fang Yuan departed shortly after. A wise person avoids known perils; staying under his aunt and uncle's roof was sheer folly.
 
 Arriving at the village's only inn, Fang Yuan inquired, "Innkeeper, do you have any rooms available?"
+
+"Yes, yes! We have clean, tidy rooms on both the second and third floors," the innkeeper replied warmly.
 
 Fang Yuan handed two primeval stones to the innkeeper. "Give me a good room, two jars of wine, and three or four dishes."
 
@@ -539,6 +581,7 @@ Fang Yuan sat at the table nearest the door, and his dishes were served shortly 
 "I only had six primeval stones, and giving two to the innkeeper leaves me with four. It's not enough."
 
 "Even if I find the Liquor worm, refining it will require even more stones. The monk's inheritance must hold what I need."
+
 
 # Chapter 12: Green Bamboo Wine is fragrant, Gu Master flaunts power
 
@@ -602,6 +645,7 @@ Sensing Fang Yuan's primeval essence, Jiang Ya's gaze softened into a warm smile
 
 The waiter scurried over with the wine. Fang Yuan nodded, took the jar, and left the inn.
 
+
 # Chapter 13: The bamboo forest under the moon, a bead of snow
 
 About three hundred years ago, a genius emerged in the Gu Yue clan, reaching Rank five at a young age with the potential to advance even further.
@@ -622,7 +666,9 @@ Walking through the bamboo forest at nightfall, Fang Yuan reviewed his clues. "S
 
 Fang Yuan thought of his situation. "Buying this jar leaves me with only two primeval stones. Tonight is my final gamble!"
 
-Three days of rain had cleansed the mountain air, leaving a crisp freshness that carried the wine aroma far.
+Three days of rain had cleansed the mountain air, leaving a crisp freshness that would carry the wine aroma far—the first reason for Fang Yuan's confidence tonight.
+
+The previous seven days of searching had also eliminated several locations, proving where the Flower Wine Monk had not died—the second reason.
 
 Fang Yuan broke the seal, releasing a rich aroma. Green bamboo wine was the village's finest—the third reason for his confidence.
 
@@ -647,6 +693,7 @@ Clinging to a nearby spear bamboo stalk, it resembled a round pearl suspended un
 Fang Yuan's pupils dilated and his body trembled as his heart began to race.
 
 It was the Liquor worm!
+
 
 # Chapter 14: In the mountain crevice hides a profound theory
 
@@ -678,7 +725,7 @@ Fang Yuan's eyes lit up as he stopped.
 
 "So it's here." He panted heavily, his heart pounding wildly and sweat drenching his body as blood surged through his veins.
 
-After scanning his surroundings, Fang Yuan steadied his breath. With a resolute flash in his eyes, he took a deep breath and plunged headfirst into the crevice.
+After scanning his surroundings, Fang Yuan steadied his breath. A branch of the waterfall poured down the cliff face like a roaring white curtain, cloaking the fissure in the boulder. With a resolute flash in his eyes, he took a deep breath and plunged headfirst into the torrent.
 
 The boulder gap was wide enough for two adults to walk side by side, let alone a fifteen-year-old like Fang Yuan.
 
@@ -710,6 +757,7 @@ Just as he reached out to clear the remaining vines, suddenly—
 
 "Try touching it?" A voice full of murderous intent suddenly sounded behind Fang Yuan.
 
+
 # Chapter 15: History is written by the victorious
 
 In this secret cave, a voice suddenly loomed behind him.
@@ -726,6 +774,8 @@ Turning in realization, Fang Yuan saw fluctuating light and shadow coalescing in
 
 On the wall, a menacing Gu Master stood over another prostrated before him amidst battle rubble.
 
+Not far away stood a group of aged onlookers, their faces filled with anger and fear.
+
 The standing Gu Master threw his head back and laughed. "Gu Yue's hero, Rank five at such a young age—utterly unbearable!"
 
 "The Flower Wine Monk!" Fang Yuan immediately recognized him.
@@ -734,13 +784,19 @@ The standing Gu Master threw his head back and laughed. "Gu Yue's hero, Rank fiv
 
 Narrowing his eyes, Fang Yuan recognized the Gu Yue clan head's uniform—this groveling man was unmistakably the fourth generation clan leader!
 
+As for those aged onlookers, they were likely the clan elders of that generation.
+
 "Hospitality? I came to trade fairly for your clan's moon orchids, yet you harbored evil intentions—feigning hospitality and inviting me to a banquet, only to poison my liquor with a poisonous Gu. You looked down on me too much. I have made my name under heaven as Flower Wine; how could I possibly be poisoned this way?"
 
 Pointing at the kneeling clan leader, the Flower Wine Monk sneered, "Had you traded fairly, none of this would have happened. You wanted my head to boost your fame, so you have only yourself to blame for your death!"
 
+"Sir, please spare my worthless life!" the fourth generation clan head shouted in dismay, scrambling across the ground to clutch the Flower Wine Monk's thigh.
+
 "My clan has a spirit spring and vast moon orchids. I am willing to accept an Enslavement Gu and serve you for life!"
 
 The Flower Wine Monk's anger calmed as his eyes narrowed. "Hmph, an Enslavement Gu is a precious Rank five Gu—do you really think I would have one? However, you have been infected by my Single Gate Poison Gu, which only I can cure. Your clan must deliver 3,000 stalks of moon orchids and 3,000 primeval stones every week. I will return periodically to collect the goods and temporarily suppress your poison, sparing your useless life."
+
+"Thank you so much for your mercy, sir!" the fourth generation clan head cried repeatedly, kowtowing non-stop until his forehead bled against the mountain rock.
 
 "Stop kowtowing! A supposed Rank five genius, utterly unworthy of the name. Serve me well if you value your—Urgh!" The Monk cried out.
 
@@ -764,6 +820,7 @@ The Flower Wine Monk overwhelmed the swarming elders, but just as he moved to fi
 
 "I'll return to deal with you lot," the Flower Wine Monk spat. Glaring at the surviving elders, he bolted like lightning into the mountain woods, disappearing in the blink of an eye.
 
+
 # Chapter 16: Taking as much as possible that one can take
 
 As the recording looped on the wall, Fang Yuan remained silent. When it repeated for the third time, he sighed faintly. "I see."
@@ -775,6 +832,8 @@ Tearing away the withered vines had probably triggered the Photo-audio Gu hidden
 The fourth generation clan leader had plotted against the Flower Wine Monk and failed; though his sneak attack repelled the monk, he died as a result. Because this history was disgraceful, the surviving clan elders had covered up the truth.
 
 Yet the official story had a major loophole: if the clan claimed the Flower Wine Monk died on the spot, why were his remains here?
+
+In his previous life, the Gu Master who discovered this cave had likely panicked upon seeing the projection. Fearing execution by the clan elders for uncovering such a disgraceful secret, he had not dared to keep the treasure for himself, choosing instead to report it to the top brass to prove his loyalty.
 
 "I went through great trouble finding this treasure, so I will claim everything myself. Why share? So what if I'm discovered? Without braving risks, how can one gain profit? That Gu Master was truly cowardly," Fang Yuan sneered. Ignoring the repeating projection, he turned and used his strength to tear apart the dead roots and vines.
 
@@ -796,9 +855,10 @@ In his memories, that Gu Master was already Rank three, making a Rank one Liquor
 
 After thoroughly scouring every corner of the cave, Fang Yuan retraced his steps home.
 
-None of that mattered now. Though the Flower Wine Monk's modest treasure was somewhat disappointing, it made sense. Crucially, Fang Yuan had secured both his primary goal—the Liquor worm—and the primeval stones he desperately needed.
+Though the Flower Wine Monk's modest treasure was somewhat disappointing, it made sense. Crucially, Fang Yuan had secured both his primary goal—the Liquor worm—and the primeval stones he desperately needed.
 
 "Next, I must hole up in the inn to refine this Gu. With a vital Gu, I can return to the academy and qualify for a dorm room. I can also draw upon clan resources to cultivate. I can only afford the inn for a night or two before it becomes too costly." Pondering this, he hurried back to the village.
+
 
 # Chapter 17: Starting to refine the Liquor worm
 
@@ -836,13 +896,13 @@ After half a night's effort, the Liquor worm's body bore only a faint tint of gr
 
 Fang Yuan's expression darkened. The Liquor worm's will was extraordinarily tenacious, showing resistance far beyond the norm for a Rank one Gu.
 
-"This Gu was most probably the Flower Wine Monk's vital Gu. As a Rank five master's Gu, this Liquor worm was originally Rank five, but years of starvation caused its grade to fall. Now it is down to Rank one, yet its will remains tough as rock!"
+"This Gu was most probably the Flower Wine Monk's vital Gu. The Flower Wine Monk was a Rank five master, so this Liquor worm was originally Rank five, but years of starvation caused its grade to fall to Rank one. Yet after the Flower Wine Monk died, his unyielding will continued to linger inside it. Refining this Gu meant clashing directly against the will of a Rank five demonic master—far more difficult than refining a wild Gu."
 
-"Refining it in a month is impossible without a master using a Rank two or three Gu's aura to suppress its inner will. Only with such help could I succeed with half the effort." Fang Yuan sighed.
+"Refining it in a month is impossible without a master using a Rank two or three Gu's aura to suppress its inner will. Only with such help could I succeed with half the effort." Fang Yuan sighed. But with his parents dead, his aunt and uncle plotting against him, and only C-grade talent, no clan elder would ever expend such effort to help him.
 
 More critically, he could not expose the Liquor worm.
 
-Gu Yue Village had no Liquor worms, and Fang Yuan could not explain its origin.
+Gu Yue Village had no Liquor worms, and Fang Yuan could not explain its origin. If it were exposed, the clan's higher-ups would easily connect it to the Flower Wine Monk.
 
 "Seventeen primeval stones won't be enough; I need at least thirty. Troublesome, but I am determined to refine it." Fang Yuan's resolve was like steel.
 
@@ -851,6 +911,7 @@ Fang Yuan headed down to the dining hall to eat breakfast and plan how to gather
 Just as he began eating, Gu Yue Fang Zheng appeared.
 
 "Brother, why are you staying at an inn instead of sleeping at home?" his brother demanded bluntly.
+
 
 # Chapter 18: Let the past disperse away like smoke
 
@@ -899,6 +960,12 @@ Fang Yuan took the pouch and found six stones, though one was reduced by half. F
 Though only five and a half stones, they were all Fang Zheng possessed, given to him by Aunt and Uncle.
 
 "I'll keep these. You can leave," Fang Yuan said coldly, pocketing the pouch.
+
+Fang Zheng gritted his teeth and turned to leave. Stepping through the doorway of the inn, he pressed a hand to his chest, unsettled by a fleeting sense that he had just surrendered something irreplaceable—though the thought of finally having Shen Cui soon drowned it out.
+
+Fang Yuan remained seated by the window, expressionless as morning sunlight spilled across the table. Outside, the streets buzzed with life, but the food before him had long gone cold. For a long time his gaze drifted, wandering through memories of his previous life.
+
+When his eyes focused once more, the lingering sentiments of the past had dispersed like smoke. Reaching into his robe, he patted the primeval stones against his chest, a fleeting, self-mocking smile vanishing into icy resolve. "Waiter," he called calmly, "reheat these dishes for me."
 
 "What! He really said that?" In the hall, Uncle frowned coldly, while Aunt stared speechlessly at the red handprint on Fang Zheng's cheek.
 
@@ -954,6 +1021,7 @@ The aura cascaded like a mountain deluge—a terrifying beast opening scarlet ey
 
 "The Spring Autumn Cicada?!" Seeing this Gu, Fang Yuan was utterly shocked!
 
+
 # Chapter 19: Rank six vital Gu, The Spring Autumn Cicada!
 
 During the refinement process, the Gu counterattacked!
@@ -987,6 +1055,7 @@ Yet, because the cicada had already been refined by him in his previous life—i
 A Rank one Gu Master possessing a Rank six vital Gu shattered the limits of human cognition.
 
 "A Liquor worm is an exceptional vital Gu, but compared to the Spring Autumn Cicada, it is mere scum on the ground!" Fang Yuan laughed wildly in his heart.
+
 
 # Chapter 20: The academy elder is speechless
 
@@ -1038,9 +1107,10 @@ The startled elder gaped, frowning doubtfully. "You are Gu Yue Fang Yuan?"
 
 The academy elder: "....."
 
+
 # Chapter 21: How Can It Be That Brother Got Number One?
 
-"I cultivated hard and stayed up all night to refine the Moonlight Gu. As an A-grade talent, no one could be faster!"
+In the early dawn, Gu Yue Fang Zheng walked swiftly toward the academy, his heart surging with enthusiasm. "I cultivated hard and stayed up all night to refine the Moonlight Gu. As an A-grade talent, no one could be faster!"
 
 He came to the academy entrance.
 
@@ -1075,6 +1145,7 @@ Soon, Gu Yue Chi Cheng entered looking lost and knelt respectfully. "Grandson gr
 "Thank you for your guidance, Grandpa. I understand! I will resume refining my Gu at once!" Chi Cheng's gloom vanished, replaced by high fighting spirit.
 
 Elder Chi Lian nodded with a satisfied smile. "Rest assured Grandpa will support you fully. Later, I will use a Rank three Gu worm's aura to suppress your Moonlight Gu's will and help you refine it!"
+
 
 # Chapter 22: Dancing Moonblade
 
@@ -1146,6 +1217,11 @@ Seeing the target, he thought it was probably him and nodded subconsciously.
 
 Yet just three minutes later, the flying moonblades began to thin.
 
+Each moonblade consumed ten percent of a Gu Master's primeval essence. For C-grade students whose apertures held less than forty percent green copper essence, they could only cast three or four strikes before running completely dry.
+
+Watching the exhausted youths, the academy elder sighed inwardly. Mastering the moonblade came down to practice, yet those with higher talent held more essence, recovered faster, and could practice far more. Without primeval stones to replenish their apertures, students with lesser talent were left powerless—a harsh reminder of the cruel reality of cultivation.
+
+
 # Chapter 23: Raising a Gu is like raising a mistress
 
 Fang Yuan went to the Gu room alone.
@@ -1192,11 +1268,13 @@ A mortal family lived on one stone a month. In sixteen days, Fang Yuan had alrea
 
 Fang Yuan checked his pouch of greyish-white primeval stones.
 
-With twenty pieces left, he could only last another half month. Unlike his peers backed by wealthy relatives—like Gu Yue Mo Bei and Chi Cheng—
+With twenty pieces left, he could only last another half month. Unlike his peers, he had no family backing to support him—especially compared to youngsters like Gu Yue Mo Bei and Chi Cheng, who were loaded with primeval stones.
 
 Fang Yuan could only think of a way himself.
 
 "Uncle and Aunt cut off my living expenses, though the academy provides a three-stone weekly subsidy to every student. I must excel in the moonblade assessment to claim that ten primeval stone prize."
+
+After finishing his meal, Fang Yuan took the jar of wine and was leaving the inn when the worker hurried after him.
 
 "Young sir! The merchant caravan arrives next month and always buys up our green bamboo wine. Since you buy several jars a week, the innkeeper told me to inform you. Our stock is limited, so we will have very little left after selling to them."
 
@@ -1210,9 +1288,10 @@ After the jars were stashed under his dormitory bed, Fang Yuan looked at his fla
 
 In theory, a Gu Master could refine unlimited Gu if capable.
 
-Thus, a common saying went: raising a Gu is like raising a mistress.
+Yet in practice, primeval essence was too limited to use many, and the feeding costs were exorbitant. Thus, a saying circulated among cultivators: raising a Gu is like raising a mistress. Providing for one was expensive enough to bankrupt an ordinary man, and a person's energy was far too limited to attend to many.
 
 As rank rises, feeding requirements increase, so a Gu Master generally keeps only four or five Gu.
+
 
 # Chapter 24: Close Combat Gu Master
 
@@ -1223,6 +1302,8 @@ Three days later.
 On the martial arts field, the instructor demonstrated on a wooden puppet, dodging its swinging fist and knocking it down with swift counterpunches.
 
 "Martial arts fundamentals are of utmost importance, especially in the early stages of a Gu Master's cultivation. All of you, focus your attention on me!"
+
+Calling forth a two-meter-tall wooden puppet, the instructor dodged its clumsy rush, seized its waist, and drove it to the ground. Straddling the puppet, he shattered its head with a flurry of heavy punches.
 
 The instructor stood up, his breathing calm and steady. He explained, "When facing a tall enemy in close combat, do not fear. Breaking their center of gravity is a sensible way to pin them down. Just as I did, seize the waist, control their hips, and drive forward with your strength. Then take the chance to mount them and punch fiercely. Anyone lacking defense will instantly collapse."
 
@@ -1266,6 +1347,7 @@ Tying Mo Bei's score, Chi Cheng received the elder's praise and glared defiantly
 
 Among the final groups, Gu Yue Fang Zheng stepped forward.
 
+
 # Chapter 25: The light of spring is enchanting
 
 Watching Fang Zheng take the stage, some students still struggled to distinguish the twins until another pointed out that Fang Yuan never appeared tense.
@@ -1297,6 +1379,7 @@ The entire training ground lapsed into stunned silence. Fang Zheng stared blankl
 A flock of peacock parrots flapped overhead, trailing magnificent tail feathers across the clear sky. Fang Yuan looked up at the dazzling plumage, indifferent to the beheaded puppet.
 
 "The light of spring is truly enchanting..." he sighed inwardly.
+
 
 # Chapter 26: The nature of all organizations
 
@@ -1333,6 +1416,7 @@ In his previous life, Fang Yuan had founded the Bloodwing Demon Sect in the Midd
 Having stepped outside the academy, he waited at the gate as the first group of students approached.
 
 Ignoring him, the youths started past, only for Fang Yuan to step forward and block their path. "This is a robbery. Hand over one primeval stone each before you leave."
+
 
 # Chapter 27: Outright extortion
 
@@ -1386,6 +1470,7 @@ Watching him dismantle the class with effortless grace, the elder's earlier doub
 
 "Sir, are you not going to stop this farce? Letting his nonsense continue might bring bad consequences." The guards beside him looked worried.
 
+
 # Chapter 28: Capital free business
 
 "Why stop it?" The academy elder chuckled, pointing at Fang Yuan. "This youth has full control and restrains his strikes. He strikes only the neck's sides to knock them out, carefully avoiding lethal points. Attacking the back of the head or neck could cause death, so he avoided it entirely."
@@ -1405,6 +1490,8 @@ Seizing their hesitation, Fang Yuan dashed in and chopped two down.
 Collapsing in tears, the last girl pleaded, "Fang Yuan, please let me go."
 
 Fang Yuan looked down at her with cold indifference. "One primeval stone."
+
+Trembling, the girl frantically opened her money pouch and held out several primeval stones in her palm. "Don't hit me, I'll give them all to you!"
 
 Expressionless, Fang Yuan reached out and lightly pinched a primeval stone from her hand with his thumb and forefinger.
 
@@ -1441,6 +1528,7 @@ With fifty-seven students in the class, extorting one stone from everyone else y
 Factoring in his allowance, reward, and wine purchases, Fang Yuan's wealth now reached seventy-nine primeval stones.
 
 "Plunder truly is the most profitable business." Tucking his bulging pouch away, Fang Yuan strutted off.
+
 
 # Chapter 29: Unscrupulous
 
@@ -1488,13 +1576,20 @@ Sporting a black right eye, Chi Cheng fumed, "Yes, Grandpa! That lowly C-grade d
 
 Gu Yue Chi Lian shook his head. "This is a junior dispute without serious injury; I have no justification to step in. Do you understand why?"
 
-"Remember, you do not just represent yourself, but the entire image of our Chi family branch. We have confronted the Mo family branch for years; your every move represents our future hope. Grandpa can help from the shadows, but you must project a strong, self-reliant image. Otherwise, the elders supporting our family will see no hope and abandon us."
+Chi Cheng hesitated before answering, "Grandpa, you want me to rely on my own strength?"
+
+"You only understand one aspect," Chi Lian said. "Remember, you do not just represent yourself, but the entire image of our Chi family branch. We have confronted the Mo family branch for years; your every move represents our future hope. Grandpa can help from the shadows, but you must project a strong, self-reliant image. Otherwise, the elders supporting our family will see no hope and abandon us."
 
 Chi Lian sighed. "This is why I helped you fake B-grade talent—our Chi family needs a strong successor to retain supporters."
 
-"Understanding is not enough; train diligently in basic martial arts to reclaim your dignity. Fang Yuan is minor trouble. Simultaneously, cultivate hard to reach middle stage and secure the class monitor position for our family."
+"Grandpa, I understand now," Chi Cheng said, enlightened.
+
+Gu Yue Chi Lian shook his head. "Understanding is not enough; train diligently in basic martial arts to reclaim your dignity. Fang Yuan is minor trouble. Simultaneously, cultivate hard to reach middle stage and secure the class monitor position for our family."
+
 
 # Chapter 30: Fang Yuan, You’re Robbing Again?
+
+Almost at the same moment, in another place.
 
 "Honorary father and mother, that was how things went." Fang Zheng stood straight, his tone respectful and cautious.
 
@@ -1508,6 +1603,18 @@ Once Fang Zheng left the hall, Aunt exclaimed happily, "Husband, cutting off Fan
 
 Uncle shook his head. "You think too simply. Fang Yuan will not be expelled; in fact, there may not be any punishment."
 
+"Why?" Aunt asked, puzzled.
+
+Uncle snorted. "Brawls and fights are encouraged as long as there are no heavy consequences. Did any students die in this fight? No."
+
+Aunt protested, "Husband, how can you be sure there weren't any casualties? Accidents always happen in fights."
+
+Uncle closed his eyes and leaned back in his chair. "Woman, you are truly naive. Do you think the academy elder is just for show? The guards only stepped in at the very end, which means the entire scene was under control. If anyone had been seriously injured, they would have rushed over long before then."
+
+"You are not a Gu Master, so you wouldn't understand. The academy does not forbid brawls among students; in fact, it encourages them to temper their battle skills. The elders will not pursue this—it's already routine. If anyone tries to interfere on behalf of their offspring, they would be breaking the rules."
+
+Dumbfounded, Aunt replied indignantly, "Then nothing is going to happen to Fang Yuan for extorting so many primeval stones? He's just going to be let off like that? With that many stones, it will be a huge help to his cultivation."
+
 Uncle's face clouded over. "What else can we do? Did you expect me to personally snatch away his primeval stones? Still, we can exploit this situation. Fang Yuan extorting his own brother is the key to his fall. Fang Zheng has A grade talent and will inevitably surpass him. We can use this matter to sow discord in Fang Zheng. We'll turn Fang Zheng against Fang Yuan for our own use!"
 
 And with that, three days passed.
@@ -1515,6 +1622,10 @@ And with that, three days passed.
 The disturbance from Fang Yuan's extortion did not escalate; instead, it gradually died down.
 
 No elders broke rules to trouble Fang Yuan, and the academy elder turned a blind eye.
+
+During those days, two or three youths refused to accept losing their primeval stones and challenged Fang Yuan, only to be knocked down easily. Realizing they could never beat him without training hard in martial arts, a mass fervor for training erupted among the teenagers.
+
+After the incident, Fang Yuan became the public enemy of the entire student batch. Everyone treated him with hostility and isolated him, with no one speaking to or greeting him anymore.
 
 Another four days passed.
 
@@ -1536,7 +1647,10 @@ With centuries of combat experience, Fang Yuan countered every attack effortless
 
 Fifteen minutes later, Fang Yuan strolled away with a bulging money bag, leaving behind a courtyard of groaning, battered youths.
 
+
 # Chapter 31: Fang Yuan! You’re in huge trouble!
+
+In the Mo family garden, Gu Yue Mo Bei battered a wooden puppet in frustration, humiliated that he had been knocked out cold by Fang Yuan yet again. When his elder sister, Gu Yue Mo Yan—a Rank two Gu Master recently returned from an investigation mission—noticed the bruises covering his face, Mo Bei panicked and lied that he had merely tripped. Unconvinced by his clumsy excuse, Mo Yan immediately set off to uncover the truth.
 
 Mo Yan pushed open the study door. Inside, Gu Yue Mo Chen was practicing calligraphy with his back to her.
 
@@ -1560,6 +1674,8 @@ Mo Yan reluctantly reported, "The wolf den is nearly full. A wolf tide will defi
 
 "Mo Bei's classmate, Fang Yuan. He fights remarkably well..." Gu Yue Mo Chen sniggered.
 
+Mo Yan's eyes widened in disbelief. "Grandfather, what are you saying? Mo Bei is your own blood-related grandson!"
+
 Gu Yue Mo Chen looked deeply at his granddaughter. "Mo Yan, as a girl, you may not understand. Defeat and humiliation fuel growth. Without failure, one never becomes a true man."
 
 "Mo Bei's defeat is his own failure. When he wakes, he'll seek combat instruction from the teachers. That growth comes from Fang Yuan beating sense into him. With our backing, he will eventually trample Fang Yuan into the dirt."
@@ -1572,7 +1688,7 @@ She stumbled out of the study, an ominous glint in her eyes unnoticed by Gu Yue 
 
 "Grandfather, that is your way of loving him, but I have my own methods." Mo Yan already had other plans.
 
-Fang Yuan sat by the window, eating his meal while gazing outside.
+In the inn's lively dining room, Fang Yuan sat by the window, eating his meal while gazing outside.
 
 Rank one Gu Masters wore blue belts with bronze plates, while Rank two Gu Masters wore red belts with steel plates.
 
@@ -1585,6 +1701,7 @@ Qing Mao Mountain was too small to contain his ambition; he was determined to le
 "Haha, Gu Yue Fang Yuan, I finally found you!" A middle-aged man laughed deviously as he approached.
 
 "Fang Yuan, you're in deep trouble. You dared strike our Mo family's young master, and now our young miss is here to settle the score," the servant sneered.
+
 
 # Chapter 32: Making Fun
 
@@ -1644,6 +1761,7 @@ Mo Yan glared at Fang Yuan, sudden realization dawning. "I am looking for Gu—Y
 
 Fang Yuan snickered, "I never said I wasn't Gu Yue Fang Yuan."
 
+
 # Chapter 33: Go ahead and scold away
 
 Mo Yan frowned, then flared with rage as she realized Fang Yuan had played her for a fool.
@@ -1694,13 +1812,14 @@ Inside his aperture, green copper primeval essence crashed against the initial s
 
 Opening his eyes, he saw that it was already late into the night.
 
-"Scoundrel, you're finally awake! Come out and face Young Miss's punishment!"
+"Scoundrel, you're finally awake!" Seeing Fang Yuan stir, Gao Wan perked up from where he stood outside the door. "Get out here! You beat up our Young Master Mo Bei, so it was only a matter of time before Young Miss taught you a lesson."
 
 Fang Yuan squinted—it seemed the Rank two female Gu Master had left.
 
 Ignoring him completely, Fang Yuan took a primeval stone from his storage bag and closed his eyes once more.
 
 Seeing him resume cultivating, Gao Wan snapped anxiously. "With mere C grade talent, the most you'll ever reach is Rank two! What's the point of cultivating? You can't face the Mo family alone! Kid, are you deaf? Did you hear a word I said?!"
+
 
 # Chapter 34: Suppressive Beating!
 
@@ -1729,6 +1848,8 @@ With C grade talent, he used primeval stones for fast recovery, while the Liquor
 "Though I plundered more primeval stones yesterday, a night of cultivation costs three stones. In this case, although it might seem that I have a lot of resources, it is unable to sustain me for a long time with my current cultivation speed, but this is the price I have to pay for pursuing cultivation speed and efficiency."
 
 Glancing outside, Fang Yuan saw Gao Wan curled up in a corner, seemingly asleep.
+
+"Looks like that Rank two female Gu Master left long ago, leaving only Gao Wan to keep watch," Fang Yuan smiled coldly as he got off the bed and stretched his limbs.
 
 Once his body had warmed up, he left the hostel.
 
@@ -1760,9 +1881,10 @@ Every strike was devious and lethal, aimed entirely to kill.
 
 As a mortal, Gao Wan could not protect his eyes and throat with essence, leaving his vitals vulnerable.
 
-Moreover, Gao Wan did not dare unleash lethal moves against Fang Yuan.
+Moreover, Gao Wan did not dare unleash lethal moves against him. Fang Yuan was a Gu Yue clansman; killing him would incur public fury and mean instant execution, with the Mo family being the first to put Gao Wan to death. His only goal was to capture Fang Yuan alive.
 
 With apprehension clashing against sheer killing intent, Fang Yuan thoroughly suppressed Gao Wan in combat.
+
 
 # Chapter 35: Go Ahead and Scream!
 
@@ -1838,6 +1960,7 @@ In his right hand, a headless corpse.
 
 A trail of bright red blood dragged along the ground in his wake.
 
+
 # Chapter 36: Gifting a disseminated corpse!
 
 "Did you hear? Fang Yuan killed someone!" a student whispered to his classmate.
@@ -1845,6 +1968,8 @@ A trail of bright red blood dragged along the ground in his wake.
 "Many guards saw it. Fang Yuan chased him down, ignored his pleas for mercy, and beheaded him on the spot!"
 
 "Not only that—Fang Yuan dragged the headless corpse back to the hostel and minced it into paste!"
+
+"Are you for real?"
 
 "Why would I lie? The Academy Elder already summoned Fang Yuan over it!"
 
@@ -1860,7 +1985,7 @@ Several youths glanced toward Gu Yue Mo Bei.
 
 Mo Bei sat pale-faced, having just learned that Fang Yuan had killed Gao Wan, a servant from his household.
 
-Only the Academy Elder and Fang Yuan remained in the room.
+Within the elder's room, there was only the Academy Elder and Fang Yuan.
 
 The elder sat while Fang Yuan stood, their silence rendering the atmosphere suffocatingly tense.
 
@@ -1870,7 +1995,7 @@ Guards had already reported that Mo Yan cornered Fang Yuan in the academy the pr
 
 Yet Mo Yan had left empty-handed, and the servant she left behind not only failed to beat Fang Yuan, but was slain.
 
-Yet Fang Yuan stood calm as ice, showing neither guilt nor panic, as serene as if he had never killed anyone.
+Killing was common enough among Gu Masters, but a fifteen-year-old's first kill was another matter entirely. Yet Fang Yuan stood calm as ice, showing neither guilt nor panic, as serene as if he had never killed anyone.
 
 The elder marveled at Fang Yuan's cold detachment while admiring his instincts as a natural-born battle fanatic.
 
@@ -1894,6 +2019,7 @@ Fang Yuan offered a cruel smile. "I diced the corpse into a wooden box and left 
 
 "Since it's done, dwelling on it is pointless. Leave—your punishment will be decided soon." Thoroughly vexed, the elder waved Fang Yuan away.
 
+
 # Chapter 37: Both a compromise and a threat
 
 "What did I instruct you? Look what you've done!" In the study, Gu Yue Mo Chen slammed the table in fury.
@@ -1914,13 +2040,15 @@ Suppressing his anger, he stroked his beard. "I knew Fang Yuan showed early bril
 
 After a pause, Gu Yue Mo Chen tapped the table and ordered, "Bring that box in."
 
+The servant outside promptly obeyed, carrying in a heavy wooden box with both hands and setting it beside the study table.
+
 "Grandpa, what is this?" Mo Yan asked, eyeing the wooden box doubtfully.
 
 "Open it and see," Gu Yue Mo Chen said with a complex expression.
 
 Mo Yan stepped forward, lifted the lid, and looked inside.
 
-It was actually a pile of flesh and blood!
+Her pupils shrank to needlepoints as she recoiled with a scream, dropping the lid to the floor. Inside lay a horrifying pile of minced human flesh and blood—pale skin, strands of intestines, and broken bones soaking in scarlet gore. Though she was a seasoned Rank two Gu Master, the sickening sight turned her stomach so violently she nearly retched on the spot.
 
 Only Gu Yue Mo Chen remained unfazed among the three present. Glancing calmly at the gory contents, he said slowly, "Fang Yuan left this at our back door this morning."
 
@@ -1958,17 +2086,22 @@ Gu Yue Mo Chen said solemnly, "Since you caused this, you will be confined for s
 
 "Yes, Grandpa."
 
+
 # Chapter 38: Demon walking in the light
 
 "The sky's light rain is sleek and crisp; grass color seen from afar vanishes up close." Gazing out the window, Fang Yuan recited softly before turning his attention back to the inn.
 
 At the nearest table sat an old mortal man and his grandson in modest clothing.
 
+The grandson chewed on braised beans while pestering his grandfather, shaking his arm. "Grandpa, grandpa, tell me the story of Ren Zu! If you don't, I'll tell grandma you secretly came out to drink!"
+
 "Sigh, I can't even drink in peace." The grandfather sighed dotingly, patting the boy's head with a twig-like arm. "Then let me tell you how Ren Zu gave his heart to Hope Gu and escaped capture…"
 
 Ren Zu escaped through hope, but eventually grew old. Without Strength and Wisdom, he could no longer hunt, and losing his teeth left him unable to chew wild fruits and vegetables.
 
 Hope Gu told him, "Human, you must not die. If you die, your heart will be lost and I will lose my only home."
+
+Ren Zu was helpless. "Who wishes to die? But if heaven and earth want me dead, what choice do I have?"
 
 Hope Gu said, "There's always hope. As long as you catch a Longevity Gu, you can increase your lifespan."
 
@@ -2030,7 +2163,7 @@ Fang Yuan reflected, "Heaven and earth are a vast chessboard, and all lifeforms 
 
 Fang Yuan analyzed his situation with clarity. "To clan elder Gu Yue Mo Chen, the goal is protecting his branch's prosperity. Mo Yan broke the rules by provoking me, so to preserve family honor, Mo Chen will not harm me—he might even compensate me."
 
-"If the influential Mo family risked their reputation to punish me, I could not resist. Yet Gu Yue Mo Chen is afraid. Not of breaking rules himself, but of others following suit. Elders interfering in junior disputes would escalate matters, ultimately threatening the entire village. He is only subconsciously protecting the rules."
+If the influential Mo family risked their reputation to punish me, I could not resist. Yet Gu Yue Mo Chen is afraid—not of breaking rules himself, but of others following suit. If elders interfere in junior disputes, what if someone targets his grandson Gu Yue Mo Bei? In his entire lineage, there is only one male; what would happen if he died? Driven by this subconscious fear, Mo Chen protects the rules.
 
 "Gu Yue Mo Chen surely understood my veiled threat and compromise when I delivered the minced corpse. That was precisely my intent. The Mo family will not pursue Gao Wan's death. Of course, had my talent been B grade or higher, they would have felt threatened. Even at the cost of reputation, they would have suppressed me," Fang Yuan sneered inwardly.
 
@@ -2038,11 +2171,12 @@ Strength can be relied upon, but weakness can also be leveraged.
 
 Though a pawn on the board, Fang Yuan understood the rules and held a player's mindset.
 
-Five hundred years of past experience made Fang Yuan a master of rules and regulations.
+After his rebirth, Fang Yuan believed he could forge a brilliant future not because of the Spring and Autumn Cicada, nor because of secret troves or foreknowledge of the future, but because of the five hundred years of experience he had accumulated. That lifetime of experience made him a true master of rules and regulations.
 
 The rule of darkness is darkness, and the rule of light is light.
 
 Yet the reborn demon had stepped onto the path of light.
+
 
 # Chapter 39: Toad Caravan Merchant
 
@@ -2081,6 +2215,7 @@ Gu Masters and students were already crowding the cart, shouting and waving prim
 It was not that Fang Yuan lacked money, but he lacked time.
 
 "The Mudskin Toad should be in that shop," he thought, turning away and heading deeper into the market. "In my past life, a Gu Master struck it rich by gambling on the first night. I cannot lose big by chasing petty savings."
+
 
 # Chapter 40: Toad Gu Slumbering Within the Purple Gold Rock
 
@@ -2142,6 +2277,7 @@ Finding that single rock among twenty-odd pieces was still difficult, but backed
 
 He was eighty percent confident the mudskin toad hibernated within one of these six fossils!
 
+
 # Chapter 41: Dissecting Rocks
 
 "I want to purchase some rocks." Having picked his targets, Fang Yuan said to the female Gu Master.
@@ -2158,7 +2294,7 @@ Fang Yuan handed sixty primeval stones to the female Gu Master.
 
 Waving off the female Gu Master, Fang Yuan replied, "Purple gold is my lucky color. I'll open them myself!"
 
-Gripping a purple gold rock in his right palm, Fang Yuan closed his fingers and slowly rubbed its surface.
+Activating the primeval essence within his Primeval Sea, Fang Yuan poured it into the Moonlight Gu until the crescent mark on his right palm emitted a faint, watery blue light. Gripping a purple gold rock in that hand, he closed his fingers and slowly rubbed against the surface of the fossil.
 
 Watery blue light rippled as the purple gold rock shrank, rock shavings streaming from between Fang Yuan's fingers onto the tent carpet.
 
@@ -2190,9 +2326,12 @@ Fang Yuan smiled without replying and took out the fifth rock.
 
 He ground carefully, and within ten breaths, the purple gold outer layer was rubbed away, revealing a rough yellow mud ball.
 
+
 # Chapter 42: It really is a Gu?!
 
-"It looks like one, but strangely, a mudball enclosed by purple gold rock should be compressed smooth. Why is it still uneven?" The surrounding Gu Masters were perplexed.
+"Don't tell me it's another rock in the rock."
+
+"By the looks of it, probably. But strangely, a mudball enclosed by purple gold rock should be compressed smooth. Why is it still uneven?" The surrounding Gu Masters were perplexed.
 
 Looking at the mudball in his hands, Fang Yuan remained outwardly calm, but inwardly stirred.
 
@@ -2202,7 +2341,11 @@ As the yellow mudball shrank to palm size, someone barged into the tent: "Young 
 
 He appeared twenty to twenty-five years old, wearing a golden robe with a lace belt. On the belt hung a square jade piece inscribed with the character "One."
 
+Evidently, he was a Rank one Gu Master. Still being Rank one at twenty years old meant his talent wasn't good.
+
 Yet his status was unique. The Gu Masters in the tent bowed, greeting, "Your subordinate greets Second Young Master."
+
+"Second Young Master? He called himself Jia Jin Sheng earlier—is he the half-brother of the merchant caravan leader, Jia Fu?"
 
 "Then he owns this gambling den. But stepping in like this breaks the den's rules," the Gu Masters muttered.
 
@@ -2219,6 +2362,8 @@ Ignoring him, Fang Yuan turned and focused on grinding the mudball in his hands.
 His movements were slow and meticulous, shedding only a trace of dry soil powder at a time. Beneath his fingers, a hibernating Gu worm gradually appeared in front of everyone's eyes.
 
 "There really is a Gu!" A cold light flashed in Jia Jin Sheng's eyes amid bitter regret; he hated being taken advantage of above all else.
+
+He had placed surveillance methods in his den so he would be alerted whenever a customer was about to open a Gu and could forcefully buy it—yet now Fang Yuan was obtaining one right under his eyes.
 
 What he obtained, was a toad Gu.
 
@@ -2248,6 +2393,8 @@ Fang Yuan turned around and walked away.
 
 Jia Jin Sheng hurried after him: "Don't go! I'll buy it!"
 
+Fang Yuan had no plans to nurture this Mudskin Toad. Still at Rank one initial stage, he would struggle to find the yellow soil it ate on green-soiled Qing Mao Mountain, and he did not have enough primeval stones to feed three Gu worms at once. Selling it immediately for five hundred primeval stones was his plan.
+
 The deal was quickly sealed. Fang Yuan handed over the Mudskin Toad publicly and received five heavy pouches containing one hundred primeval stones each.
 
 Having spent sixty of his ninety-eight primeval stones on fossils, Fang Yuan's wealth now surged to five hundred and thirty-eight stones.
@@ -2257,6 +2404,7 @@ Stowing the five bags into his robes, Fang Yuan took the final purple gold fossi
 "Young Master, aren't you opening that fossil?" the female Gu Master called out, blinking in surprise at his back.
 
 Fang Yuan paid no heed, leaving the gambling den without looking back.
+
 
 # Chapter 43: The final sixth purple gold rock
 
@@ -2298,7 +2446,7 @@ To defuse the hidden threat of the Liquor worm, striking first was Fang Yuan's s
 
 Furthermore, he knew he would need to reveal the Liquor worm during his upcoming cultivation.
 
-"A Rank one Gu like the Liquor worm is precious to Rank one Gu Masters, but no longer useful to Rank two Masters. If the Spring and Autumn Cicada were exposed, I would die horribly the very next moment."
+"A Rank one Gu like the Liquor worm is precious to Rank one Gu Masters, but no longer useful to Rank two Masters. Even if it is exposed, it will only draw some attention without endangering my life. It is not like the Spring and Autumn Cicada—if that were exposed, I would die horribly the very next moment."
 
 "The Flower Wine Monk's legacy and the Mudskin Toad were the only two local opportunities in my memory. Now that I have both, I can focus on steady cultivation."
 
@@ -2312,9 +2460,10 @@ He could feel his classmates improving. In recent extortions, Gu Yue Mo Chen, Ch
 
 "Qing Mao Mountain holds no more opportunities, but nearby Bai Gu Mountain hides a righteous Rank four strength inheritance."
 
-Sigh, it still boils down to the Flower Wine Monk's treasure being too little, only giving me a Liquor worm. Hmm… there is still that film image wall, maybe I can sell it to a certain merchant in the caravan…
+"Sigh, it still boils down to the Flower Wine Monk's treasure being too little, only giving me a Liquor worm. Hmm… there is still that film image wall, maybe I can sell it to a certain merchant in the caravan…"
 
 Fang Yuan's eyelids grew heavy, and he soon fell asleep.
+
 
 # Chapter 44: Monkey Wine, not yielding the opportunity of the Liquor worm
 
@@ -2350,7 +2499,9 @@ His motive was only to reveal the Liquor worm, never to sell it.
 
 The sun gradually set, replaced imperceptibly by a crescent moon.
 
-"The Liquor worm is only Rank one, but vital to a Rank one Gu Master. It is useless to Rank two or three masters who cannot refine their essence further with it. Thus it is normal that no one paid attention to this. However, taking the initiative to expose the matter of the Liquor worm cannot be rushed for a period of time. If I overdo it, it might end up letting the cat out of the bag."
+That night, the merchant market was swarming with business. Fang Yuan walked among the crowd, listening attentively, but felt disappointed when he heard no mention of the Liquor worm.
+
+"The Liquor worm is only Rank one, vital to a Rank one Gu Master, yet useless to Rank two or three masters who cannot refine their essence further with it," he pondered silently as he walked. "Thus it is normal that no one paid attention. Exposing it cannot be rushed; if I overdo it, I might let the cat out of the bag."
 
 Then Fang Yuan heard someone shout, "Come quickly! A dishonest merchant is selling fake Gu to our clansmen!"
 
@@ -2390,6 +2541,7 @@ Jia Jin Sheng froze, his face paling as angry sparks flashed in his eyes at his 
 
 Observing from afar, Fang Yuan caught this peculiar expression and pondered the situation.
 
+
 # Chapter 45: Clear of the schemes, unknowingly trapped in the urn
 
 "Young Gu Master, what seems to be the problem?" Jia Fu stepped into the crowd and asked amicably.
@@ -2410,17 +2562,27 @@ He fulfilled his promise at once, an attendant handing five money bags to the yo
 
 "A word of advice, however," Jia Fu added. "Though only Rank one, the Black Boar Gu permanently increases strength and is exceptionally rare. Every time one appears in the market, it would be bought immediately. The pricing is around six hundred primeval stones. Trying to get one with two hundred and fifty primeval stones is impractical."
 
+Cheers erupted from the crowd as clansmen praised Jia Fu for not bullying the weak with his Rank four status, calling him a true role model of the righteous path.
+
 "Not at all." Jia Fu smiled, cupping his fists to the crowd. "Our Jia family bases our business on honesty. My brother is young, foolish, and playful, but fundamentally kind. Please bear with him and take no offense."
 
 "Hmph!" With an ugly expression, Jia Jin Sheng stomped into the tent and slipped out the back.
 
 Fang Yuan looked at this silently, thinking in his heart, "It seems that the image wall at the Flower Wine Monk's place can be sold."
 
+The image wall recorded the ugly acts of the fourth-generation Gu Yue clan leader, which the Bai and Xiong clans would covet. Too weak to sell it directly without risking being silenced or exposed while he still needed the clan, Fang Yuan knew an outsider merchant in this caravan—leaving in a day toward those villages—was the safest buyer.
+
+"One more cup! Where's the wine?"
+
 Jia Jin Sheng slammed the mushroom table as he howled.
 
 Fortunately, the tavern and surrounding streets were packed with people, so Jia Jin Sheng's drunken antics drew little notice amidst the bustle.
 
 Downing cup after cup to drown his sorrow, his back to the crowd, no one noticed tears streaming down his cheeks.
+
+Though the youngest and most doted on by his father, Jia Jin Sheng had only D-grade talent. With his dying father splitting the family assets based on the results of caravans led in pairs, he had hoped to prove himself—only to fall into Jia Fu's scheme from the start, powerless as a Rank one against his Rank four brother.
+
+"Jia Fu!" he forced out, eyes burning with hatred, unwilling to take it lying down.
 
 "Do you want to deal with your brother? I can help you," a voice said.
 
@@ -2433,6 +2595,10 @@ Fang Yuan met his gaze with cool detachment. "I have a major deal. If you want b
 Suspicious, Jia Jin Sheng sat up straight. "How do you know about the assets?"
 
 "The Jia family's affairs are hardly top secret," Fang Yuan laughed coldly, recalling memories of his past life.
+
+In that life, the dying Jia clan head's caravan contest pitted his eldest son Jia Fu and second son Jia Gui against each other for years until their escalated feud drew outside help, killing both and ruining the clan.
+
+Fang Yuan did not speak right away, surveying the bustling wine shop.
 
 Discussing here was far safer than a secluded spot, avoiding the eavesdropping of Gu worms.
 
@@ -2463,6 +2629,7 @@ Hearing Jia Jin Sheng's understanding of the Qing Mao Mountain's situation, Fang
 Jia Jin Sheng sighed. "Trap or not, I'll bite. Two thousand primeval stones it is, but I must see the goods first."
 
 "Of course, follow me." Fang Yuan laughed, leading the way with the situation firmly in his grasp—Jia Jin Sheng was already trapped in the urn.
+
 
 # Chapter 46: Don’t think too much when killing people
 
@@ -2512,6 +2679,8 @@ Slumped against the wall, his chest and limbs were deeply slashed, yet not a dro
 
 "I am the Flower Wine Monk." The bald monk laughed madly. "Whoever you are, letting this play for nearly a hundred days proves your malice toward the Gu Yue clan. Very well, you shall be my successor! My entire inheritance is yours, but I have a condition. You must exterminate the Gu Yue clan for me. Murder the entire clan and leave no one alive!"
 
+Jia Jin Sheng stood frozen in shock, his mind churning wildly. A Rank five powerhouse's inheritance!
+
 "Wait, is it inappropriate to inherit a demonic cultivator's power? No, strength has nothing to do with good or evil. The Flower Wine Monk wants his successor to destroy the Gu Yue clan, but do I really have to? He's already dead—I'll just take the inheritance and ignore the rest."
 
 "This is a godsend. Even with my D grade talent, the Flower Wine Monk's inheritance might let me improve it. Those rare talent-raising Gu worms might be inside. If I inherit this fortune and reach Rank four or five, I could contest with Jia Fu!"
@@ -2529,6 +2698,7 @@ The moonblade struck his neck, sending his head flying as fresh blood poured out
 "Don't think so much when killing people." Fang Yuan glanced at the corpse and turned toward the image wall.
 
 "To think there was such a twist. How interesting," he muttered, eyes glowing eerily.
+
 
 # Chapter 47: Jia Jin Sheng, I actually did not want to kill you
 
@@ -2588,6 +2758,7 @@ A demonic cultivator's inheritance was not gentle like a righteous one; it often
 
 Sighing inwardly, he thought, "Jia Jin Sheng, actually I… didn't want to kill you."
 
+
 # Chapter 48: A little cute
 
 It rained for four days before stopping.
@@ -2630,7 +2801,9 @@ Angry and helpless, the instructor chided, "Fang Yuan, you should be friendly wi
 
 Fang Yuan snorted, meeting his gaze. "In practice fights, we must give our all to achieve the training's purpose. In real battle, will enemies be gentle and friendly?"
 
-Fang Yuan sneered, "You set up this match with a twenty primeval stone prize. Without your encouragement, would these people have been hurt?"
+The instructor flew into a rage. "Hmph, your attacks are vicious! You harm your classmates and dare use twisted logic!"
+
+"Instructor, you are wrong again." Fang Yuan sneered, "You arranged this practice match and raised the prize to twenty primeval stones. Without your encouragement, would these people have been hurt?"
 
 "Bastard!" The instructor pointed at Fang Yuan. "Argue further, and even if you take first place, I will declare you the loser! You're uncooperative and dare argue with your teacher—you have no right to claim the twenty primeval stones!"
 
@@ -2660,9 +2833,12 @@ For Fang Yuan, he needed this pressure to extort primeval stones with greater ea
 
 If defeated, the youngsters would attack together. Extortion was his main income; losing it would drain his reserves.
 
+Thus, his thirty-three consecutive victories were merely to maintain his deterrence over the students, not for the twenty primeval stones reward. Avoiding combat from the start would show weakness, but fighting on would only expose his exhaustion.
+
 "What are you waiting for? Get up on stage! The first prize is twenty primeval stones—don't you want it?" the instructor yelled, recovering his senses.
 
 Fang Yuan's lips curled up slightly: "Such boorish methods; this instructor is a little cute."
+
 
 # Chapter 49: Not afraid of Fang Yuan breaking out of their grasp
 
@@ -2706,6 +2882,11 @@ Small roles like chairman or vice chairman should not be underestimated; once as
 
 Such a system exerts constant influence, offering privileges of power while making detachment difficult. With carrot and stick, who can break free?
 
+Even the wildest or most solitary would gradually become part of the family. Those without loyalty would be nurtured into loyalty, and those lacking kinship, friendship, or affection would have those bonds cultivated within them.
+
+This was the power of the system. This was the power of rules. This was the clan's way of survival!
+
+
 # Chapter 50: Middle Stage!
 
 In the courtyard, Gu Yue Mo Bei looked up, his eyes glistening under the moon.
@@ -2730,7 +2911,11 @@ Gu Yue Chi Cheng exhaled in relief. "Thank you Grandfather, for transfusing prim
 
 Sweat dripping from his forehead, Chi Lian sighed. "With only C grade talent, relying on yourself would take too long. It would take far longer than a B or A grade, exposing your true talent. We must use this method."
 
+"Grandson understands Grandfather's intentions," Chi Cheng replied.
+
 "As long as you understand." The old man sighed. "This method has another side effect. My silver primeval essence is more effective, but it is still foreign to your aperture. Even when your light walls become water walls, they will remain tainted by my energy. The more foreign energy accumulates, the more impure your aperture becomes, stifling your talent and limiting your future growth."
+
+Gu Yue Chi Cheng bit his lip. "Grandfather, for the future of the Chi family, I am willing to sacrifice my prospects!"
 
 Pleased, Gu Yue Chi Lian stroked his beard. "It is good you understand. Yet heaven always leaves a path of hope; all is not lost. If we find a Cleansing Water Gu, it can cleanse your aperture walls and flush out all foreign energy from your primeval sea, removing this side effect."
 
@@ -2746,7 +2931,7 @@ With such godblessed advantage, he was already close to Rank one middle stage.
 
 "Time flies when cultivating," Fang Zheng murmured, opening his hands as two piles of stone powder spilled onto the floor.
 
-Opening it, he saw three primeval stones left inside.
+He took out his money bag, finding it nearly empty. Opening it, he saw only three primeval stones left inside.
 
 Fang Zheng received three stones weekly from the academy as resources, but with Fang Yuan extorting one, he only had two left each week.
 
@@ -2758,7 +2943,7 @@ Determined to surpass Fang Yuan, Fang Zheng had repeatedly approached his uncle 
 
 "I have A grade talent, while he only has C grade. You're no match for me this time, brother!"
 
-In the darkness, he was not asleep, but sitting on his bed.
+Meanwhile, in the academy dormitory, Fang Yuan's door was shut tight. In the darkness, he was not asleep, but sitting on his bed.
 
 Cultivating earlier that day, he had already felt merely a step away from middle stage.
 
@@ -2785,6 +2970,7 @@ The Primeval Sea regained its peace, the aperture still having 20% primeval esse
 "I advanced to middle stage!" Fang Yuan laughed heartily, opening his eyes.
 
 Unknowingly, the night had passed, and it was already morning.
+
 
 # Chapter 51: Let's see how you are going to explain this
 
@@ -2828,7 +3014,7 @@ Sunlight infiltrated from the gap. The student opening the door suddenly froze, 
 
 The door was slowly pushed opened by the person outside.
 
-A left hand with dripping blood.
+What everyone saw first was a hand resting on the door—a teenager's left hand, dripping with blood.
 
 "It's Fang Yuan!" Someone screamed out loudly.
 
@@ -2853,6 +3039,7 @@ Cupping his fists toward the academy elder, his calm voice broke the silence. "A
 "Speak," the academy elder said with hands behind his back, looking down coldly at Fang Yuan.
 
 Laughing coldly in his heart, he thought, "Fang Yuan, your offenses grow ever graver. Let's see how you explain yourself!"
+
 
 # Chapter 52: You have no choice but to accept my explanation
 
@@ -2896,7 +3083,7 @@ The academy elder's verdict caused a huge commotion in the academy.
 
 Gu Yue Mo Bei clenched his fists, and Gu Yue Chi Cheng hatefully gritted his teeth.
 
-Utterly baffled, he dropped any thought of suppressing Fang Yuan and asked directly, "Fang Yuan, explain yourself—how did you manage to advance to middle stage?"
+Utterly baffled, the academy elder dropped any thought of suppressing Fang Yuan and asked directly, "Fang Yuan, explain yourself—how did you manage to advance to middle stage?"
 
 Fang Yuan smiled quietly, "Heaven rewards the diligent; through persistent training, this student advanced smoothly."
 
@@ -2946,6 +3133,7 @@ Finally, the academy elder reached out and patted Fang Yuan's shoulder.
 
 The corner of the academy elder's eye twitched.
 
+
 # Chapter 53: Fang Yuan, you are appointed as class chairman
 
 Everything was going according to Fang Yuan's calculations.
@@ -2984,7 +3172,7 @@ Fang Yuan took the money bag and peeked inside in full view.
 
 Fang Yuan ignored the elder. Trusting only himself, he counted carefully, and confirming all thirty primeval stones were present, slipped the bag into his bosom pocket.
 
-"Just as I thought. A C grade rushing to middle stage without backing must have expended massive primeval stones and run tight on funds. As long as he needs primeval stones, he cannot escape the clan's control. Once inside the system, he won't be able to keep his secret—eventually, he will confess."
+Seeing this, the academy elder assumed Fang Yuan's finances were tight, and his smile widened with confidence. *Just as I thought. A C grade rushing to middle stage without backing must have expended massive primeval stones and run tight on funds. As long as he needs primeval stones, he cannot escape the clan's control. Once inside the system, he won't be able to keep his secret—eventually, he will confess.*
 
 The academy elder continued, "Fang Yuan, as the first to reach Rank one middle stage, academy rules award you thirty primeval stones, priority in choosing your second Gu, and appointment as class chairman!"
 
@@ -3024,11 +3212,14 @@ Witnessing this, the students erupted into a commotion.
 
 The academy elder's face turned extraordinarily dark.
 
-… The giving out of subsidies ended.
+Fang Yuan's refusal was a direct rejection of the clan system. In all his decades overseeing the academy, the elder had never seen a student resist such temptation. He had wanted to lure Fang Yuan into the clan's trap, but since the boy refused to step inside, the elder was left utterly helpless.
+
+The distribution of subsidies finally ended.
 
 Taking second place, Mo Bei became chairman, while Fang Zheng and Chi Cheng were appointed vice chairmen.
 
 The class chairman was given ten primeval stones. The vice chairmen got five.
+
 
 # Chapter 54: But I am the class chairman!
 
@@ -3042,7 +3233,7 @@ The forest around the academy glistened as if coated in oil. A gentle breeze ble
 
 Gu Yue Mo Bei swaggered along, every passing student bowing to greet him without exception.
 
-Meanwhile, the other vice chairman, Gu Yue Fang Zheng, felt miserable, his expression thoroughly unsightly.
+Meanwhile, vice chairman Gu Yue Fang Zheng felt miserable, his expression thoroughly unsightly.
 
 "Brother, you!" He stared wide-eyed in disbelief at the academy gate, where a lone figure stood.
 
@@ -3076,6 +3267,10 @@ The other youths realized nothing had changed: Fang Yuan was the same as ever, a
 
 Sighing, the youths obediently produced their primeval stones.
 
+As they walked out of the school gates, someone suddenly gasped in realization. "I understand now! No wonder Fang Yuan refused the position of class chairman! If he became chairman, he would only receive ten primeval stones. By staying a regular student and extorting us, he gets nearly seventy!"
+
+"He takes eight pieces from the chairman and three from each vice chairman," another student added bitterly. "In the end, they are left with only two pieces—just like the rest of us!"
+
 Bang!
 
 The academy elder slapped the table fiercely, feeling extremely furious.
@@ -3086,7 +3281,7 @@ Rejecting the class chairmanship meant refusing integration into the clan system
 
 Extending his reach to extort the chairmen directly crossed the elder's bottom line. This shakedown would completely undermine the prestige of both positions.
 
-If so, the clan head would be the first to punish him, followed closely by Gu Yue Chi Lian and Gu Yue Mo Chen.
+Yet despite knowing Fang Yuan had crossed his bottom line, the academy elder was powerless to intervene. If he took action himself, the clan head would be the first to censure him, followed closely by Gu Yue Chi Lian and Gu Yue Mo Chen.
 
 The clan head pinned his hopes on Gu Yue Fang Zheng, the sole A grade talent in three years, needing a tenacious, independent genius rather than a coddled, delicate flower.
 
@@ -3132,6 +3327,7 @@ It was clan head Gu Yue Bo's personal guard. "The clan leader orders the esteeme
 
 "Hiss…" The academy elder instantly drew a mouthful of cold air.
 
+
 # Chapter 55: Exactly the words I wanted to hear!
 
 Stepping into the clan head pavilion's conference hall, the academy elder sensed the solemn, tense atmosphere.
@@ -3158,6 +3354,8 @@ Instead of questioning Fang Yuan, he sharply addressed the female Gu Master, "Di
 
 Jia Fu stepped forward to shield her, cupping his fists. "Brother Gu Yue, I have always respected your clan, especially the first and fourth generation leaders—both Rank five powerhouses. Brother Gu Yue, as clan leader, I trust you will act impartially. Please interrogate Fang Yuan."
 
+Gu Yue Bo nodded, his decision already made. If Fang Yuan were truly the culprit, he would hand him over without hesitation; as a mere C-grade, losing him was of no consequence if it resolved the dispute. Even if Fang Zheng had done it, Fang Yuan would still have to take the fall—an A-grade genius was far too valuable to sacrifice, especially with Bai Ning Bing rising in the Bai clan.
+
 "Fang Yuan, don't be nervous," the Gu Yue clan leader smiled benevolently, asking gently, "Do you know anything about that Jia Jin Sheng?"
 
 "Who is Jia Jin Sheng?" Fang Yuan looked up and said calmly.
@@ -3174,7 +3372,7 @@ Fang Yuan nodded with feigned nervousness and sudden realization. "Oh, him. If h
 
 "How can that be!" Fang Yuan looked frantic, hurriedly saying, "The wine shop was crowded, how could you recognize me so easily? You must be mistaken!"
 
-Raising his eyebrows smugly, he asked, "Remember? You ordered monkey wine at our shop, drank only a mouthful, then summoned a Liquor worm and fed it the rest. Seeing the Liquor worm, I excitedly tried to buy it, but you refused and walked away immediately!"
+The male Gu Master smiled smugly, brimming with confidence. Raising his eyebrows, he said, "Remember? You ordered monkey wine at our shop, drank only a mouthful, then summoned a Liquor worm and fed it the rest. Seeing the Liquor worm, I excitedly tried to buy it, but you refused and walked away immediately!"
 
 "Good, exactly what I wanted to hear," Fang Yuan sneered internally, though feigning shock, he subconsciously stepped back.
 
@@ -3184,13 +3382,18 @@ Quickly frowning again, he asked, "Fang Yuan, where did you get that Liquor worm
 
 Fang Yuan clenched his fists, gritting his teeth, but refusing to answer.
 
+The surrounding clan elders flew into a rage, scowling at him. "Fang Yuan, do you know what kind of trouble you've caused? Speak! Did this Liquor worm belong to Jia Jin Sheng?"
+
 "How could it be his? I obtained the Liquor worm myself! I opened it!" Fang Yuan raised his head, shouting indignantly as if unable to bear such slander.
+
 
 # Chapter 56: Dispelling suspicion
 
 "You opened it?" Gu Yue Bo frowned deeply.
 
 "That's right, at this point, I shall not hide it any further!" Feigning desperate urgency, Fang Yuan said, "I bought six purple gold rocks at the gambling den, but lacking enough primeval essence, I only opened five on the spot. I opened the last one back at the hostel and found a Liquor worm inside. Overjoyed, knowing from prior research that a rare Liquor worm could supplement my poor talent, I refined it on the spot."
+
+"Wait, you bought six gambling rocks and opened both a mudskin toad and a Liquor worm?" a clan elder asked in disbelief.
 
 "So what?" Fang Yuan replied matter-of-factly, pointing at the female Gu Master. "She can be my witness!"
 
@@ -3222,13 +3425,14 @@ Following their gaze, Fang Yuan suddenly remarked to Jia Fu, "Maybe you killed h
 
 The Jia clan leader planned to divide his assets and pass down leadership, sparking fierce competition among his children—especially Jia Fu and Jia Gui, both Rank four Gu Masters with their own factions.
 
-If Jia Gui acted from the shadows, however, everything made sense.
+The Jia clan leader had placed Jia Jin Sheng in the caravan to test Jia Fu; now that he was missing, Jia Fu would be heavily implicated, leaving Jia Gui the true victor. If Jia Gui had acted from the shadows, everything made sense.
 
 The culprit's seamless actions eliminated all clues, demonstrating vast experience. How could a fifteen-year-old like Fang Yuan pull this off?
 
 "I understand everything now." Standing behind Fang Yuan, the academy elder's eyes shone. "Fang Yuan was both lucky and unfortunate to meet Jia Jin Sheng at the very end. A novice student could never erase all evidence. If he were so scheming, he wouldn't look so stubbornly indignant. He only denied it earlier to conceal the Liquor worm."
 
 "Clearing suspicion is only the first step; what comes next is crucial." In full control as everything went according to plan, Fang Yuan sighed inwardly and looked at Jia Fu.
+
 
 # Chapter 57: A gentleman’s lie
 
@@ -3239,6 +3443,8 @@ The culprit's seamless actions eliminated all clues, demonstrating vast experien
 Raising his voice, he interrogated, "Fang Yuan, how do you prove you didn't harm Jia Jin Sheng?"
 
 "A witness? Of course I have one." Fang Yuan smiled inwardly, though he feigned speechless shock.
+
+"No need for others, just tell me if you have one or not!" Jia Fu raised his voice again, pressing Fang Yuan.
 
 Looking indignant, Fang Yuan finally gritted his teeth and said helplessly, "No."
 
@@ -3261,6 +3467,10 @@ Jia Fu activated the Gu, revealing glowing tracks along the floor. The tracks lo
 The evidence was clear: having inspected the tracks, everyone saw Fang Yuan was completely innocent.
 
 Jia Fu sighed, taking out a small jade box.
+
+He opened the box to reveal a translucent emerald jade piece with a Gu worm sealed inside. At once, some elders recognized it and exclaimed, "Green jade body, white light enveloping its form—this is the Bamboo Gentleman!"
+
+Even Gu Yue Bo was moved and advised, "Brother Jia, this Bamboo Gentleman is a Rank four Gu, not easily refined. Why waste it here?"
 
 Jia Fu shook his head. "I obtained this Bamboo Gentleman through rock gambling, but it was only half-extracted. As everyone knows, this Gu feeds on honesty and inherently detects lies. Only an honest gentleman who has never lied can refine and nourish it."
 
@@ -3294,9 +3504,12 @@ Jia Fu said solemnly, "My investigation has yielded nothing. Upon returning, I s
 
 Cupping his fists to Gu Yue Bo, he departed with brisk elegance.
 
+Watching Jia Fu and his men depart, Gu Yue Bo breathed a sigh of relief and said, "You may all leave now."
+
 Waving the clan elders away, he added, "Academy elder, please stay behind."
 
 Without breaking a sweat, Fang Yuan stepped out of the pavilion safe and sound.
+
 
 # Chapter 58: The clan does not only have rules and regulations
 
@@ -3318,9 +3531,9 @@ Rules and Regulation told him, "The world holds myriad Gu with diverse abilities
 
 They added, "For your second command, we add another rule: from now on, we will only catch one Gu at a time."
 
-He asked Wisdom Gu, "Wisdom Gu, you left me before; do you regret it? Submit now, and I will grant you freedom."
+Seeing Wisdom Gu among the five trapped inside the net, Ren Zu asked, "Wisdom Gu, you left me before; do you regret it? Submit now, and I will grant you freedom."
 
-Wisdom Gu replied, "You cannot subdue me, for I only yield to those wiser than me. But we can strike a deal."
+Wisdom Gu replied, "You cannot subdue me, for I only yield to those wiser than me. But we can strike a deal: give me your youth, and I will temporarily obey you." Ren Zu refused to part with his life, yet kept the net tightly shut, unwilling to let it escape.
 
 Anxious, Wisdom Gu reluctantly conceded, "Alright, you win. Tell me how you captured me, and I will admit defeat without taking anything, remaining at your disposal."
 
@@ -3336,7 +3549,7 @@ Concluding his story, Gu Yue Bo looked meaningfully at the academy elder.
 
 Understanding dawned, and the elder bowed respectfully: "Clan leader, are you comparing Fang Yuan to Wisdom Gu and the clan to Ren Zu? Though Ren Zu trapped Wisdom Gu with Rules and Regulation, it eventually escaped."
 
-"Fang Yuan has shown flashes of brilliance. Let his extortions continue; use him to hone unpolished jades like Fang Zheng, Mo Bei, and Chi Cheng. This brings many benefits—at minimum, this class possesses the strongest combat skills of any recent year."
+Gu Yue Bo gestured for him to sit and said, "Fang Yuan has shown flashes of brilliance. Let his extortions continue; use him to hone unpolished jades like Fang Zheng, Mo Bei, and Chi Cheng. This brings many benefits—at minimum, this class possesses the strongest combat skills of any recent year."
 
 The elder worried, "Excessive hurdles might shatter the jade. Under Fang Yuan's suppression with the Liquor worm, no peer can overturn the situation."
 
@@ -3350,6 +3563,7 @@ Gazing out at the moon, Gu Yue Bo said, "Greatness comes from tolerance. Remembe
 
 "Yes, Clan Leader. This subordinate takes his leave," the academy elder said, exiting the hall.
 
+
 # Chapter 59: Regardless of Rank Three or Four, you’re all monkeys
 
 Riding the Treasure Brass Toad, Jia Fu and his entourage departed Gu Yue Village, returning toward the merchant caravan.
@@ -3362,7 +3576,7 @@ Jia Fu continued, "Ren Zu possessed the Rules and Regulation Gu to capture all t
 
 The trusted aide thought, and answered, "It's the Attitude Gu!"
 
-Jia Fu laughed, "Because attitude is everything. Whether Father believes or suspects, I have shown my attitude. When Jia Jin Sheng vanished, I investigated immediately and rushed here. "I interrogated them without rest and used the Rank four Bamboo Gentleman to verify Fang Yuan's words.
+Jia Fu laughed, "Because attitude is everything. Whether Father believes or suspects, I have shown my attitude. When Jia Jin Sheng vanished, I investigated immediately and rushed here. I interrogated them without rest and used the Rank four Bamboo Gentleman to verify Fang Yuan's words.
 
 "Once back, I will spend heavily to hire divine investigator Tie Leng Xue. As his brother, I have done all I should! I've thought it through—we don't need a scapegoat. We will return honestly, as I am blameless! A scapegoat might just fall into Jia Gui's trap. If I find a scapegoat, he can find someone to overturn the case."
 
@@ -3371,6 +3585,8 @@ Fang Yuan stood on the hillside as he silently watched.
 This incident was a chess match between Jia Fu and the clan, where Gu Yue Bo, the elder, and Jia Fu were all pawns.
 
 To protect his own piece, he had to maneuver between the two opposing sides.
+
+Days ago, he had already begun plotting. He first used the guards to stage a show, concealing the Liquor worm to arouse clan curiosity and invite the academy elder's private investigation. Next, he extorted his classmates to exhibit wild rashness and show weakness to the elders. During the interrogation, he feigned panic and led their deduction by the nose, exploiting the opposing interests of the Gu Yue clan and Jia Fu to turn the investigating academy elder into his indispensable witness.
 
 The Bamboo Gentleman was unexpected, but under the Spring Autumn Cicada's aura, it ironically became Fang Yuan's strongest evidence.
 
@@ -3386,9 +3602,10 @@ In two to three years, he would reach Rank two or three, entering a completely d
 
 "The bright moon shines among pines, the clear spring flows over stone," Fang Yuan recited, recalling a fable from Earth.
 
-A troop of monkeys saw the moon reflected in a well and tried to fish it out.
+A troop of monkeys pursued the moon, seeing its reflection in a well. They linked together, tail to hand, reaching down until the first monkey could touch the water. But as soon as it reached out, the ripples scattered and the moon vanished. People in this world were just like that—chasing reflections and mistaking illusions for truth, blind to the fact that it was merely a moon in a well, a moon in their eyes, or a moon in their hearts.
 
 "In this life, I shall be the true moon—rising above mountains and skies, playing with clouds and seas, treading the dark heavens of antiquity." Fang Yuan's eyes were clear, reflecting the verdant mountains.
+
 
 # Chapter 60: Passage behind the broken wall, how can the legacy be easily obtained?
 
@@ -3444,6 +3661,8 @@ A strength inheritance was deliberately designed with trials to test successors.
 
 The Flower Wine Monk created this inheritance to groom an avenger against the Gu Yue clan.
 
+Unlike righteous inheritances that tested character without mortal danger, demonic inheritances were unpredictable. Some were simple resource stashes, some imposed lethal trials where failure meant death, and others were spiteful deathtraps designed purely to drag successors to the grave.
+
 "Which type does the Flower Wine Monk's belong to?" Fang Yuan pondered.
 
 "A pure trap is unlikely, or he wouldn't have made the image wall. But are there hidden mechanisms?"
@@ -3462,11 +3681,16 @@ In a hidden bush near the river, he retrieved his bamboo wine, drinking deeply a
 
 Wine in hand, he returned to the village, reaching the dormitory right at midnight.
 
+Frequent late-night absences would invite scrutiny, but returning reeking of alcohol matched the habits he had established while hunting for the Liquor worm, keeping his nightly movements above suspicion.
+
+
 # Chapter 61: Life hanging on a grass rope
 
 In the academy, the elder addressed the class. "Tomorrow, you will choose your second Gu. Choose carefully. With the experience of cultivating these few days and understanding of your own body, consider it as a whole. Normally, it is best if you pair the second Gu well with your vital Gu."
 
 While the other youngsters pondered the elder's words, Fang Yuan was fast asleep on his desk.
+
+Across the room, Fang Zheng looked at Fang Yuan with shining eyes and silently vowed to surpass him. Seeing the boy's newfound vigor and glowing expression, the academy elder immediately understood that the clan leader had begun secretly teaching him.
 
 Soon it was night once more.
 
@@ -3480,9 +3704,13 @@ The passage entrance remained open and silent. Half-kneeling, Fang Yuan inspecte
 
 Standing, he pulled dead vines from the wall and sat down to weave a makeshift grass rope.
 
+In his past life, Fang Yuan had been so impoverished at times that his Gu worms starved to death, forcing him to weave straw sandals and hats for primeval stone fragments just to survive. Those past sufferings had now melted into a soundless laugh. Under the cave's red light, youth and bitter experience intertwined on his face—weaving grass ropes, wasn't it just like experiencing life?
+
 An hour later, the rabbit dashed into the tunnel with its bell jingling, disappearing from sight in moments.
 
 Fang Yuan held the makeshift grass rope tied to the rabbit's hind leg as it unspooled into the tunnel.
+
+After a while, the rope stopped moving. Unsure whether the rabbit had hit a trap or merely stopped to rest, Fang Yuan pulled on the line to test it, drawing the rope taut.
 
 Feeling the tug, the startled rabbit scrambled deeper into the passage.
 
@@ -3521,6 +3749,7 @@ Shaving it down with Moonlight Gu would take a year or two.
 "Excavation tools might expose me with noise and traces." Fang Yuan frowned, weighing the risks.
 
 If the risk proved too great, he would rather abandon this inheritance.
+
 
 # Chapter 62: Choosing Gu again in the Gu storage room
 
@@ -3610,6 +3839,7 @@ Gu Yue Chi Cheng was the fourth to enter.
 
 "I need evasion so I can strike without being hit." Chi Cheng chose the Dragonpill Cricket Gu.
 
+
 # Chapter 63: Gifting the jade skin under the moon; white boar hidden in the ground flower
 
 This was a concealed courtyard in Gu Yue Village.
@@ -3634,13 +3864,15 @@ Gu Yue Bo chuckled. "He chose the Little Light Gu to amplify his moonblade attac
 
 "Indeed, brother seems to be like that." Fang Zheng muttered.
 
-"I analyzed Mo Bei and Chi Cheng, yet he only asked about Fang Yuan. He carries deep trauma from his brother, but in this rebellious phase, his desire to surpass Fang Yuan is understandable. If only Fang Zheng had Fang Yuan's intelligence. Of all the youths I've seen, Fang Yuan's political wit is unmatched. What a pity he only has C-grade talent."
+Gu Yue Bo sighed internally. He had analyzed Mo Bei and Chi Cheng to test Fang Zheng, yet the boy only cared about Fang Yuan. Fang Zheng clearly carried deep trauma from his brother, but in this rebellious phase, his desire to surpass him was understandable. If only Fang Zheng had Fang Yuan's intelligence. Of all the youths he had seen over the years, Fang Yuan's political wit was unmatched. What a pity he only had C-grade talent.
 
 He took out a Gu worm from his pocket.
 
 "This is... Jade Skin Gu?" Fang Zheng's eyes widened as he saw it.
 
 Gu Yue Bo said, "The Jade Skin Gu far surpasses the Bronze Skin Gu, offering greater defense for less primeval essence. Fang Zheng, do you want it?"
+
+"Clan Leader!" Fang Zheng stammered in shock, his eyes wide. "I... of course I want it!"
 
 "I can give it to you," Gu Yue Bo smiled amicably, "but as clan leader, I must remain impartial. I have one condition."
 
@@ -3692,11 +3924,14 @@ It was a ladybug no larger than a thumbnail.
 
 "White Boar Gu!" Fang Yuan's face lit up with joy.
 
+
 # Chapter 64: Easy to do secretly, difficult to do openly
 
 Fang Yuan entered the cafeteria, instantly drawing the shop assistants' attention.
 
 "Bring a jar of wine, six hundred grams of beef, and some side dishes." Fang Yuan took his usual window seat.
+
+The shop assistant showed a difficult expression. "Young Master, my apologies, but during the caravan's visit, the innkeeper sold all of our green bamboo wine. We do not have any left."
 
 Fang Yuan nodded. "Bring rice wine then, and tell the innkeeper I'm pre-ordering a hundred jars of green bamboo wine this year."
 
@@ -3710,7 +3945,7 @@ The plump White Boar Gu spread its wings and circled in the air.
 
 The Black and White Boar Gu were equally renowned, rare Rank one Gu worth even more than the Liquor worm.
 
-Meanwhile, the White Boar Gu combined with Jade Skin Gu into the Rank two White Jade Gu, then into the Rank three Heavenly Mugwort.
+Although both shared similar uses, their advancement paths differed: while the Black Boar Gu combined into the Black Mane Gu, the White Boar Gu was most compatible with the Jade Skin Gu, advancing into the Rank two White Jade Gu and later the Rank three Heavenly Mugwort.
 
 Obtaining the White Boar Gu was pleasing, but the Flower Wine Monk's strength inheritance was the true prize.
 
@@ -3754,6 +3989,7 @@ Buying pork in the village would cost precious stones and draw unwanted attentio
 
 With the academy on break for students to refine their second Gu, Fang Yuan used the free time to scout outside the village and hunt wild boars.
 
+
 # Chapter 65: Quickly get lost
 
 "Clan Gu Masters keep the village surroundings relatively safe, but wild beasts and Gu still roam freely—I must stay cautious."
@@ -3792,9 +4028,13 @@ Its life faded as warm blood filled the pit, a pungent stench permeating the air
 
 "Survival or death—this is the eternal theme of nature," he sighed inwardly.
 
+Just then, human voices drifted through the woods.
+
 "Second Brother Wang inherited the old hunter's skills. Any boar he hunts is as good as caught!"
 
 Amidst the flattery, a stern voice scoffed, "Hmph! Hunting one boar hardly proves my skill. Today I'll kill three! Er Gou Dan, stop lusting after my sister, or I'll thrash you!"
+
+Er Gou Dan retorted, "What's wrong with liking Little Sister Wang? Which young man in the village doesn't fancy her? Besides, Second Brother Wang, you're already nineteen—it's high time you took a wife and had kids."
 
 The voice replied, "Hmph, I'm a real man, above such petty temptations! One day I'll leave Qing Mao Mountain to explore the world and see everything under heaven—that's a true man's ambition!"
 
@@ -3803,6 +4043,7 @@ Saying so, the four young hunters walked out of the forest.
 Their tall leader carried a bow and arrows, his bulging muscles and spirited eyes radiating strength.
 
 Seeing Fang Yuan, he scowled, "Which village are you from, kid? How dare you steal from Wang Er—get lost!"
+
 
 # Chapter 66: A person’s death is akin to a pig’s death
 
@@ -3838,7 +4079,7 @@ Watching the massive fist loom before him, Fang Yuan's expression never wavered 
 
 Wang Er grinned maliciously, swinging his fist horizontally to strike Fang Yuan's back.
 
-Just then, blinding sunlight flashed into his eyes.
+His back had originally faced the sun, but having turned around, the piercing sunlight flashed directly into Wang Er's eyes, momentarily blinding him.
 
 Fang Yuan smirked, flipping backward to evade the fist while swinging his right arm.
 
@@ -3864,9 +4105,12 @@ Standing up, he had suffered no real injury beyond a sore shoulder.
 
 His swift, steady archery rivaled moonblades—even outranging them. His melee prowess was at the mortal peak: a sturdy build, tough bones, and ruthless aggression.
 
+A moonblade only had a range of ten meters, while the bow reached much further. Fang Yuan had intentionally closed the distance to force Wang Er into melee, only to exploit the sun's glare and execute him at point-blank range.
+
 "Wang Er was skilled. I aimed to decapitate him, but his sharp reflexes let him dodge enough that the moonblade only took off half his head."
 
 "Life and death is nature's law where all living beings are equal. Nobles or peasants, in the face of death a man's demise is no different from a pig's. Dead is dead."
+
 
 # Chapter 67: Don’t worry, I’ll spare you
 
@@ -3922,6 +4166,7 @@ He used over ten bamboo papers, before handing them all to Fang Yuan.
 
 Fang Yuan glanced through them and split the sheets between the two hunters. "Check for errors. For each mistake you find, I'll give you a primeval stone!"
 
+
 # Chapter 68: There is no innocence in nature
 
 The young hunters scrutinized the maps for nearly fifteen minutes, reluctantly handing them back only after Fang Yuan urged them.
@@ -3938,9 +4183,13 @@ His head flew into the air, fresh blood spewing everywhere.
 
 "Father—!" the girl cried out, leaping toward his headless corpse, only for another moonblade to strike her face.
 
+She collapsed onto the ground, lifeless. Seeing her death, the two young hunters fell to the ground in terror, begging Fang Yuan to spare them.
+
 "Get up, go inside and search!" Fang Yuan ordered, "I know that a hunter's family always keeps a beast skin map. On top of it is the terrain, trap locations and the beast territories. Find it for me, and I'll let you keep your lives."
 
 "Right away, Lord Gu Master!" The two scrambled up and dashed into the wooden house.
+
+A moment later, even after ransacking the wooden house, the two hunters still could not find any beast-skin map. Calling them useless trash, Fang Yuan walked inside and surveyed the rooms.
 
 "They've searched it thoroughly, but every hunter inherits a beast-skin map refined over generations, detailing territories and traps. It's their livelihood—how could they not have one?"
 
@@ -3949,6 +4198,8 @@ Fang Yuan pondered, "When I ordered them to find paper and brush, Old Man Wang b
 Scanning the room again, inspiration struck as Fang Yuan looked at the firepit.
 
 Fang Yuan walked over to the firepit, squatted down, and used a shovel to dig through the charcoal.
+
+Most of the charcoal was brittle and broke easily, yet Fang Yuan soon found one block that was unusually tough and heavy.
 
 He shoveled out the charcoal block and smashed it on the ground, shattering it to reveal a bamboo tube.
 
@@ -3972,7 +4223,10 @@ The old man had to die; even if he endured his son's murder, Fang Yuan would not
 
 In any world, living beings are entangled in cause and effect—who is truly innocent? Humans slaughter pigs; aren't the pigs innocent?
 
+Big fish eat small fish, and small fish eat shrimp; in nature there is only the food chain, and there is no innocence.
+
 In this world, anybody can live, anybody can die, but nobody is innocent!
+
 
 # Chapter 69: Life is as cheap as grass
 
@@ -3985,6 +4239,12 @@ The beast-skin map was too thick to fold, so Fang Yuan rolled it into the bamboo
 "Hunter Wang's wife was killed by invading wolves decades ago, after bearing two sons and a daughter. Three years ago, the eldest son Wang Da died hunting on the mountain. There is no one else in the Wang family."
 
 "Is that so…" Fang Yuan narrowed his eyes at the kneeling men, knowing they spoke the truth.
+
+"Did you lie to me?" Fang Yuan pressed.
+
+"We wouldn't dare!" one hunter stammered, desperate to preserve his life. "Old Man Wang was a villain anyway—rumor has it he hounded his widowed daughter-in-law to death after Wang Da vanished. By killing him, Lord Gu Master has rid the people of evil and brought peace!"
+
+"That's right, that's right!" the other chimed in eagerly.
 
 "Enough flattery. I only killed them for this beast skin map. You two have behaved well; you may leave." Fang Yuan's tone softened, but the hand behind his back glowed with gloomy moonlight.
 
@@ -4022,6 +4282,8 @@ Seeing Jiang He's weakness, Fang Yuan replied at once, "Then report it as you mu
 
 "Hahaha, since that's the case, we're acquaintances! Forget about it, I will handle this matter!" Jiang He thumped his chest, putting on an appearance of loyalty and self-sacrifice.
 
+In truth, Jiang He was merely seizing the opportunity to step down gracefully; he could never actually report the incident. Having villagers die under his watch would lower his evaluation regardless. Rather than offending a rising talent like Fang Yuan for nothing, he might as well do him a favor and report that Old Man Wang's family had been killed by wild beasts.
+
 Jiang He did not fear exposure; mortal peasants were worth as little as grass. Even if the clan learned of the cover-up, they would hardly care about such a trivial matter.
 
 "However, junior, you haven't graduated yet and lack a Gu Master uniform. Had Wang Er seen this outfit, he would have known your status and never offended you. You're a smart person, aren't you, hehe?" Jiang He added.
@@ -4029,6 +4291,7 @@ Jiang He did not fear exposure; mortal peasants were worth as little as grass. E
 Fang Yuan understood the veiled warning: do not cause trouble or kill in Jiang He's jurisdiction again.
 
 "Thank you for the advice, senior." Fang Yuan cupped his fists to bid Jiang He farewell and promptly took his leave.
+
 
 # Chapter 70: Using the White Boar Gu
 
@@ -4118,6 +4381,7 @@ Fang Yuan hurriedly stopped the White Boar Gu.
 
 The White Boar Gu could only be used for about fifteen minutes a day; exceeding this threshold caused escalating, unbearable pain.
 
+
 # Chapter 71: Keeping a low profile even if one’s strength can carry a boar
 
 Time flew, and in the blink of an eye, it was mid-June.
@@ -4140,7 +4404,7 @@ With a boom, the wild boar slammed into a large riverbank rock, squealing pitifu
 
 "My strength can now rival a boar! Tonight I'll test the giant rock in the tunnel." Fang Yuan panted, excitement flashing in his eyes.
 
-"I can carry a wild boar now, but that doesn't mean I can clash head-on with one—just as a strong man who can carry another doesn't necessarily share his strength. My strength can continue to grow." After feeding the White Boar Gu, Fang Yuan took the tusks and entered the secret cave.
+"I can carry a wild boar now, but that doesn't mean I can clash head-on with one—just as a strong man who can carry another doesn't necessarily share his strength. My strength can continue to grow." Feeding the White Boar Gu, Fang Yuan retrieved the tusks and left the carcass behind.
 
 Even if someone discovered it, it mattered little; Fang Yuan had altered the boar's wounds so they bore no resemblance to moonblade cuts.
 
@@ -4166,7 +4430,7 @@ Without a storage Gu, Fang Yuan could not carry the map everywhere, and hauling 
 
 "Youth certainly aids memory; I've already memorized over half the map. In old age, I would forget lines faster than I could learn them. Hehe… of course, if I had a Bookworm, I could simply feed the map to it and recall it flawlessly forever, so long as the Gu wasn't lost."
 
-He was at the middle stage, just like his peers. Keeping pace with A and B-grade talents despite his C-grade aptitude was no small feat, owed entirely to the Liquor worm and his deep cultivation experience.
+Putting thoughts of the rare Bookworm aside, Fang Yuan was well satisfied with his current progress. In his previous life, he had still languished at the initial stage at this point while peers surged ahead to the upper stage. Now, he was at the middle stage alongside them. Keeping pace with A and B-grade talents despite his C-grade aptitude was no small feat, owed entirely to the Liquor worm and his deep cultivation experience.
 
 His extortions had forced classmates to focus on martial training, slowing their cultivation progression even more than in his previous life.
 
@@ -4189,6 +4453,7 @@ This crossed-out danger zone was absent from the bamboo paper. Had Fang Yuan tru
 The three circles marked isolated, distant locations with few beasts, considered relatively safe spots in the wilderness.
 
 "The red cross represents danger, but what about the red circles?" Fang Yuan pondered. "Old Man Wang marking them means they are important. Too bad they are far, or I would inspect them myself."
+
 
 # Chapter 72: Any organisation would also require loyalty
 
@@ -4232,7 +4497,7 @@ The students reacted with mixed emotions—some rejoicing, some fretting, some e
 
 "It changed! Last year's exam was collecting wild honey, yet now it's wild boar teeth. Is this the butterfly effect?"
 
-"In my past life I knew nothing of the future; do I lack courage in this life? Hehe, even if the world is full of thorns, I will cut through them and pave a bloody path myself!"
+"If I keep altering events, history might become completely unrecognizable, stripping away the advantage of my rebirth. But so what? In my past life I knew nothing of the future; do I lack courage in this life? Hehe, even if the world is full of thorns, I will cut through them and pave a bloody path myself!"
 
 "Ten primeval stones per tooth is high. But selling my stockpiled fangs publicly might arouse suspicion with the clan elders."
 
@@ -4256,6 +4521,7 @@ But now the mid-year exam was a chance.
 
 "It seems I need to do some plotting, starting with the extortion." Fang Yuan's gaze turned resolute as his scheme took shape.
 
+
 # Chapter 73: The mysterious red circle marking
 
 "Fang Yuan defeated Fang Zheng, Chi Cheng, and Mo Bei, but spared their primeval stones?" The academy elder looked startled.
@@ -4266,7 +4532,7 @@ The three represented the clan's core factions. Sparing them indicated Fang Yuan
 
 Three days passed in a flash, and the mid-year exam arrived.
 
-Beneath the tent were several tables and chairs. The academy elder sat at the head, flanked by other clan elders, with several Gu Masters standing behind them.
+On a hidden hill overlooking the forest, a temporary tent had been pitched. Beneath it sat the academy elder at the head, flanked by other clan elders, with several Gu Masters standing behind them.
 
 A Gu Master darted out from the forest like a shadow and knelt outside the tent.
 
@@ -4292,7 +4558,7 @@ Fang Yuan looked at the sky; it was time to retrieve the other bag.
 
 But when he was about to move, he hesitated.
 
-"I am only five to six hundred meters from the nearest red circle marking. With such a rare chance, should I go take a look?"
+In his mind, the beast skin map he had memorized surfaced. The map contained three red circle markings of great importance to Old Man Wang—the only mystery Fang Yuan had yet to decipher. From his current position, he was only five to six hundred meters away from the nearest one. With victory already secured and plenty of time left, should he go take a look?
 
 Pretending to continue hunting wild boars, he moved deeper into the forest.
 
@@ -4305,6 +4571,7 @@ A treehouse sat hidden among the branches of a giant tree, undetectable without 
 He climbed into the treehouse.
 
 Seeing the sight inside the treehouse, his expression changed!
+
 
 # Chapter 74: Solving the mystery with knowledge and discovering killing intent
 
@@ -4366,6 +4633,7 @@ Even if he had obtained the authentic map, Old Man Wang would have alerted Wang 
 
 Few people knew what happened, and Wang Da would not attack Jiang He; killing a clan member would trigger an investigation. But two mortal hunters vanishing on the mountain was easy to brush aside.
 
+
 # Chapter 75: Resolution of the Demonic way!
 
 Drawing on his past life's knowledge, Fang Yuan deduced Wang Da's existence—but how strong was he?
@@ -4426,7 +4694,7 @@ Immediately, darkness enshrouded his body, allowing him to move through the tree
 
 In a thick bush nearby, a Gu Yue Rank two Gu Master sprawled, yawning in boredom.
 
-One hand covered the Gu Master's mouth while dark purple, blade-sharp nails stabbed into his back, piercing straight to the heart.
+Wang Da pounced from the shadows like lightning. One hand covered the Gu Master's mouth while dark purple, blade-sharp nails stabbed into his back, piercing straight to the heart.
 
 The Gu Master stiffened, losing all signs of life.
 
@@ -4444,7 +4712,7 @@ Moments later, the second Gu Master behind a rock was assaulted, his pupils shri
 
 Knowing he lacked poison-resistance Gu and was doomed, he showed grim resolve and shouted, "Then let's die together!"
 
-A moonblade shot out, slashing Wang Da's right shoulder and piercing straight through his back.
+He opened his mouth and thrust out his tongue, revealing a crescent Moonlight Gu tattoo. A moonblade shot out, slashing Wang Da's right shoulder and piercing straight through his back.
 
 Wang Da grunted, swaying slightly, but the Gu Master had already passed away.
 
@@ -4457,6 +4725,7 @@ To refine it, Wang Da had killed his deeply loving wife and dug out her heart!
 "All for survival, I could only choose strength… this is my demonic path's resolution!" Red-eyed, Wang Da stared fixedly at the nearby youngster.
 
 "I gave up love and had only kinship left, yet you took them from me! Fang Yuan…" he growled, "I'll make you deeply regret everything!"
+
 
 # Chapter 76: Do you regret it?
 
@@ -4480,7 +4749,7 @@ The Gu worm detonated on command into blinding white light.
 
 Flash Blink Gu was the complete counter to Shadow Follower Gu, forcing it into a three-hour recovery.
 
-"Surrender now and my clan might spare your life!" A white-haired Rank two Gu Master appeared before him.
+"I am Gu Yue Sou, lad—surrender now, and my clan might still spare your life!" A white-haired, silver-bearded Rank two Gu Master appeared before him.
 
 "Spare me? I'll kill you first!" Wang Da leaped forward, knowing stalling would only draw more defenders.
 
@@ -4491,6 +4760,10 @@ Gu Yue Sou snorted as his body hair intertwined into spiky, snow-white battle ar
 He moved swiftly, bypassing Gu Yue Sou to attack his family's killer.
 
 "Dream on!" Gu Yue Sou's spiked armor shot two sharp pins spiraling toward Wang Da.
+
+Wang Da shifted his body, narrowly avoiding the two snow-white spikes.
+
+His ten fingernails were half a palm long, dark purple, with mist-like poison swirling around them.
 
 Before him, Fang Yuan's face was filled with shock and panic.
 
@@ -4522,7 +4795,19 @@ The elderly Gu Master shouted frantically as more snow-white needles riddled Wan
 
 Intense dizziness struck Wang Da. He laughed pathetically, knowing death was near.
 
+His vision blurred, and at the moment of death, the most vivid memory of his life surfaced again.
+
 "Wan Er…" He subconsciously called his wife's name as his knife pierced her chest.
+
+"Why?" His wife stared into Wang Da's eyes, her lovely face filled with shock and confusion.
+
+Wang Da's eyes were bloodshot, his body trembling as he forced out a single word: "Sorry."
+
+She smiled faintly—a smile full of love, without a trace of hatred. "I understand," she said. She tried to raise her right hand to touch his face one last time, but halfway there, her hand fell.
+
+He had killed his wife for her heart to refine Love Life Separation, gaining strength and stepping onto the demonic path!
+
+Do you regret it? From that day on, he had asked himself this endlessly. I regret it! He regretted it so deeply he would rather die, so he swore to protect his remaining family. But…
 
 "If I could start over, Wan Er, I would still do the same…" Tears streamed from Wang Da's bloodshot eyes.
 
@@ -4534,7 +4819,12 @@ Wang Da's nails sank one centimeter into the jade skin, then stopped.
 
 He died.
 
+"It's… over?" Fang Zheng breathed roughly, his eyes hollow and unfocused.
+
+Then, an overwhelming wave of dizziness washed over him, and he collapsed to the ground.
+
 Though it hadn't fully breached the jade skin, Love Life Separation—the deadliest Rank two poison—had already invaded his body.
+
 
 # Chapter 77: An odd coincidence
 
@@ -4553,6 +4843,8 @@ Knowing Wang Da tracked him via the beast skin map, Fang Yuan headed straight in
 Circling wide around the danger zone, Fang Yuan reached the hill where elders conducted the mid-year assessment.
 
 An hour later, a mud-stained youngster with grass-strewn hair and a torn shirt ran up the hill carrying a bag.
+
+This pathetic-looking youngster was Fang Yuan.
 
 Near a tent on the hill, students waited as academy guards tallied boar tusks, supervised by the academy elder.
 
@@ -4614,13 +4906,20 @@ Having vanished for three years, Wang Da's identity remained unknown. Unconcerne
 
 At this moment, the academy elder walked in.
 
+"Clan Leader…" The academy elder looked worried and was about to speak when Gu Yue Bo answered, "Academy Elder, Fang Zheng is fine, and his talent is still A-grade."
+
+The academy elder's expression relaxed.
+
 "Are the other students safe? What are the exam results, and where did Fang Zheng place?" Gu Yue Bo asked.
 
 The academy elder reported truthfully; hearing that Fang Yuan placed first by finding a bag of boar tusks, Gu Yue Bo's eyes gleamed.
 
 The hall fell silent. Sensing something amiss, the elders observed each other, turning the tense mood subtly peculiar.
 
+
 # Chapter 78: Great rewards all according to plan
+
+In the discussion room, Gu Yue Bo sat expressionlessly in the leader's seat, his gaze profound. Around him, a dozen clan elders sat upright, scanning each other from the corners of their eyes in the delicate, suspicious silence.
 
 "Fang Yuan taking first place is no simple matter. Claiming he found a hidden bag of tusks is far too convenient."
 
@@ -4690,6 +4989,7 @@ Following Fang Zheng and Mo Bei, Fang Yuan and Chi Cheng advanced almost simulta
 
 While continuing extortion, he spared Fang Zheng, Mo Bei, and Chi Cheng. Laying low, his strength grew several times faster than in his past life.
 
+
 # Chapter 79: Breakthrough to the sixth Gu in the inheritance ground
 
 Time flew like a fleeting white steed, and summer yielded to autumn.
@@ -4704,7 +5004,7 @@ Pushing a few more steps, Fang Yuan moved past the boulder into a secret room.
 
 The room had glowing red soil walls and a crude stone door at the far end.
 
-"Don't tell me…" A thought struck Fang Yuan; he knelt and dug into the soil.
+Noticing that the ground before the stone door was slightly damp, a thought struck Fang Yuan. "Don't tell me…" He knelt down and began loosening the soil.
 
 The second Earth Treasury flower!
 
@@ -4756,6 +5056,7 @@ Each pillar housed at least a hundred stone monkeys, with countless more across 
 
 Fortunately, the monkeys never emerged unless someone approached within ten meters or provoked them.
 
+
 # Chapter 80: A surge in battle strength
 
 "Hurrumph!" Bristling its mane, a black wild boar charged wildly forward.
@@ -4790,7 +5091,9 @@ His aperture held forty-four percent primeval sea at full capacity. After repeat
 
 Expending eight percent of his refined dark green essence was still a notable cost.
 
-"A Gu Master's strength grows with cultivation, reflected in their primeval essence—higher stages produce darker, more potent, and more durable essence. My black green primeval essence was on the basis of upper stage primeval essence, refined by the Liquor worm. It is unlike Fang Zheng, who is already Rank one peak stage cultivation already." Thinking of this, Fang Yuan's gaze shone.
+"A Gu Master's strength grows with cultivation, reflected in their primeval essence—higher stages produce darker, more potent, and more durable essence. My black-green primeval essence was refined from upper stage essence by the Liquor worm, unlike Fang Zheng, who has already reached Rank one peak stage." Thinking of this, Fang Yuan's gaze shone.
+
+Two months had passed since Wang Da's attempted assassination. Fang Zheng had lain comatose for seven days and seven nights from the poison, but once he woke, he was like a changed person, cultivating dutifully. He was the first to advance to the upper stage, and not long ago the first to reach peak stage, leaving his classmates in the dust as the advantages of an A-grade talent finally showed.
 
 "I'm half a month from peak stage, but C-grade talent cannot match A or B grades."
 
@@ -4824,6 +5127,7 @@ Heavy, fearless footsteps drew closer, making Fang Yuan's pupils contract.
 
 ---
 
+
 # Chapter 81: Rank two Initial stage!
 
 As the footsteps neared, the hillside foliage was shoved aside, and a burly man stepped into view.
@@ -4836,7 +5140,7 @@ Slightly surprised upon spotting Fang Yuan, he strode past without stopping.
 
 "Gu Yue Chi Shan," Fang Yuan recalled, watching his retreating back.
 
-A representative of the Chi faction at Rank two upper stage, his background mirrored Fang Yuan's.
+A representative of the Chi faction at Rank two upper stage, his experiences mirrored Fang Yuan's. Once heralded as an exceptional talent, he had awakened to only B grade aptitude, yet the setback matured him, and through hardship he fought his way to become an elite among the clan's Rank two Gu Masters.
 
 "Clan youths awaken at fifteen to enter the academy, graduating at sixteen to form five-man squads, carry out clan missions, and inherit family fortunes. Only those enduring severe hardships reach Rank three, becoming clan elders among the ruling elite."
 
@@ -4850,7 +5154,7 @@ Refining essence with the Liquor worm and using the White Boar Gu drained immens
 
 "Extorting classmates has been my primary income, but graduation will end both the academy allowance and extortion. But if I get first for the year end exam, I can get a hundred and fifty primeval stones as reward," Fang Yuan contemplated in his heart.
 
-… Time flies, autumn leaves and winter comes.
+Time flew by as autumn departed and winter arrived.
 
 Three tournament stages were erected in the academy arena.
 
@@ -4888,7 +5192,10 @@ Closing then snapping open her eyes, she gasped in shock, "Gu Yue Fang Zheng, Ra
 
 Six months after Gu Yue Bo gifted him a Jade Skin Gu to reach Rank two first, Fang Zheng had succeeded.
 
-"Clan leader, I succeeded! I will earn everyone's approval from now on. Brother, you are no longer a shadow over my heart—I have surpassed you and left the past behind!"
+"Clan leader, I did not disappoint you, I did it! From now on, I will achieve even more, gaining the approval of the clan elders and everyone around me. Brother, you are no longer a shadow over my heart—I have surpassed you, and I am no longer who I was back then!" Fang Zheng shouted in his heart, his eyes shining with a radiant brilliance.
+
+This brilliance was called confidence!
+
 
 # Chapter 82: Start of the year end examination
 
@@ -4926,9 +5233,10 @@ The crowd's drowsiness vanished when the hosting Gu Master called out:
 
 "Next round: Gu Yue Fang Zheng versus Gu Yue Mo Bei!"
 
+
 # Chapter 83: Sweeping strong foes, Fang Zheng displays his skills
 
-Fang Zheng and Mo Chen both walked up the stage.
+Fang Zheng and Mo Bei both walked up the stage.
 
 "Fang Zheng, don't think I'll lose just because you're Rank two! Today I'll defeat someone from a higher realm," Mo Bei declared, gritting his teeth.
 
@@ -4974,7 +5282,10 @@ Eventually, Chi Cheng exposed a fatal flaw and was knocked off the stage.
 
 "Gu Yue Fang Zheng wins!" Gu Master announced.
 
+Stepping down from the stage to the crowd's endless praises, Fang Zheng felt as though he were reborn. It was completely different from before—his heart overflowed with the joy of recognition and commendation. Even as a chilly winter wind blew across the grounds, he felt only the warmth of a summer day.
+
 "Last match, Gu Yue Fang Zheng vs Gu Yue Fang Yuan!" A while later, an announcer shouted.
+
 
 # Chapter 84: Trample ruthlessly!
 
@@ -5048,13 +5359,14 @@ Fang Yuan's third stomp pinned Fang Zheng down, grinding his face into the floor
 
 His right palm gathered moonlight again.
 
-With a light sound, he shot out a moonblade onto Fang Zheng's right palm.
+How could Fang Yuan not notice? With a light sound, he shot out a moonblade onto Fang Zheng's right palm.
 
 Argh!
 
 Fang Zheng screamed as excruciating pain sent his body into lightning-like spasms.
 
 His palm was pierced nearly to the bone, the Moonlight Gu upon it grievously injured.
+
 
 # Chapter 85: Hot-blooded and cold-blooded
 
@@ -5085,6 +5397,7 @@ Total silence fell over the arena. Fang Yuan's fists were mangled and bloody, ex
 Fang Yuan stood motionless, surveying the stunned crowd with cold indifference as if his mangled hands belonged to someone else.
 
 Dead silence reigned. Under the pavilion, the clan leader remained standing, utterly dumbfounded. "Sorry to disappoint you all," Fang Yuan remarked flatly.
+
 
 # Chapter 86: Suspicion and probing
 
@@ -5138,6 +5451,8 @@ Clan leader Gu Yue Bo remained standing, frowning deeply.
 
 Not only the clan leader, but the other elders wore solemn, conflicted expressions.
 
+Fang Yuan's unnatural strength stirred deep turmoil in their hearts. Was he truly born with innate might like Chi Shan, or had someone secretly aided him? A mere C-grade youth could hardly achieve such power alone—he had to have a mysterious backer among the clan's higher-ups. But who could it be?
+
 Clan leader Gu Yue Bo smiled, "Fang Yuan, claiming first place with C grade talent is an unprecedented feat! You are rewarded with one hundred primeval stones and priority in selecting a Gu worm. Furthermore, I grant you the right to join any team of your choosing. Whichever group you want, you may join!"
 
 "Though I decided on the spot, the clan elders surely agree with me," Gu Yue Bo smiled broadly at the elders beside him.
@@ -5147,6 +5462,7 @@ Led by Gu Yue Chi Lian and Gu Yue Mo Chen, the elders looked grim and some even 
 Fang Yuan's heart jumped.
 
 Trouble had come.
+
 
 # Chapter 87: Attitude is the mask of the heart
 
@@ -5209,6 +5525,7 @@ He was heartless.
 The heartless cannot wear attitude; to someone with intentions, attitude is merely a mask.
 
 "This warm attitude is merely Jiao San's mask. What is his true intention?" Fang Yuan pondered.
+
 
 # Chapter 88: Initial display of authority, picking on, and suppression
 
@@ -5278,6 +5595,7 @@ A primeval stone or two didn't matter to Fang Yuan, but he wondered why Gu Yue J
 
 "Unless…" An inspiration struck Fang Yuan.
 
+
 # Chapter 89: A sickly snake coiling around the legs
 
 The five stood on the walkway.
@@ -5298,7 +5616,7 @@ Fang Yuan nodded. He already knew all this; Jiao San hadn't lied, but had omitte
 
 Fang Yuan laughed coldly inside, yet replied, "Thank you for your care, leader."
 
-Gu Yue Kong Jing chimed in, "You should thank the leader, Fang Yuan. Simple missions offer little reward; he picked it just to look after you."
+Gu Yue Kong Jing chimed in, "You should thank the leader, Fang Yuan. Simple missions offer little reward; he picked it just to look after you. Why don't you treat him to lunch?"
 
 Jiao San waved his hand magnanimously. "Don't pressure him. Having just graduated, he must be short on primeval stones."
 
@@ -5330,9 +5648,11 @@ Jiao San suppressed his temper, catching up to block him with a smile. "Don't ru
 
 Night fell without Fang Yuan finding a suitable house.
 
-Fang Yuan shook his head. "I lack primeval stones; I must be frugal."
+The female Gu Masters urged him to take an expensive house near the clan pavilion, but Fang Yuan shook his head. "I lack primeval stones; I must be frugal." When Kong Jing suggested a cheap underground apartment instead, Fang Yuan remained silent, seeing right through the malicious trap—in winter, the damp underground air would ruin any tenant's health.
 
 Seeing that Fang Yuan kept his silence, Jiao San said, "Actually the big hall's first floor is good too. Co-staying with other people causes the rent to reduce as well."
+
+Fang Yuan shook his head. "I prefer to live alone; I do not like sharing quarters."
 
 As Fang Yuan prepared to leave, Matron Shen appeared.
 
@@ -5348,7 +5668,10 @@ Fang Yuan's silence looked like hesitation.
 
 "Fang Yuan, why not stay with your aunt and uncle instead of making life difficult? Renting costs too many primeval stones," Jiao San chimed in with feigned concern, his eyes gleaming ominously.
 
+
 # Chapter 90: It’s just a little wind frost
+
+In the brightly lit hall, the flickering red candle projected the shadows of Aunt and Uncle onto the wall.
 
 In front of them, Matron Shen was kneeling.
 
@@ -5364,9 +5687,17 @@ Aunt understood. "So he must complete the mission before receiving his parents' 
 
 "Exactly," Uncle sneered. "And missions are assigned to squads. To finish it, Fang Yuan must rely on his squad—a clan policy designed to foster squad unity and cohesion."
 
+Aunt laughed loudly, "Husband, you're too smart. Getting Jiao San to recruit Fang Yuan means he'll need their strength to complete the mission—yet Jiao San is on our side, so Fang Yuan can never accomplish it."
+
 … Nightfall arrived and the snow stopped.
 
 After turning Matron Shen away, Fang Yuan brushed off the group's advice and took his leave alone.
+
+Reclaiming his inheritance required two crucial steps: applying for the asset-splitting mission with no other missions at hand, and completing it. Jiao San was in cahoots with Uncle and Aunt, already trying to trap him at the first step.
+
+Clan rules stated that Gu Masters could only be on one mission at a time, and all missions were issued to groups. After finishing the permafrost decayed soil mission, Jiao San had immediately accepted a new mission to capture wild deer. As squad leader, he could always stay a step ahead and accept another mission, preventing Fang Yuan from ever applying for his own.
+
+These plots and schemes were irritating, like an invisible rope blocking Fang Yuan's progress.
 
 But Fang Yuan did not regret entering this group.
 
@@ -5416,6 +5747,7 @@ Moonlit snow illuminated Fang Yuan's calm, youthful face, his smooth brow, and e
 
 Feeling the cold wind on his face, the youth chuckled, "Merely a bit of wind and frost."
 
+
 # Chapter 91: Fang Yuan, we’re very worried about you
 
 After a sleepless night, Fang Yuan stepped out at dawn and began buying supplies lavishly.
@@ -5423,6 +5755,8 @@ After a sleepless night, Fang Yuan stepped out at dawn and began buying supplies
 Gu Yue Jiao San and his Gu Masters waited anxiously at the village's northern gate.
 
 Half an hour later, Fang Yuan had still not appeared.
+
+"Did Fang Yuan see through our ploy and leave the group directly?" a female Gu Master asked.
 
 Jiao San frowned darkly. "Whether he saw through us is secondary. We must find him—he might be trying to break through to Rank two on his own. Once he reaches Rank two, he can abandon this mission and apply to split the assets. Go find him! The village is small with few rentals. Find him before he has time to break through!"
 
@@ -5432,19 +5766,21 @@ In the room, Fang Yuan sat on the bed.
 
 "Not enough primeval stones," Fang Yuan sighed, his expression grim.
 
-Like this, he had seven Gu worms on hand!
+An ordinary peer at this stage had only three Gu worms. But after placing first in the year-end exam, Fang Yuan had chosen another Little Light Gu to avoid suspicion. With seven Gu worms now in hand, the cost of feeding them was a massive financial drain.
 
 "At this rate, I can only hold out for two months. Reclaiming my inheritance is crucial, but doing so requires advancing to Rank two." Fang Yuan's gaze turned dark.
 
 "Though my C-grade talent is only forty-four percent, reaching Rank two isn't impossible. The easiest way is finding a talent-raising Gu. Second, a supportive Gu like the Liquor worm could help break the barrier. Lastly, a senior Gu Master could assist, but foreign primeval essence causes severe backlash unless purged later with a Cleansing Gu."
 
-"None of these work for me. I have no allies to assist, nor would I ever leave my aperture at someone else's mercy. Even if I obtained one, I couldn't keep or use it."
+"None of these work for me. I have no allies to assist, nor would I ever leave my aperture at someone else's mercy. Gu like the Liquor worm are far too rare, and as for talent-raising Gu, even if I could obtain one with my current cultivation, I couldn't keep or use it."
 
 "That leaves one final, brute-force method: using primeval stones!" Fang Yuan's eyes flashed as he gripped a stone tightly.
 
 "Though forty-four percent is insufficient, absorbing stones while attacking will sustain the assault, letting me smash the walls in four to five days!"
 
 To keep his primeval essence from running dry and letting the cracks heal, Fang Yuan deliberately slowed his assault.
+
+This brute-force method demanded continuous cultivation without pause. If he stopped for more than fifteen minutes, the aperture wall would fully heal, wasting all his spent primeval stones and forcing him to start over. Once begun, he could not afford to be disturbed.
 
 By the second afternoon, their search finally bore fruit.
 
@@ -5467,6 +5803,7 @@ Kong Jing chimed in on cue, "Leader, he hasn't answered—let's break in and sav
 Jiao San's mouth curled, indicating to Kong Jing.
 
 With a loud crash, the door flew inward, slamming onto the bed.
+
 
 # Chapter 92: The future is in sight
 
@@ -5522,6 +5859,7 @@ Recognizing Fang Yuan as an equal now that he was Rank two, Jiang He became exce
 
 Fang Yuan declined and set off into the dusk. Snowflakes drifted through the golden light, settling on his shoulders as he walked toward Gu Yue village on the mountainside.
 
+
 # Chapter 93: Small beast horde
 
 On his way back, five-man squads rushed past Fang Yuan from time to time.
@@ -5548,7 +5886,9 @@ Chi Cheng drew out his words smugly, "Beast tides are perilous with wild beasts 
 
 "I only just learned of this," Fang Yuan smiled. "I'll come with your group and rejoin mine at the front lines."
 
-Fang Yuan added coolly, "Clan rules require stranded Gu Masters to join the nearest squad. Don't you even know that, Chi Cheng?"
+"What? Who wants to bring you along!" Chi Cheng folded his arms, sneering disdainfully.
+
+Fang Yuan replied coolly, "Clan rules require stranded Gu Masters to join the nearest squad. Don't you even know that, Chi Cheng?"
 
 "Indeed, that is the rule," Chi Shan said, having watched quietly.
 
@@ -5586,6 +5926,7 @@ They all used Rank two Gu worms that complemented one another, whereas Fang Yuan
 
 Ahead of him, Chi She suddenly said, "I found Sickly Snake's group."
 
+
 # Chapter 94: Suddenly withdrawing strength
 
 Inspecting the tracks, Chi She flicked his tongue. "No mistake," he said. "Jiao San's red lava python is unique in the village, and they're fighting… a wild boar king!"
@@ -5600,9 +5941,11 @@ At the center, the elephant-sized wild boar king fought a long, thin red python.
 
 Noticing they were being watched, the support Gu Master Gu Yue Kong Jing broke away from the fight and ran over.
 
-"This wild boar king is yours," Chi Shan told the old Gu Master.
+"Lord Chi Shan, we can handle this!" Kong Jing called out, desperate to keep them from claiming the spoils.
 
-The spider web expanded through the air, enveloping the wild boar king.
+"This wild boar king is yours," Chi Shan assured him, then looked to the veteran Gu Master at his side.
+
+The old Gu Master snorted, but spat out a sticky white spider web that expanded through the air, enveloping the wild boar king.
 
 Meanwhile, Jiao San and the female healing Gu Master began treating the injured python.
 
@@ -5630,6 +5973,8 @@ Tendrils snaked into the wild boar king's mouth, sliding past its teeth deep int
 
 "Hehehe…" In the darkness, Fang Yuan covered his mouth as it curved deviously.
 
+Others were constrained by kinship and moral taboos against harming clansmen, but Fang Yuan held no such values in his heart.
+
 His grip on the wild boar king's tusks suddenly went slack.
 
 Growling furiously, the wild boar king swung its tusks and hurled Fang Yuan into the air.
@@ -5637,6 +5982,7 @@ Growling furiously, the wild boar king swung its tusks and hurled Fang Yuan into
 The boar king's tusks swept across, striking the female Gu Master directly before she could react.
 
 Her slender body snapped in two under the impact.
+
 
 # Chapter 95: Garbage teammate
 
@@ -5658,6 +6004,8 @@ From the perimeter, Gu Yue Kong Jing shouted, "Fang Yuan, you scum, you got Hua 
 
 "Yes!" Kong Jing summoned the big belly frog and channeled primeval essence, spitting out a steel net.
 
+Kong Jing hauled the barbed knife-scale web and threw it over the wild boar king. As the beast thrashed, the steel blades dug into its flesh, tightly ensnaring it until Kong Jing exhaled in relief.
+
 Fang Yuan shouted, "Let me help!"
 
 Moonblades flew out and severed the steel threads, allowing the thrashing boar king to shred the net and break free.
@@ -5674,7 +6022,7 @@ Fang Yuan told the remaining female Gu Master, "Heal my leg, it's hurt!"
 
 She raged, "My sister is dead and you only sprained your leg! Why don't you just die?!"
 
-Slaying clansmen was an unforgivable crime carrying severe torture and execution; risking that for petty enemies was not worthwhile.
+A sharp glint flashed in Fang Yuan's eyes. In this chaos, he could easily eliminate his teammates and remove future restrictions. Yet if another Gu Master caught sight of it, the risk was fatal—slaying clansmen was an unforgivable crime carrying severe torture and execution, and risking that for petty enemies was simply not worthwhile.
 
 Five minutes later, the wild boar king collapsed.
 
@@ -5702,13 +6050,14 @@ The wolf pack fell upon them; most chased Jiao San and Kong Jing, while some tor
 
 Calm amid crisis, Fang Yuan closed his eyes and gripped primeval stones to restore his essence.
 
+
 # Chapter 96: For the sake of those who died
 
 The Gu Yue elders were monitoring the beast horde, and responded swiftly to the unexpected lightning wolves.
 
 Ten minutes later, sounds of battle and wolf cries echoed outside the boar's carcass.
 
-He shoved the female Gu Master aside and crawled out, drenched in blood.
+Fang Yuan shoved the female Gu Master aside and crawled out, drenched in blood.
 
 In the reinforcement team, the scout kept watch while their healer examined the female Gu Master's body.
 
@@ -5730,7 +6079,7 @@ Fang Yuan raised his feet and sent him flying.
 
 "Endangering another's life out of necessity to save oneself is no crime; the punishment hall won't penalize me."
 
-"But..." If the fact that I knocked the female Gu Master unconscious was found out, I would be tried for 'harming a clansman'. Yet at that time, nobody should have seen it, Jiao San and Kong Jing were all looking at a different direction and rushing for their lives. Eh?""
+If the clan discovered I knocked her unconscious, I would be tried for harming a clansman. But no one saw it—Jiao San and Kong Jing were fleeing in another direction.
 
 He saw the corpses of Kong Jing and Jiao San.
 
@@ -5773,6 +6122,7 @@ Stealing them carried far too much risk in the clan for negligible gain.
 The healer laughed hastily. "Not at all! The dead cannot return, so restrain your grief, little brother. Live on well for their sake!"
 
 "You're right," Fang Yuan said with a resolute, meaningful gaze. "For the sake of the fallen, I must live even better than before."
+
 
 # Chapter 97: Devils run amuck
 
@@ -5826,15 +6176,15 @@ Fang Yuan blinked. "I haven't decided; I need time to think."
 
 He harbored too many secrets. Only by working alone could he stay secure without the constant nuisance of teammates.
 
-Fang Yuan immediately applied for his inheritance mission, but was told to wait three days due to backlog.
+Leaving the interrogation room, Fang Yuan applied for his inheritance mission, but was told to wait three days due to the backlog. He stepped out of the internal affairs hall into the bleak winter air.
 
 "Today is the memorial assembly. Gu Yue Jin Zhu is dead, did you know?" Mo Bei called, walking with several youths.
 
 "Brother, Jin Zhu was our classmate. Come with us," Fang Zheng urged.
 
-"Death is routine in battle; once you see enough of it, you stop caring. Go ahead, I'm busy."
+"Death is routine; once you see enough of it, you stop caring," Fang Yuan replied, brushing past them. "Go ahead, I'm busy."
 
-"Heh, you've all heard the rumor, right? Fang Yuan only survived by hiding in a boar's belly and shielding himself with his female teammate."
+The youths bristled at his cold dismissal. "Heh, you've all heard the rumor, right? Fang Yuan only survived by hiding in a boar's belly and shielding himself with his female teammate."
 
 "He is a worthless disgrace, lacking even the manners of a man." Chi Cheng folded his arms and laughed coldly.
 
@@ -5842,7 +6192,7 @@ As Fang Yuan walked away, the mockeries behind him gradually faded.
 
 "Why would insults matter to me?"
 
-But, this was the exact situation Fang Yuan wanted.
+Someone had deliberately spread the rumors to ruin his reputation. Sacrificing a teammate didn't violate clan law, but it invited universal moral condemnation. Yet being ostracized was the exact situation Fang Yuan wanted.
 
 Entering the clan system meant becoming a bound pawn, obstructing his essential need for solitude and resources.
 
@@ -5853,6 +6203,7 @@ On Earth, social connections were essential to survive, and a loner could not st
 In this world, individual cultivation could defeat thousands; rejection mattered nothing before absolute power.
 
 So in this world —Devils run amuck.
+
 
 # Chapter 98: Difficulty of refining Gu
 
@@ -5922,6 +6273,7 @@ The fusion failed.
 
 Fang Zheng recalled the Gu, finding cracks across the Moonlight Gu while the Jade Skin Gu appeared weakened.
 
+
 # Chapter 99: Human, not God
 
 The red steel primeval sea filled forty-four percent of Fang Yuan's aperture, coated in the light membrane of Rank two initial stage. Above the waves hovered the Spring Autumn Cicada. After a year of recuperation—a full cycle of spring and autumn—its withered appearance had regained some gloss, the damaged tips of its wings turning green with black leaf-veins.
@@ -5951,6 +6303,7 @@ In its place hovered a brand-new Gu worm shaped like an oval pebble, possessing 
 Rank two White Jade Gu!
 
 Fang Yuan exhaled slowly. Gu fusion required difficult mental multitasking, deep understanding of Gu worms, and the correct recipe. Even with his five hundred years of experience, success was never guaranteed. Fusing Gu condensed the long process of evolution into an instant—a miracle of life. For a mortal Gu Master, succeeding every time would not be human, but god.
+
 
 # Chapter 100: White Jade Gu
 
@@ -5984,9 +6337,10 @@ The girl stopped crying, pacified, while her father stammered overwhelmed gratit
 
 Fang Yuan continued toward his rented bamboo house. Waiting on the ground floor was his uncle, Gu Yue Dong Tu, watching his approach from afar.
 
+
 # Chapter 101: The person is as old as his heart has aged
 
-He wore his rarely seen Gu Master uniform, complete with leg wrappings and a red belt. Pristine and tidy, it projected a faint air of authority.
+Gu Yue Dong Tu stood waiting outside Fang Yuan's residence, wearing his rarely seen Gu Master uniform complete with leg wrappings and a red belt. Pristine and tidy, it projected a faint air of authority.
 
 "Reaching Rank two at sixteen with only C grade aptitude is astonishing; I don't know how he managed it. Yet his speed must stem from the Liquor worm, which is useless at Rank two."
 
@@ -5998,7 +6352,7 @@ Sure enough, Gu Yue Dong Tu spoke, "Fang Yuan, I think we can talk."
 
 "It was during a wolf tide with heavy casualties, and even students had to fight. With B grade aptitude, I reached Rank two initial stage at sixteen, upper stage at seventeen, and peak stage at eighteen. At nineteen, I began charging toward Rank three, confident I would achieve it by twenty."
 
-"Hahaha, I was arrogant, believing I was omnipotent and capable of anything, ignorant of the immensity of heaven and earth. Then, at twenty, But after that event, my aptitude dropped down to C grade, I couldn't recover from this shock for a whole of eight years."
+"Hahaha, I was arrogant, believing I was omnipotent and capable of anything, ignorant of the immensity of heaven and earth. Then, at twenty, I went on a mission and was beaten nearly to death by a Xiong village Gu Master. The medicine hall elder saved me, but my aptitude dropped to C grade, and I couldn't recover from the shock for eight whole years."
 
 "On my twenty-ninth birthday, I reexamined myself and this world, realizing individual strength was limited. What if I reached Rank three? In society, connections matter far more than personal strength."
 
@@ -6016,7 +6370,7 @@ Rank five Gu Masters were mortal, but Rank six were immortals. From that summit,
 
 In any world, the only thing one could truly rely upon was oneself.
 
-He continued, "Fang Yuan, to be blunt, you are not Fang Zheng. Relinquish the family inheritance, and you will gain my friendship, access to all my connections, and a thousand primeval stones. I know you are strapped for cash and already two days late on rent, aren't you?"
+Seeing Fang Yuan remain silent, Gu Yue Dong Tu assumed the youth was swayed by his speech. He continued, "Fang Yuan, to be blunt, you are not Fang Zheng. Relinquish the family inheritance, and you will gain my friendship, access to all my connections, and a thousand primeval stones. I know you are strapped for cash and already two days late on rent, aren't you?"
 
 Fang Yuan smiled faintly. "Uncle, you rarely wear those clothes, do you?"
 
@@ -6046,6 +6400,9 @@ Sweating and seeing Fang Yuan unmoved, Gu Yue Dong Tu's face turned fierce. "Fan
 
 Fang Yuan shook his head and entered the internal affairs hall under his uncle's furious glare.
 
+"Fang Yuan! Fang Yuan..." Gu Yue Dong Tu watched him go, his body shaking as veins bulged on his forehead. The light of the setting sun shone on his greying hair. He was indeed old—in truth, ever since he suffered that defeat at twenty, his heart had already aged.
+
+
 # Chapter 102: Spring comes after the winter winds
 
 Arriving at the internal affairs hall, Fang Yuan submitted the golden honey wine.
@@ -6066,7 +6423,7 @@ With the mission completed and a solid cover story in place, the clerk could sta
 
 Finishing his notes, the man said, "Your mission is complete. Since your uncle and aunt hold your inheritance, the hall will reclaim it for you. Return in three days."
 
-Returning the report, Fang Yuan left the internal affairs hall.
+"According to clan rules, the mission record must be confirmed on the spot by the one who completed it," Fang Yuan said, asking to see the document. The clerk, surprised by his familiarity with clan procedure, reluctantly handed it over. After verifying that his evaluation was marked as 'Good,' Fang Yuan returned the report and left the internal affairs hall.
 
 In the guest hall.
 
@@ -6108,6 +6465,11 @@ Its true value lay in its foliage—every leaf plucked from it was a vitality le
 
 "Bound by clan rules, their options against me are limited. Whatever they try, I will handle it."
 
+Fang Yuan walked along the street, his eyes glimmering with brilliance as a gust of winter wind blew against his face.
+
+It was still far from spring, but Fang Yuan knew that the spring of his new life had already arrived.
+
+
 # Chapter 103: The larger your ambitions, the smaller the world
 
 The tavern was modest in size but well-located on the village's east side near the eastern gate.
@@ -6144,7 +6506,7 @@ Leased out by his uncle and aunt, the three bamboo buildings were practically fu
 
 The buildings were well-managed and full, yielding rental profits only slightly below the tavern's.
 
-Just two days ago, he had fewer than five primeval stones to his name. Now, he had suddenly joined the ranks of the clan's wealthiest.
+Just two days ago, he had fewer than five primeval stones to his name. Now, he had suddenly joined the ranks of the clan's wealthiest. If he wished, he could retire and live in comfortable ease like his uncle.
 
 "Yet that is not what I want." Standing on the balcony, Fang Yuan gripped the railing, gazing into the distance.
 
@@ -6152,13 +6514,14 @@ In the distance, undulating green mountains stretched endlessly, resembling a sl
 
 "Since rebirth, I have drifted like rootless duckweed. Securing the family assets has finally given me an independent footing. Next, I will unearth the Flower Wine Monk's inheritance and strive for Rank three, then leave this village for the wider world!" Fire burned in Fang Yuan's dark eyes.
 
-Qing Mao Mountain was just one of countless peaks in the Southern Border, which itself was merely a corner of the world.
+Qing Mao Mountain was just one of countless peaks in the Southern Border, which itself was merely a corner of the world. How could such a place sustain his lofty ambitions? Compared to those ambitions, the family assets others schemed so desperately for were as insignificant as dust.
 
 "Brother, come down! I need to talk to you!" Gu Yue Fang Zheng called up from outside the bamboo building.
 
 His thoughts interrupted, Fang Yuan looked down at Fang Zheng with indifference.
 
-His brother's arrival was no surprise—Fang Zheng was simply their uncle and aunt's tool to contest the inheritance.
+His brother's arrival was no surprise—Fang Zheng was simply their uncle and aunt's tool to contest the inheritance. An A-grade aptitude, yet nothing more than a pawn... truly insignificant.
+
 
 # Chapter 104: Want to buy the liquor worm?
 
@@ -6234,9 +6597,10 @@ Fang Zheng acknowledged and left the shop indignantly.
 
 Fang Yuan laughed and raised his cup in return.
 
-Pouring the wine, he said, "No need to beat around the bush with a smart person. I'll be blunt: I want to buy your Liquor worm. Name your price."
+The two drained their cups together. Refilling them, Qing Shu said, "No need to beat around the bush with a smart person. I'll be blunt: I want to buy your Liquor worm. Name your price."
 
 "A truly talented person. What a shame," Fang Yuan thought.
+
 
 # Chapter 105: I will lose extremely terribly
 
@@ -6322,6 +6686,7 @@ After a moment, Gu Yue Qing Shu lowered his eyes.
 
 "Interesting, we will do just that." His tone carried a hint of melancholy.
 
+
 # Chapter 106: Half his life-savings gone to dust, only his vitality remains for eternity
 
 A day later.
@@ -6382,6 +6747,8 @@ The Nine Leaf Vitality Grass was tantamount to a gold mine—and cost virtually 
 
 Fang Yuan could forfeit all other family assets, but the Nine Leaf Vitality Grass had to remain firmly in his grasp.
 
+Fortunately, he was not the only one in the village who possessed it; the clan itself owned five as collective property to mass-produce vitality leaves. Had he been the sole owner, the higher-ups would have pressured him to surrender it, just as Qing Shu had attempted with the Liquor worm.
+
 Three days later.
 
 The light ball suddenly exploded, and a new Gu worm floated slowly in midair.
@@ -6390,7 +6757,7 @@ Yet it was not the Moonlight Gu, but the higher-ranking Rank two moonglow Gu.
 
 Fusing a Moonlight Gu with two Little Light Gu created the Moonglow Gu, overcoming the non-additive limitation of separate Little Light Gu.
 
-But the refined Rank two Moonglow Gu, its attack power reached three times of the Moonlight Gu!
+Now refined into the Rank two Moonglow Gu, its attack power reached three times that of the Moonlight Gu!
 
 Fang Yuan chose this path to maximize the moonblade's attack power, though its ten-meter range remained unchanged.
 
@@ -6400,9 +6767,10 @@ Regardless of fusion success or failure, a vital Gu never dies—at most, it get
 
 The vital Gu was a Gu Master's greatest asset, shaping their cultivation path and prompting constant efforts to advance its rank.
 
-As a vital Gu, the Spring Autumn Cicada could never die during refinement—otherwise, his repeated past attempts would have destroyed it.
+In his previous life, the Spring Autumn Cicada had not been his vital Gu, meaning any further refinement risked destroying it completely. But as his vital Gu in this life, no matter how many times fusion failed, it would never die.
 
 Though Fang Yuan could not yet utilize the Spring Autumn Cicada to its full potential, it remained his greatest treasure—making the Flower Wine Monk's inheritance pale by comparison.
+
 
 # Chapter 107: Skillfully earning primeval stones, ill-intent customers come to wreck havoc
 
@@ -6484,6 +6852,7 @@ A coarse, arrogant voice roared, "Pah! What kind of wine is this? Tastes like ho
 
 "Hmph!" Eyes glinting with cold light, Fang Yuan stood up.
 
+
 # Chapter 108: That pair of eyes!
 
 Jiang Ya hurriedly stopped him. "Lord Fang Yuan, Man Shi is formidable—one of the few who survived Bai Ning Bing. He cannot be underestimated."
@@ -6498,7 +6867,7 @@ The elderly shopkeeper bowed low, apologizing in terror, "Lord, please be appeas
 
 "Your wine tastes like swill! You ruined my mood, so pay me five hundred primeval stones in compensation!" Man Shi roared.
 
-Someone nodded. "That could be true. The clan policies encourage competition—the strong deserve more resources, don't they? If the weak cannot defend their assets, they must surrender them. It's all for the clan's prosperity!"
+As terrified mortal patrons scrambled toward the door, a few Gu Masters remained, whispering among themselves. "Is Man Shi trying to provoke Fang Yuan into a duel over his inheritance? The clan policies encourage competition—the strong deserve more resources, and if the weak cannot defend their assets, they must surrender them."
 
 "Who dares leave? Stand where you are, no one leaves!" Man Shi roared from the table.
 
@@ -6596,17 +6965,18 @@ Fang Yuan stood on the spot, his gaze sweeping the area.
 
 The surrounding Rank one and Rank two Gu Masters instinctively averted their eyes.
 
-Jiang Ya finally understood how Fang Yuan achieved such success.
+Having rushed out from the booth at the commotion, Jiang Ya stood dumbfounded as he watched Man Shi flee. His jealousy had completely vanished, replaced by awe as he finally understood how Fang Yuan achieved such success.
 
 "Because we were never the same kind of person!"
 
+
 # Chapter 109: Treehouse hides the Liquor worm
 
-The news of Gu Yue Man Shi’s defeat at the hands of the newcomer Fang Yuan quickly spread, causing small waves of gossip among the village’s Rank two Gu Masters. 
+The news of Gu Yue Man Shi’s defeat at the hands of the newcomer Fang Yuan quickly spread, causing small waves of gossip among the village’s Rank two Gu Masters.
 
 Man Shi was an experienced Rank two Gu Master who had even escaped Bai Ning Bing with his life, yet Fang Yuan had struck without warning, establishing complete dominance on his first attack and leaving Man Shi bedridden for three days. Regardless of methods, victory was everything. Stepped upon as Fang Yuan's stepping stone, Man Shi’s reputation was ruined, and he resigned his group leader position.
 
-Following this, Gu Yue Dong Tu sensibly stopped his petty schemes. Having lost the Nine Leaves Vitality Grass, the wine tavern, and the bamboo houses, Dong Tu had no remaining sources of income. Continuing a war of attrition would only deplete his own savings while Fang Yuan's wealth grew daily. 
+Following this, Gu Yue Dong Tu sensibly stopped his petty schemes. Having lost the Nine Leaves Vitality Grass, the wine tavern, and the bamboo houses, Dong Tu had no remaining sources of income. Continuing a war of attrition would only deplete his own savings while Fang Yuan's wealth grew daily.
 
 With Dong Tu stepping down, Fang Yuan’s wine tavern happily returned to normal business.
 
@@ -6616,9 +6986,9 @@ Once the caravan settled in the village, Fang Yuan sighed inwardly. "It changed 
 
 The root cause was undoubtedly his killing of Jia Jin Sheng. Fang Yuan’s deception had led Jia Fu to believe Jia Jin Sheng’s death was a conspiracy by his rival, Jia Gui. Returning to the clan, Jia Fu had engaged in radical competition, pushing both brothers to set out before the winter snow even melted.
 
-Clan leader Gu Yue Bo received Jia Fu. 
+Clan leader Gu Yue Bo received Jia Fu.
 
-"Brother Gu Yue, I trust you have been well?" Jia Fu smiled warmly, though a long, fresh scar now marked his face. 
+"Brother Gu Yue, I trust you have been well?" Jia Fu smiled warmly, though a long, fresh scar now marked his face.
 
 "Hahaha, Brother Jia Fu, you are quite early this year," Gu Yue Bo replied. Seeing the scar, Bo’s heart jolted, guessing it stemmed from Jia Fu's public clash with Jia Gui over the family assets, though he politely refrained from asking.
 
@@ -6633,6 +7003,7 @@ Gu Yue Bo immediately revealed a look of understanding and agreed.
 Meanwhile, Fang Yuan strolled among the stalls. Remarkably, Jia Fu’s caravan had erected an eighteen-meter-tall Gu house—the Rank three plant Gu named Three Star Cave. Infused with primeval essence, it grew into a colossal tree with three layers of interior shop space. Wooden counters and benches were grown directly from the trunk according to the Gu Master's will, while an overseer monitored the tree, capable of sealing the entrance and sprouting lethal branches if thieves struck.
 
 Following the crowd inside, Fang Yuan stepped onto the first floor. Looking past counters displaying Jade Skin Gu, Whirlwind Gu, and Scar Stone Gu, he immediately spotted a Liquor worm showcased alone on the central counter.
+
 
 # Chapter 110: Old woman, you’re too tender!
 
@@ -6696,6 +7067,7 @@ As long as Fang Yuan's price, if even a single point, is higher, he wins.
 
 Old woman, you're far too tender!
 
+
 # Chapter 111: Primeval stones are but material goods
 
 At the reception desk.
@@ -6752,7 +7124,9 @@ In the afternoon, he went to the treehouse again.
 
 The central counter, previously displaying the Liquor worm, now held a Cleansing Water Gu.
 
-"As for the Liquor worm this morning, my quote was likely twenty primeval stones above Gu Yue Yao Ji's." Fang Yuan smiled coldly.
+Cleansing Water Gu could remove mixed aura from an aperture. Chi Cheng, having had his cultivation forcefully raised by Gu Yue Chi Lian's primeval essence, desperately needed it. Fang Yuan deduced that Chi Lian's quote would be between six hundred thirty and six hundred forty primeval stones; a bid of six hundred fifty would secure it with ease.
+
+"Just by adding ten primeval stones, it would fall into my hands. As for the Liquor worm this morning, my quote was likely twenty primeval stones above Gu Yue Yao Ji's." Fang Yuan smiled coldly. His five hundred years of experience gave him absolute confidence in reading people's bids.
 
 Fang Yuan did not bid on the Cleansing Water Gu, saving his remaining funds for better Gu worms in the coming days.
 
@@ -6775,6 +7149,7 @@ Priced at three thousand primeval stones, it drew eager bids from numerous Rank 
 "With this red steel Relic Gu, reaching middle stage would let me use Moonglow Gu and White Jade Gu far more often."
 
 "I've bought the Liquor worm, Black Boar Gu, and wine. This red steel Relic Gu's final price will definitely exceed five thousand primeval stones, perhaps reaching eight thousand. With the wolf tide looming, raising one's cultivation by a small realm is invaluable. My primeval stones aren't enough to secure this Relic Gu!"
+
 
 # Chapter 112: Truly a great resolve
 
@@ -6800,6 +7175,7 @@ Despite securing the income, Dong Tu felt no joy. Watching Fang Yuan leave, he r
 
 Placing himself in Fang Yuan's position, Dong Tu realized he could never display such detachment. Even through his lingering hatred, he could not help but marvel at Fang Yuan's terrifying resolve.
 
+
 # Chapter 113: Keeping quiet and earning a fortune
 
 On the second floor, Gu Masters clustered around the central counter, discussing and sighing.
@@ -6820,7 +7196,7 @@ The crowd slowly dispersed, but Fang Yuan remained.
 
 Ascending the stairs, he entered a small study.
 
-Hearing footsteps, he looked up, revealing his scarred face, and smiled warmly. "We meet again, little brother Fang Yuan."
+Inside, Jia Fu was busy handling accounts. Hearing footsteps, he looked up, revealing the scar on his face, and smiled warmly. "We meet again, little brother Fang Yuan."
 
 "Greetings, Lord Jia Fu." Fang Yuan cupped his fists in salute.
 
@@ -6846,7 +7222,7 @@ Fang Yuan shook his head. "I am honored, but I cannot leave the clan."
 
 Fang Yuan was relieved; he had plenty of time to prepare.
 
-"Take this token. Should you ever need my help, it will prove you are always welcome."
+Jia Fu urged him once more to consider joining the caravan, but Fang Yuan tactfully declined. Resigned, Jia Fu said, "It is truly a pity for your talent. Take this token. Should you ever need my help, it will prove you are always welcome."
 
 Fang Yuan offered polite apologies as he received the token and red steel Relic Gu.
 
@@ -6868,9 +7244,10 @@ Unpredictably, circumstances had led him to kill Jia Jin Sheng with his own hand
 
 Relying on Jia Fu worked just as well; this token was his ticket into the future competition.
 
+
 # Chapter 114: Monkey King in the cave
 
-Three days after the caravan left the village.
+Three days after the caravan left the village, Fang Yuan was fighting inside the subterranean rock forest. Massive stone pillars hung down from the ceiling like giant tree trunks, bathed in an eerie dark red light.
 
 A group of stone monkeys with round green eyes pursued Fang Yuan relentlessly.
 
@@ -6938,9 +7315,10 @@ They harbored partner Gu worms that emerged to assist them in battle.
 
 "This monkey king shouldn't be too strong, or it would already control surrounding groups," Fang Yuan judged.
 
-Yet to defeat it, Fang Yuan could rely solely on his own power.
+Beast kings were categorized by pack size into hundred, thousand, and myriad beast kings. This stone monkey king was merely a hundred beast king, which a standard five-man squad of Gu Masters could handle. But Fang Yuan could borrow no outside help, forced to rely solely on his own power.
 
 "Rank two initial stage essence is insufficient; it's time to use the red steel Relic Gu." Fang Yuan eyed the cave deeply, then left the second secret room and closed the rock door.
+
 
 # Chapter 115: Advancing to middle stage
 
@@ -7023,6 +7401,7 @@ Fang Yuan stopped abruptly about a hundred meters from the rock door.
 Fang Yuan stayed still, knowing the stone monkey king was hiding nearby, waiting to strike fatally.
 
 "To take risks, one must risk life itself!" Fang Yuan's eyes glinted coldly as he stripped off his upper garment.
+
 
 # Chapter 116: Killing the Monkey King and getting new Gu
 
@@ -7120,6 +7499,7 @@ July, the start of autumn.
 
 A wild Rank five Gu suddenly appeared at the mountain foot, shocking all of Gu Yue Village!
 
+
 # Chapter 117: Bitter shell wine and River Swallowing Toad
 
 A solemn and serious atmosphere filled the conference hall.
@@ -7130,7 +7510,7 @@ The River Swallowing Toad was a Rank five Gu of immense power that could vomit a
 
 After a long silence, Gu Yue Chi Lian spoke, "The situation is grave. If news leaks, someone might deliberately provoke the River Swallowing Toad to harm our clan."
 
-He continued after a moment, "There is a graver issue: if the River Swallowing Toad floods Qing Mao Mountain, the submerged wolf dens will force wolf hordes uphill to survive. The wolf tide will erupt ahead of schedule, forcing us to battle countless beasts for space at the mountain peak."
+Gu Yue Mo Chen nodded in agreement. Though political enemies, he set aside prejudices at such a critical juncture and added, "There is a graver issue: if the River Swallowing Toad floods Qing Mao Mountain, the submerged wolf dens will force wolf hordes uphill to survive. The wolf tide will erupt ahead of schedule, forcing us to battle countless beasts for space at the mountain peak."
 
 Gu Yue Bo spoke heavily, "Do not forget our foundation. The first ancestor founded our village here for the underground spirit spring. If the mountain floods, that spirit spring could be destroyed."
 
@@ -7139,6 +7519,8 @@ Gu Yue Bo spoke heavily, "Do not forget our foundation. The first ancestor found
 "It is premature to ask for help," Gu Yue Bo shook his head, dismissing the idea. "We are not yet in dire straits. When the first ancestor established the village, he killed an attacking Rank five Blood River Python. Compared to that beast, the River Swallowing Toad is far more manageable."
 
 "It has a mild temperament, alerting only to the aura of Gu and vomiting a river only when severely injured. The previous clan head mentioned a rumor..."
+
+"If what the clan head says is true, driving away the River Swallowing Toad shouldn't be difficult," an elder chimed in.
 
 "We cannot rely on that," Gu Yue Bo shook his head. "Those are unverified rumors, and we cannot be careless. I suggest sending a group of Gu Masters to test it first."
 
@@ -7176,13 +7558,16 @@ The jar shattered, spraying wine as blood poured from the old man's head.
 
 Trembling from the murderous intent, the terrified shopkeeper scrambled away.
 
-Nearby patrons began discussing the crisis. "River Swallowing Toad..." Fang Yuan smiled inwardly upon hearing this.
+In any world, there would always be weaklings who brazenly demanded charity from the strong, believing that helping them was an obligation and refusing was a sin. The strong only aided the weak out of charity when in high spirits. Those who were content to remain weak, refusing to strive and expecting handouts like leeches, deserved neither sympathy nor mercy.
+
+The surrounding patrons turned back to their discussions, anxiously gossiping about the newly arrived Rank five River Swallowing Toad. "River Swallowing Toad..." Fang Yuan smiled inwardly upon hearing this.
 
 In truth, the River Swallowing Toad was gentle and not dreadful. Naturally inclined to sleep, it often drifted along rivers, floating belly-up on the water to sleep soundly.
 
 Upon waking, it would drink its fill of river water and return to sleep. Uninterested in fighting, its first reaction when encountering enemies was to flee, only counterattacking fiercely if cornered without escape.
 
 "This River Swallowing Toad probably fell asleep, drifted down the Huang Long River into a tributary, and reached the foot of Qing Mao Mountain," Fang Yuan deduced.
+
 
 # Chapter 118: Legend of the River Swallowing Toad
 
@@ -7236,6 +7621,10 @@ Yet Jiang Fan lacked an awakened aperture, commanding a River Swallowing Toad as
 
 "I wonder if Jiang Fan will still appear given my influence," Fang Yuan chuckled after reminiscing.
 
+Chi Shan, however, was in no mood to laugh. When his failure to budge the River Swallowing Toad became known, panic erupted among the mortal villagers at the mountain's base. Dragging their families and belongings, they rushed up the mountain to kneel outside the clan's gates, pleading for shelter.
+
+Inside the clan hall, the atmosphere was grim.
+
 "What? These lowly commoners dare surround the main gate? Outrageous! They grow bolder by the day—kill them all!" the punishment hall elder roared.
 
 Gu Yue Chi Lian said, "That is not the priority. If even Chi Shan cannot wake the River Swallowing Toad, who else can? We may need reinforcements from the strength-specializing Xiong clan." He sighed. "For the clan's safety, we must hire them. Whatever the price, it will be worth it."
@@ -7257,6 +7646,7 @@ Chi Shan asked, "Could Clan Leader grant me a Brute Force Longhorn Beetle Gu? Co
 "I understand," Chi Shan said, cupping his fists. "In that case, I recommend someone to the clan elders whose strength surpasses mine."
 
 "That person is Gu Yue Fang Yuan," Chi Shan named him.
+
 
 # Chapter 119: This lad is stubborn, he needs more polishing
 
@@ -7282,13 +7672,13 @@ His face darkened. "He takes the compulsory mission every month only to fail. I 
 
 Gu Yue Bo decreed, "Issue a compulsory order for Fang Yuan to try. This stubborn lad needs polishing; if he fails, we will punish him."
 
-Fang Yuan listened briefly before losing interest in the stale news. He stood to leave just as someone entered the tavern.
+Meanwhile, inside a bustling tavern, patrons were anxiously discussing how Chi Shan's group had returned in defeat from the River Swallowing Toad. Fang Yuan listened briefly before losing interest in the stale news. He stood to leave just as Gu Yue Chi Shan walked in, immediately drawing everyone's attention.
 
 "Here you are." Under countless gazes, the man approached Fang Yuan. "Let's go, the clan has issued a compulsory order. We head to the mountain foot; I'll explain on the way."
 
 Fang Yuan's eyes flickered. Unable to refuse a compulsory order, and knowing the River Swallowing Toad posed little danger, he agreed.
 
-"Shopkeeper, heaven has eyes—what swift retribution! That is a Rank five Gu even lord Gu Masters cannot handle. Sending someone so young is practically sending him to his death!"
+After Fang Yuan and Chi Shan left, the tavern buzzed with noise once more. In the corner, several waiters consoled the bandaged shopkeeper, gloating, "Shopkeeper, heaven has eyes—what swift retribution! That is a Rank five Gu even lord Gu Masters cannot handle. Sending someone so young is practically sending him to his death!" When the shopkeeper nervously warned them not to be overheard by other Gu Masters, the waiters only chuckled, confident no one could hear them over the tavern's din.
 
 Just then, a nearby Gu Master chimed in, "I heard that."
 
@@ -7317,6 +7707,7 @@ Ignoring him, Fang Yuan told Chi Shan, "My strength is only slightly above yours
 Fang Yuan explained his plan. Chi Shan grew skeptical: "Wouldn't that count as teamwork? If the River Swallowing Toad wakes, will it still acknowledge you and leave willingly?"
 
 Fang Yuan smiled. "Don't worry. As long as you stay out of its notice, it will work. It's just a Gu, after all—don't overestimate its intelligence."
+
 
 # Chapter 120: Literally effortless
 
@@ -7374,11 +7765,15 @@ After vomiting the seafood, the River Swallowing Toad croaked once more, gave Fa
 
 "Oh," Fang Yuan replied half-heartedly, his eyes gleaming as he kept rummaging through the seafood for Hundred year bitter shells.
 
+A hero was merely an empty title. Between praise and slander, both were just other people projecting their views onto him, and Fang Yuan did not give a damn about their opinions. They could think whatever they liked; he lived his own life. A hero? He would rather have a bitter shell.
+
 News of the River Swallowing Toad's expulsion quickly reached the village.
 
 The internal affairs elder wore a complicated expression, feeling slapped in the face after having just criticized Fang Yuan.
 
 "For his merit in driving away the River Swallowing Toad, Gu Yue Fang Yuan is exceptionally promoted to team leader and rewarded five hundred primeval stones," Gu Yue Bo decreed thoughtfully.
+
+Meanwhile, when the news spread to the wine tavern, the Gu Masters gathered there were thrown into disbelief.
 
 "Fang Yuan became the clan's savior? This..." The male Gu Master bearing a grudge against Fang Yuan was left at a loss.
 
@@ -7415,6 +7810,7 @@ A moonblade went flying, splitting him in half.
 "Lowly slaves, not only slandering Fang Yuan but trying to implicate us!" a female Gu Master shouted fiercely with a cold expression as she struck.
 
 The watching Gu Masters felt as if they were viewing a play.
+
 
 # Chapter 121: Four Flavours Liquor worm
 
@@ -7488,6 +7884,7 @@ Though shorter than Chi Shan, Xiong Li looked down on him. "Chi Shan, with Brown
 
 Chi Shan sneered, "Fang Yuan is Fang Zheng's elder brother. He single-handedly pushed the Rank five River Swallowing Toad over a hundred meters to drive it away. Ask anyone in the village if you doubt it." The Xiong Li group's expressions changed. A Rank five River Swallowing Toad! Fang Yuan!
 
+
 # Chapter 122: There are many blizzards in life
 
 Three face-sized moonblades slashed through the air, carrying an eerie blue light.
@@ -7552,11 +7949,14 @@ Once confirming the pack had fully fled, he promptly harvested the wolf corpses.
 
 "If Flower Wine Monk's legacy lacks such Gu, the three clans' joint contribution board during the wolf tide will offer them. Then, I can exchange my contributions for Bai or Xiong village's Gu worms."
 
+Fang Yuan packed the spoils of war into a bag, slung it over his back, and returned to the village through the falling snow.
+
 "Look, Fang Yuan is back." "He is carrying a bag—did he hunt crippled wolves again?" "Is he the one who saved our village?"
 
 As Fang Yuan walked through the village, people parted ways with praise, curiosity, and envy.
 
 "Fang Yuan!" Chi Shan suddenly appeared from a corner and shouted.
+
 
 # Chapter 123: I travel alone through heaven and earth
 
@@ -7582,6 +7982,8 @@ Detecting sarcasm, Chi Shan said solemnly, "Do not be indignant, Fang Yuan. I am
 
 Saying so, he turned around and left, leaving deep footprints in the snow.
 
+Fang Yuan watched Chi Shan's retreating back with clear understanding.
+
 "The clan used my driving off the toad as a bargaining chip; to eliminate it, Xiong clan sent Xiong Li to challenge me."
 
 "To the clan, we are mere chess pieces. Sadly, they willingly serve as pawns, brainwashed by the illusion of glory."
@@ -7600,6 +8002,8 @@ Handing Jiang Ya nine vitality leaves, Fang Yuan asked, "Have you purchased what
 
 Looking disappointed, Jiang Ya shook his head, "Lord Fang Yuan, the timing is bad. With the wolf tide coming, the clan tightened resource control. The Fish Scale Gu is only slightly less valuable than Jade Skin Gu. I tried my best, but immediate results are difficult."
 
+The Fish Scale Gu was needed alongside the Stealth Rock Gu to refine the Stealth Scale Gu; without it, the fusion would have to wait.
+
 At night, unexpected guests arrived.
 
 Gu Yue Qing Shu and Gu Yue Fang Zheng.
@@ -7616,6 +8020,8 @@ Fang Yuan thought of this, and mentioned it.
 
 "Fish Scale Gu?" Qing Shu frowned, then nodded. "I see, you lack a defensive Gu worm. The Fish Scale Gu fuses into the Rank two Scale Armor Gu, providing good defense."
 
+The recipe combining Fish Scale Gu with Stealth Rock Gu to create the Stealth Scale Gu would only be discovered two hundred years later, so it was natural that Qing Shu had no clue.
+
 Fang Yuan did not expose himself. "The Black Boar Gu is more valuable than the Fish Scale Gu, so you must compensate the price difference."
 
 "Naturally." Qing Shu nodded. "Setting aside the grass, are you truly not selling the Liquor worm? It is useless to you now."
@@ -7626,13 +8032,14 @@ Qing Shu laughed bitterly. "Fang Yuan, this is complicated. Medicine hall elder 
 
 "You've used the Liquor worm, so you know its benefits. Lord Yao Ji truly wants this Gu worm for her granddaughter, and an elder's affection is completely understandable. She offers a high price and special medicine hall care if you are injured in the wolf tide. Please consider it."
 
+
 # Chapter 124: I don’t need your understanding
 
 "So that's it," Fang Yuan rubbed his chin, then shook his head, "This Liquor worm is not for sale. Since Yao Ji is insistent, why isn't she finding that Gu Master who bought the Liquor worm?"
 
-Qing Shu sighed, looking troubled. "We don't know who has it, and inspecting apertures is an absolute taboo among Gu Masters. That is the biggest taboo among Gu Masters. Causing public outrage over a Liquor worm isn't wise. Still, keeping a treasure hidden is human nature."
+Qing Shu sighed, looking troubled. "We don't know who has it, and inspecting apertures is the biggest taboo among Gu Masters. Causing public outrage over a Liquor worm isn't wise. Still, keeping a treasure hidden is human nature."
 
-Beside them, Fang Zheng urged, "Brother, the Liquor worm is useless to you, why cling to it? Granny Yao Ji is very kind. Sister Yao Le is a good person who would cherish the Liquor worm. Brother, you saved the village and brought honor to our family. This brings honor to our family. Why be so stubborn now? Isn't this too petty?"
+Beside them, Fang Zheng urged, "Brother, the Liquor worm is useless to you, why cling to it? Granny Yao Ji is very kind. Sister Yao Le is a good person who would cherish the Liquor worm. Brother, you saved the village and brought honor to our family. Why be so stubborn now? Isn't this too petty?"
 
 Fang Yuan's expression chilled. "Are you lecturing me? The Liquor worm is mine—you have no right to dictate what I do."
 
@@ -7646,7 +8053,9 @@ Fang Yuan's expression chilled. "Are you lecturing me? The Liquor worm is mine�
 
 Touching his nose, Qing Shu laughed awkwardly, "There is another matter, regarding the Nine Leaf Vitality Grass."
 
-"Regarding vitality leaves, my group wants to buy your supply directly at appropriate compensation."
+"The Nine Leaf Vitality Grass is not for sale," Fang Yuan said, rolling his eyes.
+
+"I know, I know," Qing Shu nodded. "It is regarding the vitality leaves. My group wants to buy your supply directly at appropriate compensation."
 
 Seeing business approaching, Fang Yuan naturally did not reject, "Then, sixty-five primeval stones per leaf."
 
@@ -7662,7 +8071,7 @@ Qing Shu shook his head. "Everyone makes their own choices. But be careful—Lor
 
 "Thanks for the advice, take care, I won't see you off," Fang Yuan said, watching Qing Shu leave, confident that he would return.
 
-More and more crippled wolves appeared near the village surroundings.
+As time passed and the winter winds grew harsher, more and more crippled wolves appeared near the village surroundings.
 
 In December, crippled wolves peaked and a large pack slaughtered an entire hamlet at the mountain foot.
 
@@ -7677,6 +8086,7 @@ Thousands of Gu Masters gathered here, creating a grand spectacle.
 The Gu Masters wore similar battle robes, their belts displaying cultivation ranks. Fang Yuan stood among them.
 
 Gu Yue Gu Masters were slender, Xiong clan Masters burly, and Bai clan Gu Masters pale with an eerie Yin aura.
+
 
 # Chapter 125: Oh, then I admit defeat
 
@@ -7704,7 +8114,7 @@ Xiong Jiang laughed darkly, "I specialize in defense, and you specialize in atta
 
 Bai Bing Yi raised his brows. "Do you truly think you can block my Water Drill Gu? Don't complain if injured."
 
-With that, he activated his Gu; his body turned dry and green like a block of dead wood.
+Xiong Jiang snickered, "We won't know unless we try, right? Come." With that, he activated his Gu; his body turned dry and green like a block of dead wood.
 
 This was the Rank two Gu, Roaming Zombie Gu.
 
@@ -7742,13 +8152,16 @@ Xiong Li grinned with rugged grace. "I hope Brother Fang Yuan will generously te
 
 "Oh, is that so..." Fang Yuan shrugged flatly. "Then I admit defeat."
 
+
 # Chapter 126: Demise of the wood charm
 
-Instantly, nearly all Rank two Gu Masters looked at Fang Yuan in astonishment. Fang Yuan ignored them, standing with arms folded and an indifferent expression. "Admit defeat? He yielded immediately—did I hear wrong?" "He is Fang Yuan? By directly conceding, he shows he's a coward and disgraces the clan!"
+"Admit defeat..."
+
+Fang Yuan's words still echoed in the crowd's ears. Instantly, nearly all the Rank two Gu Masters below the rock building looked at Fang Yuan in astonishment. Fang Yuan ignored them, standing with arms folded and an indifferent expression. "Admit defeat? He yielded immediately—did I hear wrong?" "He is Fang Yuan? By directly conceding, he shows he's a coward and disgraces the clan!"
 
 Several Gu Yue Gu Masters urged Fang Yuan to accept the challenge, but he ignored them. Reputation and honor were mere illusions—shackles used by higher-ups to bind members. Gazing at Fang Yuan, Xiong Li laughed. "I am truly disappointed. Is this how a Gu Yue village's bravery looks like?"
 
-In his memories, the three villages barely survived the wolf tide, only to be destroyed two years later. Fang Yuan needed to grow strong before leaving. Seeing the scene unfold, Gu Yue Qing Shu stood up.
+Hoots of laughter erupted from the Xiong village, while Bai clan Gu Masters looked on with open mockery. Gu Yue clan Gu Masters flushed with embarrassment, backing away until no one remained within five paces of Fang Yuan. In his memories, the three villages barely survived the wolf tide, only to be destroyed two years later; Fang Yuan only needed to grow strong before leaving. Seeing his clan humiliated and the crowd's scorn, Gu Yue Qing Shu—the number one Rank two Gu Master of the Gu Yue clan—stepped forward.
 
 "Xiong Li, how about sparring with me?"
 
@@ -7784,9 +8197,12 @@ Wood Charm Gu allowed one to battle as a tree spirit, absorbing natural essence 
 
 Furthermore, the tree spirit embodiment amplified Gu worms like the Green Vine Gu and Pine Needle Gu.
 
-Fang Yuan instantly connected the dots, "Wood Charm Gu's fusion advancement can be said to be one of the most extravagant advancement routes. It is a Rank three Gu and needs to fuse with a hundred-years Lifespan Gu to advance to a Rank four hundred-years Wood Charm gu. When the Gu Masters finds Lifespan Gu, they will usually use it directly to increase their own lifespan."In this world, a human could live for at most a hundred years if they didn't encounter any accidents or illnesses.
+Fang Yuan instantly connected the dots. "Wood Charm Gu's fusion advancement can be said to be one of the most extravagant advancement routes. It is a Rank three Gu and needs to fuse with a hundred-years Lifespan Gu to advance to a Rank four hundred-years Wood Charm Gu. When Gu Masters find a Lifespan Gu, they almost always use it directly to increase their own lifespan."
 
 "The Wood Charm Gu is powerful but cannot be used for long periods. Prolonged use causes the Gu's power to assimilate the body, eventually transforming the user into a wooden corpse. In my previous life, Gu Yue Qing Shu died this way." Fang Yuan's eyes flashed. Powerful Gu worms usually carried severe side effects, requiring complementary Gu to mitigate them. Xiong Li's group returned to their camp, having defeated Bai Bing Yi before losing to Qing Shu.
+
+Following the Xiong Li group's departure, the entire scene erupted into clamor. Gu Masters stepped forward in rapid succession to challenge their rivals, demonstrating their bravery. The Alliance slope turned chaotic with brilliant and varied clashes—the true battle of the three clans had begun.
+
 
 # Chapter 127: So-called morals and relationships (Long chapter)
 
@@ -7816,6 +8232,10 @@ Fang Yuan stowed the wolf eyes and stood up smiling. His body rippled like water
 
 "This works only because the lightning wolf king observes with its eyes, not its nose. Lightning wolves have eagle-sharp vision, but their sense of smell is no better than a human's. My Stealth Scales Gu counters these lightning wolves perfectly, but cannot hide from a dog's nose," Fang Yuan knew.
 
+He had refined the Stealth Scales Gu before the Gu tournament, obtaining the needed Fish Scale Gu by trading his Black Boar Gu with Qing Shu.
+
+However, the lightning crown wolf was different. While the Stealth Scales Gu let Fang Yuan move freely through an ordinary wolf tide, he had nowhere to hide before a myriad beast king—the Lightning Eye Gu residing in its eyes could see through all forms of cloaking.
+
 When he returned to the village, it was still afternoon.
 
 Fang Yuan entered the village with the crowd and headed to the square before the clan head pavilion.
@@ -7838,19 +8258,28 @@ Having never recruited members after becoming a group leader, he remained a solo
 
 Half a month soon passed, and the spring atmosphere intensified.
 
-"The current situation exists because the three-clan alliance lowered mutual caution, letting Gu Masters focus on fighting the wolf tide. Furthermore, the wolves killed so far were only the crippled ones. Thirdly, spring is mating season. Once summer arrives, healthy, energetic wolves will attack from all directions, inflicting devastating casualties on the three clans."
+Under the warm spring winds, the battle situation seemed to improve day by day. Walking down the street, Fang Yuan saw joyful Gu Masters praising one another's courage, though a few experienced elders wore worried expressions, knowing the true wolf tide would arrive in summer and autumn.
+
+Fang Yuan understood the truth in his heart. First, the three-clan alliance had lowered mutual caution, letting Gu Masters focus on fighting the wolf tide. Secondly, the wolves killed so far were only the crippled ones. Thirdly, spring was mating season; once summer arrived, healthy, energetic wolves would attack from all directions, inflicting devastating casualties on the three clans.
 
 This year's wolf tide reached an unprecedented level of danger, its severity greatly underestimated by the clan higher-ups.
 
 In his memory, most Gu Masters perished and the three clans' trump cards were nearly exhausted.
 
+Fang Yuan had never thought of warning the higher-ups. First, even if he did, they might not listen and would demand to know where he got the information, which he could not explain. Secondly, telling them was pointless given the fundamental gap in strength. Thirdly, and most crucially, warning the clan did not serve his greatest interest.
+
 I would rather let the world down, than be let down by the world!!!
 
 Kinship, friendship, and love were mere ornaments in life, incomparable to a man's grand ambition.
 
-"These fools, bound by emotions and morals, deserve to be manipulated by rules. Worse, when they see others unrestrained, they jump out to criticize and impose these morals, refusing to let anyone enjoy more freedom. In doing so, they even revel in ridiculous moral superiority and bliss."
+The higher-ups praised values and morals, yet those were merely tools to maintain their rule. If one were restrained by them, how could they achieve anything? Those who believed the sanitized stories of the successful were truly fools.
+
+"These fools are everywhere," Fang Yuan thought. "Bound by emotions and morals, they deserve to be manipulated by rules. Worse, when they see others unrestrained, they jump out to criticize and impose these morals, refusing to let anyone enjoy more freedom. In doing so, they even revel in ridiculous moral superiority and bliss."
+
+Thinking so, Fang Yuan laughed coldly. Walking out of the village gate, he retracted his thoughts.
 
 Today was important: he was preparing to enter the rock crack secret cave again.
+
 
 # Chapter 128: If not for the harshness of the winter, how could we look forward to spring!
 
@@ -7892,7 +8321,7 @@ Even the floor beneath him was covered with a layer of thick cloth.
 
 With an indifferent expression, Fang Yuan picked up the dagger, its polished blade gleaming coldly like a mirror.
 
-The opening sentence of the Sacred Sunflower Scroll read: "Castrate yourself to train this skill."
+He couldn't help but think of a martial arts manual from Earth, the Sacred Sunflower Scroll, whose first page declared: 'Castrate yourself to train this skill.' To gain strength quickly, one had to sacrifice. If one lacked such ruthless decisiveness, how could they achieve great ambitions? Compared to that, the price to use the Earth Communication Ear Grass was nothing.
 
 Caressing the cold blade, he softly hummed—
 
@@ -7900,7 +8329,7 @@ Moon like the frost-filled night, the dagger shines with a cold light.
 
 If not for the harshness of the winter, how could we look forward to spring!
 
-Fang Yuan had severed his entire right ear, blood spurting from the wound.
+His hand rose and the dagger fell; blood burst out. A piece of flesh dropped onto the table—Fang Yuan had severed his entire right ear, blood spurting from the wound.
 
 A fleeting coolness gave way to an intense wave of agony.
 
@@ -7932,6 +8361,7 @@ Fang Yuan placed the basin of bloody water under the bed and tossed a piece of c
 
 Only after finishing everything did Fang Yuan lie down on the bed.
 
+
 # Chapter 129: Chainsaw Golden Centipede
 
 When Fang Yuan awoke, it was already noon the next day.
@@ -7960,11 +8390,15 @@ The rock door opened to reveal a long, dark tunnel stretching straight into the 
 
 Fang Yuan untied the deerling and tossed it into the tunnel.
 
+Sensing the danger ahead, the deerling shrank back and refused to move forward, staring at Fang Yuan with fearful, pleading eyes.
+
 Fang Yuan snorted and threw a moonblade.
 
 Blood gushed from its wound, and driven by pain and terror, the deerling bolted into the dark tunnel.
 
 Fang Yuan reactivated the Earth Communication Ear Grass, letting its roots burrow into the walls.
+
+Through the stone, he heard the deerling's frantic footsteps give way to desperate cries as an endless swarm of centipedes engulfed it. The young deer thrashed and rolled under the crawling vermin until its heartbeat ceased, and the colony began devouring its flesh.
 
 Fang Yuan's gaze shone as he heard a special sound.
 
@@ -7978,6 +8412,8 @@ Fang Yuan could vividly picture it: over a meter long and two fists wide, slithe
 
 Rows of saw-like teeth lined both sides of its body, whirring rapidly like an electric chainsaw as it moved.
 
+The centipede army parted in fear as the beast climbed onto the carcass. Coiling its body around the remains, its whirring saw-teeth effortlessly ground the deerling's thick bones into powder.
+
 "Even White Jade Gu cannot withstand the Chainsaw Golden Centipede's attack. Flower Wine Monk clearly intended for me to use the Earth Communication Ear Grass to avoid it. But I have the Spring Autumn Cicada, so to subdue this Chainsaw Golden Centipede, it is not impossible!" Fang Yuan had a thought in his head.
 
 "I am only at Rank two middle stage, so subduing a Rank three Chainsaw Golden Centipede now is premature, even if possible," Fang Yuan assessed.
@@ -7987,6 +8423,7 @@ Higher-ranked Gu cost more to feed, were harder to control, and demanded far mor
 "The deerling has alerted the colony; it will take ten to fifteen days for the centipedes to settle. My theory is confirmed, but with no chance to strike yet, I must be patient—this cannot be rushed."
 
 Putting his thoughts aside, Fang Yuan closed the rock door and slipped away using the Stealth Scales Gu.
+
 
 # Chapter 130: Clansmen are still more reliable
 
@@ -8011,6 +8448,8 @@ Fang Yuan watched the wolves under Stealth Scales concealment while absorbing pr
 When his primeval essence recovered to thirty percent, the wolf pack finally retreated reluctantly.
 
 Lacking a movement Gu, Fang Yuan could not chase them. He deactivated the Stealth Scales Gu and revealed himself.
+
+The moment the lightning wolves caught sight of him, they snarled in fury and charged straight back at him.
 
 With replenished primeval essence and formidable combat strength, he slew four more lightning wolves in moments.
 
@@ -8042,7 +8481,7 @@ This was Gu Yue Peng, an academy classmate. Fang Yuan gave him an indifferent gl
 
 "Little Peng, don't slow down. We must hunt at least fifty lightning wolves today to preserve our rank on the battle merit board!" the leader urged.
 
-"Our group ranks seventy-fifth on the battle merit board, while Fang Yuan is past two hundred—a difference like heaven and earth! I'm fortunate to have such a caring senior as group leader. Since the wolf tide began, I've already exchanged merits for a Gu worm. My future is bright—how could Fang Yuan compare to me?"
+Gu Yue Peng reined in his temper and hurried to keep pace, thinking to himself, 'Our group ranks seventy-fifth on the battle merit board, while Fang Yuan is past two hundred—a difference like heaven and earth! I'm fortunate to have such a caring senior as group leader. Since the wolf tide began, I've already exchanged merits for a Gu worm. My future is bright—how could Fang Yuan compare to me?'
 
 "What can anyone accomplish fighting alone? Many hands make light work, and clansmen are reliable! Relying on the clan's strength, newcomers like us can grow safely. He became a group leader without recruiting any members, so it serves him right to be ranked last! With his eccentric personality, who would join him anyway?"
 
@@ -8070,9 +8509,10 @@ The next second, the bold lightning wolf clamped down, biting off Gu Yue Peng's 
 
 Countless lightning wolves came from behind it and rushed ahead.
 
-Rumbling sounds continued incessantly.Pitter-patter, heavy rain also started pouring.
+Rumbling sounds continued incessantly. Pitter-patter, heavy rain also started pouring.
 
 The true wolf tide had begun!
+
 
 # Chapter 131: Loneliness is the deepest darkness
 
@@ -8084,13 +8524,15 @@ During the wolf tide of his previous life, he was a Rank one Gu Master in the su
 
 Now, however, he was expected to risk his life fighting the wolf tide like the other Gu Masters.
 
-Instead of sleeping in his rented apartment, he stayed at the inn.
+He stayed at the inn rather than his rented apartment; had he remained at his quarters, he would have been forced to join the night battle.
 
 "The clan higher-ups have severely underestimated this wolf tide. The correct move is to defend the village to the end, but they are blinded by past experience..." Fang Yuan tossed in bed, contemplating.
 
 Life was a play, but Fang Yuan had no intention of joining the performance.
 
 On the contrary, he felt a sense of unexplainable loneliness.
+
+Everyone was born lonely. Humans were like isolated islands floating in the sea of fate, colliding and briefly sticking together in the name of interest, kinship, friendship, love, or hate, but ultimately destined to drift toward destruction. Most people feared solitude, craving the noise of the crowd because facing loneliness meant confronting pain. Yet by enduring that pain, one gained true courage.
 
 "This is loneliness. Savoring it only steels my resolve to pursue the demonic path!" Fang Yuan's eyes shone as he recalled the legend of Ren Zu.
 
@@ -8146,7 +8588,7 @@ By late July, as the weather warmed, joint cooperation among the three clans bro
 
 Somewhere near the mountainside.
 
-Three Gu Masters, exhausted from an intense battle, confronted a newly arrived bold lightning wolf.
+Two squads from the Xiong and Bai clans had joined forces against the tide, but only three Gu Masters now remained alive, exhausted and cornered before a newly arrived bold lightning wolf.
 
 "Damn it, insufficient primeval essence!" Group leader Xiong Zhan spat bloody water, watching the bold lightning wolf slowly approach.
 
@@ -8166,11 +8608,14 @@ It held not wine, but sweet mountain spring water.
 
 "Fight and die. A mundane life is too boring; only an intense battle like this brings excitement and color, giving your life meaning."
 
-To him, loneliness was the deepest darkness, and kinship merely a facade.
+Even with a fellow Bai clansman facing death below, he had no inclination to help. To him, loneliness was the deepest darkness, and kinship merely a facade.
+
 
 # Chapter 132: Three Step Fragrant Grass
 
-The bold lightning wolf took its move, slowly approaching.
+From atop the cliff, Bai Ning Bing watched with interest as a life-and-death battle unfolded below.
+
+The bold lightning wolf slowly approached, its path blocked by two Gu Masters with grim expressions.
 
 Behind them, Xiong Zhan knelt on one knee, gripping his right wrist and clawing his hand toward the bold lightning wolf.
 
@@ -8206,7 +8651,7 @@ The bold lightning wolf was shocked by the event.
 
 "Ignorant beast." Bai Ning Bing stared impassively, leaping down lightly from the five-meter cliff.
 
-Midair, he clapped his palms together, conjuring an icy mist.
+Midair, he clapped his palms together, conjuring an icy mist. As his hands parted, a translucent ice blade formed in his grip.
 
 As the bold lightning wolf discharged electricity upward, Bai Ning Bing laughed, venting two streams of white vapor from his nose.
 
@@ -8228,7 +8673,7 @@ Bai Ning Bing slowly walked towards Xiong Zhan's corpse.
 
 "The other Gu worms are ordinary, but this Plunder Gu is rather interesting." Extracting the Plunder Gu from Xiong Zhan's corpse, he held it to his chest.
 
-As the symbol of the Bai clan's rise, the clan would certainly protect him.
+The three clans had an agreement that any Gu retrieved from a fallen master had to be surrendered, but Bai Ning Bing cared nothing for such rules. Even if they discovered it, so what? As the symbol of the Bai clan's rise, the clan would certainly protect him.
 
 "Competition is more entertaining." Yawning, he smiled. "I wonder how Qing Shu and Xiong Li are doing after my secluded cultivation."
 
@@ -8268,6 +8713,7 @@ Fang Yuan was pondering deeply when conversations around him caught his ear.
 
 He knew how to amass large amounts of merit points quickly.
 
+
 # Chapter 133: Thanks for letting me kill you
 
 Roots swayed from his right ear as a deliberately enraged bold lightning wolf and several hundred ordinary wolves pursued him.
@@ -8298,7 +8744,7 @@ Fang Yuan had lured that pack over as well to pin them down.
 
 "Next, I'll wait for them to die, lure the wolf pack away, and return to collect the Gu." Fang Yuan walked to a nearby tree and sat down leisurely.
 
-With the Monolith Gu's powerful defense, he alone could block attacks from many lightning wolves.
+Among the trapped Gu Masters was Gu Yue Man Shi, a defeated opponent of Fang Yuan's. With his Monolith Gu's powerful defense, Man Shi alone could block attacks from many lightning wolves.
 
 The more precious the recovered Gu, the more merit points awarded. Returning the Monolith Gu would yield Fang Yuan around 3,900 points, boosting his merit board ranking by at least twenty places.
 
@@ -8352,6 +8798,7 @@ Bai Ning Bing leaped to his feet, his eyes shifting from black to crystal blue.
 
 Ecstatic, he cried out, "My life has never felt so vibrant! Thank you for letting me kill you!"
 
+
 # Chapter 134: Hunting down
 
 "I'll restrict my cultivation to Rank two; come, let's have a fair fight!" Bai Ning Bing laughed savagely.
@@ -8369,6 +8816,8 @@ Bai Ning Bing pursued immediately, giving relentless chase.
 Fang Yuan scoffed inwardly, sprinting toward the mountain valley.
 
 Disturbed by their intrusion into the valley's inner battlefield, the furious wolf pack immediately attacked Fang Yuan and Bai Ning Bing.
+
+Deeper in the valley, a trapped squad of Gu Yue clan Gu Masters—already down one man—watched with relief as the wolves turned toward the newcomers. Recognizing Fang Yuan and his pursuer, Gu Yue Man Shi looked on with conflicting emotions, scarcely daring to believe salvation had arrived.
 
 "Scumbag, stop right there!" Bai Ning Bing continued shouting furiously behind him.
 
@@ -8405,6 +8854,8 @@ The bold lightning wolf collapsed, its heart pierced through by an ice blade, de
 The ice blade had snapped, but Bai Ning Bing wiped it with icy mist, instantly restoring the blade.
 
 The bold lightning wolf's death scattered the pack, but Fang Yuan was nowhere to be seen.
+
+“We will definitely remember Lord Bai Ning Bing's kindness in saving us!” Three of the surviving Gu Masters stepped forward gratefully to pay their respects, while only Gu Yue Man Shi hung back with an uneasy expression.
 
 Bai Ning Bing snorted, his arm flicking as the ice blade traced gleaming arcs through the air.
 
@@ -8446,13 +8897,14 @@ Fang Yuan quickly approached Xiong Li's group, shouting in feigned panic:
 
 "Protect me! I saw the Plunder Gu on him—Bai Ning Bing is eliminating witnesses!"
 
+
 # Chapter 135: Northern Dark Ice Soul, Ten Extreme Talents
 
 "What?!" Xiong Lin was stunned.
 
 "Plunder Gu? That belongs to my cousin Xiong Zhan!" Xiong Jiang's face darkened.
 
-"Bai Ning Bing, do you have the Plunder Gu?" Xiong Jiang stepped forward to confront him as Fang Yuan slipped past.
+"Bai Ning Bing, is the Plunder Gu in your possession?" Xiong Li stepped forward to confront him, letting Fang Yuan slip past.
 
 Bai Ning Bing laughed coldly, "So what if it is?"
 
@@ -8476,7 +8928,7 @@ With Xiong Jiang's eerie green eyes from the Roaming Zombie Gu, Xiong Li's blood
 
 In zombie form, Xiong Jiang resisted Bai Ning Bing's frost, while Xiong Li's two-bear strength smashed against Bai Ning Bing's water shield.
 
-Bai Ning Bing had suppressed his cultivation to Rank two throughout the battle, mostly using Rank two Gu.
+"Bai Ning Bing, are you still playing around in this situation? Unleash your true strength!" Xiong Li shouted furiously. Bai Ning Bing had suppressed his cultivation to Rank two from the very beginning, mostly using Rank two Gu, making Xiong Li feel humiliated and held in contempt.
 
 "Hahaha, how can nobodies like you qualify to make me go all out?" Bai Ning Bing laughed coldly. His attacks grew fiercer, yet he still held back, avoiding Rank three Gu.
 
@@ -8519,6 +8971,7 @@ With only C-grade aptitude, Fang Yuan knew that facing Bai Ning Bing alone would
 "Yet failing to defeat you doesn't mean I can't kill you," Fang Yuan smiled coldly.
 
 Though similar in nature, compared to this centuries-old devil, Bai Ning Bing was merely a junior shaped by cruel fate.
+
 
 # Chapter 136: Clash of brawn and brain
 
@@ -8600,11 +9053,11 @@ With a loud pop, Xiong Li's heavy fist slammed into the barrier, instantly shatt
 
 However, the impact robbed the blow of its momentum, allowing Bai Ning Bing to escape death.
 
-The Water Shield Gu had saved Bai Ning Bing again; its defensive strength exceeded even the White Jade Gu.
+The Water Shield Gu had saved Bai Ning Bing again; its defensive strength exceeded even the White Jade Gu. However, it had a crucial weakness: it relied on forming a complete sphere of circulating water to disperse kinetic force. If pinned against a surface, unable to maintain that spherical barrier, its defensive power would plummet.
 
 "If I can counter the Water Shield Gu, Bai Ning Bing is finished. But how?" While Fang Yuan pondered, Bai Ning Bing opened his mouth, releasing another blue bird.
 
-He snorted coldly, shooting a moonblade.
+While Xiong Li and the others panicked, Fang Yuan was not flustered in the least. Snorting coldly, he unleashed a moonblade.
 
 With a crash, the moonblade struck the ice bird, detonating it.
 
@@ -8615,6 +9068,7 @@ The impact threw him to the ground, freezing half of his left arm and rendering 
 "A divine opportunity!" Xiong Li's eyes lit up. Shouting "Die!", he brought both fists down toward Bai Ning Bing once more.
 
 The blow was heavy, and pinned to the ground, Bai Ning Bing's Water Shield Gu had less than half its usual defense; a direct strike to the head would kill him instantly.
+
 
 # Chapter 137: Shadow of death
 
@@ -8696,13 +9150,19 @@ Bai Ning Bing turned pale and spat a mouthful of blood as blood seeped from his 
 
 The Shadow Bond Gu transmitted ten percent of any damage suffered by its master to the bonded target. With Xiong Jiang's death, that fatal trauma was instantly transferred to Bai Ning Bing.
 
-Shrouded in the glow of the White Jade Gu, Fang Yuan charged at Bai Ning Bing.
+"Fang Yuan, what have you done?!" Xiong Lin shouted in heartbroken fury, snapping out of his shock.
+
+Ignoring him entirely, Fang Yuan shrouded himself in the glow of the White Jade Gu and charged at Bai Ning Bing.
 
 Reeling with dizziness and severely weakened by the backlash, Bai Ning Bing immediately retreated as Fang Yuan charged.
 
 "Bai Ning Bing, didn't you want a life-and-death battle?" Fang Yuan pursued relentlessly.
 
 Bai Ning Bing gritted his teeth and fled in silence, forcing himself to focus and ignore Fang Yuan's taunts.
+
+Xiong Lin remained frozen on the spot, making no move to assist in the pursuit. His heart was consumed by agony and fury; he hated Bai Ning Bing, but detested Fang Yuan just as deeply.
+
+Locked in a deadly pursuit, the two figures raced through the valley.
 
 Over time, Bai Ning Bing's bleeding stopped and his wounds began to mend, his footing growing steadier.
 
@@ -8721,6 +9181,7 @@ Hearing the sound, Bai Ning Bing tried to dodge, but the moonblade still sliced 
 Blood welled from the cut, but a layer of frost quickly formed over it, stopping the bleeding.
 
 Yet Bai Ning Bing's heart sank. New wounds were inflicted before the old could heal—Fang Yuan clearly meant to wear him down to death!
+
 
 # Chapter 138: Someone is actually chasing and trying to kill Bai Ning Bing?
 
@@ -8774,6 +9235,8 @@ Fang Zheng met Qing Shu's gaze and nodded. "I understand, Brother Qing Shu. Plea
 
 The healing Gu Master Gu Yue Yao Hong looked solemn. "A small group scattered by wolves—let's go save them."
 
+Fang Zheng spoke up, "Could it be Bai Ning Bing? Doesn't he usually travel alone?"
+
 "Whether it's him or not, any lost Gu Master is an ally we must save," Gu Yue Qing Shu said, turning to charge toward them.
 
 Soon, the recon Gu Master corrected, "It's not one Gu Master—there's another right behind him."
@@ -8826,6 +9289,7 @@ Before he could place the voice, Fang Yuan rounded the corner.
 
 "Brother!" Fang Zheng was tongue tied.
 
+
 # Chapter 139: Broken Arm
 
 "I won the gamble. Bai Ning Bing, you die today," Fang Yuan thought, before shouting, "Little brother, you're here! Great! Stop Bai Ning Bing—he slaughtered Xiong Li's group and our clan's Gu Yue Man Shi group!"
@@ -8842,6 +9306,8 @@ With a blast, Bai Ning Bing's right arm suddenly self-detonated.
 
 Bai Ning Bing was encased in ice like an insect in amber, his expression frozen in ruthless, malevolent resolve.
 
+"Did he... commit suicide?" Fang Zheng muttered.
+
 "No!" Qing Shu's face darkened. "Bai Ning Bing has formed ice muscles. The ice won't kill him—it's armor giving him time to recover."
 
 "Fang Yuan, is what you said true?" Qing Shu turned his gaze toward him.
@@ -8854,7 +9320,7 @@ Bai Ning Bing was encased in ice like an insect in amber, his expression frozen 
 
 "Bai village's rise is solely due to Bai Ning Bing. If we kill him, our Gu Yue clan will remain number one on Qing Mao Mountain! Though he is a Rank three Gu Master, I have the Wood Charm Gu to fight him. Moreover, having just lost his right arm, he'll need time to adjust to the missing limb. In a life-and-death battle, that could be his greatest disadvantage!" Qing Shu thought.
 
-"If Gu Yue Qing Shu uses the Wood Charm Gu recklessly, he'll be far stronger than ordinary Rank three Gu Masters and able to fight above his rank. Inside the ice, he has ample time to remove the restriction. Once he breaks out, he will likely fight as a Rank three Gu Master."
+Observing Qing Shu's resolute expression, Fang Yuan realized his intention. 'If Gu Yue Qing Shu uses the Wood Charm Gu regardless of the cost, he will indeed be stronger than an ordinary Rank three Gu Master,' Fang Yuan analyzed inwardly. 'However, Bai Ning Bing possesses the Northern Dark Ice Soul physique. He only suppressed his cultivation to Rank two, and inside that ice crystal, he has ample time to lift the restriction. Once he breaks out at Rank three, he will surely target me for costing him his arm.'
 
 Ignoring the others' urging to stay, Fang Yuan promptly left the battlefield.
 
@@ -8865,6 +9331,7 @@ Ignoring the others' urging to stay, Fang Yuan promptly left the battlefield.
 "Well said!" Hearty laughter echoed as an old Gu Master appeared. "Lord Elder," Fang Zheng greeted him respectfully, recognizing a senior clan elder.
 
 "Fang Zheng, you don't need to fight, but don't leave—observe from a distance. Isn't it just Bai Ning Bing? I've heard how outstanding he is, supposedly possessing an elder's strength. Hmph, he's just a kid with little battle experience. Mutilating himself is utterly amateurish!" the elder snorted in disdain.
+
 
 # Chapter 140: Gu Yue Qing Shu vs Bai Ning Bing (Part 1)
 
@@ -8928,9 +9395,10 @@ Qing Shu closed his eyes, then opened them with resolute calm.
 
 Wood Charm Gu!
 
+
 # Chapter 141: Gu Yue Qing Shu vs Bai Ning Bing (Part 2)
 
-Icicle Gu.
+Bai Ning Bing willed his Icicle Gu, sending sharp icicles shooting through the air toward Qing Shu.
 
 Two vines sprouted from Qing Shu's palms, weaving like agile snakes to easily deflect the icicles.
 
@@ -8966,7 +9434,7 @@ Standing three meters tall and powerfully built, he wore tree-bark armor covered
 
 "That look... you refined the Wood Charm Gu?" Bai Ning Bing realized.
 
-Inwardly, he thought, "Qing Shu, using the Wood Charm Gu like this, aren't you afraid of turning into a dead treeman? Even if you beat me, you're doomed to die!"
+He voiced the question in his heart, "Qing Shu, using the Wood Charm Gu like this, aren't you afraid of turning into a dead treeman? Even if you beat me, you're doomed to die!"
 
 "Bai Ning Bing..." Qing Shu's voice turned low. "I understand you like myself. We are both orphans adopted by clan leaders, yet walk entirely different paths. A dying tree in a forest is nothing; as long as the forest remains, new trees will always rise. Let us have our final battle, my nemesis!"
 
@@ -8992,6 +9460,7 @@ The ice blade storm was actually shrinking under his strength.
 
 "Damn it! This suicidal lunatic..." Bai Ning Bing cursed, spinning faster to compete directly with him.
 
+
 # Chapter 142: Gu Yue Qing Shu vs Bai Ning Bing (Part 3)
 
 The storm finally ceased, but Gu Yue Qing Shu had paid a heavy price.
@@ -9012,7 +9481,7 @@ Thick vines surged forward, striking Bai Ning Bing through the cage's gaps.
 
 The cramped cage restricted Bai Ning Bing's movements, and a vine entangled his leg, tripping him.
 
-The sharp blade severed the vine on his leg. Bai Ning Bing rolled away awkwardly, narrowly evading dozens of vines.
+At the brink of death, Bai Ning Bing's aperture finally recovered a sliver of primeval essence. Pouring it all into his Ice Blade Gu, he condensed a fresh blade and severed the vine on his leg, rolling away awkwardly to evade dozens of striking vines.
 
 Worse, the Wood Charm Gu's power had completely corroded Gu Yue Qing Shu's body and began seizing his consciousness.
 
@@ -9020,7 +9489,7 @@ He was blind as the Wood Charm Gu claimed his eyes, and deaf with his ears reduc
 
 His efforts succeeded—a vine wrapped around Bai Ning Bing's neck, lifting him into the air and tightening.
 
-After pulling away, he concealed himself with the Stealth Scales Gu, circling the battlefield toward where Man Shi and Xiong Li had died.
+Meanwhile, telling Qing Shu he was returning to the village had only been an excuse. After pulling away, Fang Yuan concealed himself with the Stealth Scales Gu, circling the battlefield toward where Man Shi and Xiong Li had died.
 
 He looted the Gu worms from Man Shi and his teammates' corpses, but Xiong Li's group and their Gu were already gone.
 
@@ -9047,6 +9516,7 @@ Just then, Bai clan Gu Masters appeared on the mountain path.
 Fang Yuan sighed internally, "He's at least twenty paces away, while my Moonglow Gu only reaches ten. Furthermore.., risking my life and disrupting my rebirth plans just to kill Bai Ning Bing, who is doomed anyway, is not worth it."
 
 Thinking so, Fang Yuan took a few steps back.
+
 
 # Chapter 143: Answer
 
@@ -9076,7 +9546,7 @@ Eventually, Fang Yuan caught Bai Ning Bing's Water Shield Gu.
 
 Paired with the White Jade Gu, the Water Shield Gu would bolster his defense significantly.
 
-The Bai clan Gu Masters finally felled the treant Gu Yue Qing Shu had become.
+The Bai clan Gu Masters finally felled the treant Gu Yue Qing Shu had become, breaking open the wooden cage to rescue the unconscious Bai Ning Bing.
 
 Just as they prepared to slaughter Fang Yuan and Fang Zheng, Gu Yue clan reinforcements arrived.
 
@@ -9086,7 +9556,7 @@ Gu Yue clan Gu Masters recovered Gu Yue Qing Shu's corpse and Gu worms.
 
 Before a newly erected gravestone carved with 'Gu Yue Qing Shu', the crowd bowed in grief.
 
-"Why did this happen?"
+Fang Zheng stood among them, staring at the tombstone in disbelief. "Why did this happen?"
 
 "Why do good people in this world die so easily, while the bad live long?"
 
@@ -9108,9 +9578,10 @@ Looking back, Fang Yuan's gaze held something he lacked.
 
 Gu Yue clan leader Gu Yue Bo sighed, looking pitifully at the despondent youth before gazing out the window at the rain.
 
-After a long silence, Gu Yue Bo spoke, "Over ten years ago, another youth in your situation asked me the same question."
+After a long silence, Gu Yue Bo spoke, "Over ten years ago, another youth in your situation asked me the same question. That person was your clan leader's... my adopted son, Gu Yue Qing Shu."
 
 Stunned, Fang Zheng raised his swollen, red eyes, brimming with an intense thirst for answers.
+
 
 # Chapter 144: Sacrifice is common, and faith is undying
 
@@ -9132,13 +9603,15 @@ Gu Yue Bo took back the letter and said, "When you find your answer, write to me
 
 "I've found my answer," Fang Zheng declared with fierce resolve. "I want strength! To protect my family from harm, to protect the clan, and to strengthen it! I will stop the wolf tide from tormenting us and restore joy to my companions! I won't let this pain repeat. With my hands, body, and soul, I will protect everyone around me!"
 
-Unable to endure loneliness, Ren Zu dug out both eyes, turning them into a son and daughter to ease his solitude.
+Unable to endure loneliness, Ren Zu dug out both eyes, turning them into a son and daughter to ease his solitude. But his children soon grew fascinated with the outside world, neglecting him and leaving him in total darkness. Yet at times, Ren Zu could see a faint glimmer of light. Perplexed, he asked Attitude Gu about it.
 
 Attitude Gu told him, "That is the eternal light given out by Faith Gu."
 
 "Faith?" Bai Ning Bing scoffed, tossing aside the book of ancient legends.
 
-The clan leader looked grim. "The situation is dire. Scouts report three frenzy lightning wolf packs near the village, and your defeat has dealt a heavy blow to clan morale. I need you to show yourself tonight. Just seeing you standing will greatly motivate our clansmen. Do you understand?"
+The door swung open, and the Bai clan leader entered, narrowly dodging the flying book. He frowned, consoling Bai Ning Bing over the loss of his right arm, before his expression grew grave. "The situation is dire. Scouts report three frenzy lightning wolf packs near the village, and your defeat has dealt a heavy blow to clan morale. I need you to show yourself tonight. Just seeing you standing will greatly motivate our clansmen. Do you understand?"
+
+"I get it, I get it," Bai Ning Bing answered impatiently. Sighing helplessly, the clan leader took his leave.
 
 Left alone in the room, Bai Ning Bing opened his eyes, filled with loneliness and confusion.
 
@@ -9150,7 +9623,7 @@ Though raised leniently, Bai Ning Bing knew the clan leader would execute him im
 
 "What's the point of a person being alive?"
 
-Though still lost on the meaning of living, he knew where the answer lay.
+Though still lost on the meaning of living, he instinctively knew where the answer lay—in Fang Yuan's heart.
 
 Moreover, the Stone Aperture Gu was in Fang Yuan's hands.
 
@@ -9158,7 +9631,7 @@ Moreover, the Stone Aperture Gu was in Fang Yuan's hands.
 
 "Stone Aperture Gu..." Inside his rented house, Fang Yuan held the Gu worm, lost in thought.
 
-This single-use expendable Gu permanently turned a Gu Master's aperture wall into a sturdy rock wall.
+This single-use expendable Gu permanently turned a Gu Master's aperture wall into a sturdy rock wall. By completely squeezing the aperture's potential dry, it allowed a Gu Master to instantly advance to their rank's peak stage.
 
 The cost was losing all natural essence regeneration and any hope of reaching Rank three.
 
@@ -9171,6 +9644,7 @@ He exchanged the ordinary Gu from Man Shi's group for substantial clan merits.
 With the wolf tide raging, all three clans suppressed tensions over Qing Shu and Bai Ning Bing's clash, needing each other's strength to survive the ordeal first.
 
 When questioned about his White Jade Gu, Fang Yuan brushed it off as a caravan purchase.
+
 
 # Chapter 145: Sacrifices are encouraged
 
@@ -9196,7 +9670,7 @@ The aperture wall was no longer a flowing light membrane, but a thick stone memb
 
 The White Jade Gu and Stealth Scales Gu lay deep within the red steel sea.
 
-Its two wings had fully recovered like tender leaves, though its main body remained withered.
+The Spring Autumn Cicada's condition was steadily improving. Its two wings had fully recovered like tender leaves, though its main body remained withered.
 
 Besides the Spring Autumn Cicada, two new members resided in Fang Yuan's aperture.
 
@@ -9238,9 +9712,12 @@ At his peak he had reached Rank three, but injuries dropped him to Rank two peak
 
 Gu Yue Ye looked ashen; despite preparing for Fang Yuan's arrogance, he had still underestimated him.
 
-Any organization needs sacrifices.
+Cursing inwardly, Gu Yue Ye still did not leave; he desperately needed the vitality leaves to survive. In his youth, hot-blooded and eager to be a hero, he had viewed death as an honor. But after growing old and losing several children, his heart had chilled. He understood the bitter truth: any organization required sacrifice.
 
 Every organization encouraged self-sacrifice, though higher-ups never said so directly—preaching 'protection, honor, family, dreams, and passion' while offering material rewards.
+
+Yet material benefits were meaningless once dead; what could a fallen hero enjoy? Gu Yue Qing Shu had died 'blissfully' and was now buried in the earth, his name carved into a gravestone so his spirit could inspire the next generation of 'heroes'.
+
 
 # Chapter 146: Oppressive
 
@@ -9256,7 +9733,11 @@ Since he had been disturbed anyway, Fang Yuan decided to do business.
 
 Thus, he said, "I can sell them. Sixty-eight primeval stones per vitality leaf. How many do you want?"
 
+"Junior Fang Yuan, that price is far too expensive!" Gu Yue Ye cried out bitterly. "The clan's vitality leaves are completely controlled by medicine hall elder Gu Yue Yao Ji for those with connections. Sell me a favor and make it sixty; I will surely repay you."
+
 "Seventy primeval stones now—every complaint wastes my time. Buy or leave," Fang Yuan replied.
+
+Gu Yue Ye stomped his feet in fury. "Junior Fang Yuan, how can you do business like this?"
 
 Fang Yuan sneered, "It is seventy-two primeval stones now. Every sentence wastes my time, and when annoyed, I raise the price. Choose wisely."
 
@@ -9286,6 +9767,8 @@ Fearful, Jiang Ya asked meekly, "Lord Fang Yuan, won't profiting like this durin
 
 Using the red steel Relic Gu would bring him to Rank two peak stage, near Rank three. Having passed the initial hurdles, his newfound strength would reshape his future.
 
+In the past, he had needed to keep a low profile, but now he had to be oppressive. Only by acting oppressively could he secure the greatest benefits.
+
 In peacetime, idle higher-ups might look for trouble. But during a wolf tide, who had the energy to nitpick minor details?
 
 Half a month later.
@@ -9293,6 +9776,8 @@ Half a month later.
 Lightning wolves surged like tides, forcing the Gu Masters into a hasty retreat.
 
 "Xiong Yuan Zhen, hang in there! Gu Yue village isn't far!" Xiong Jiao Man shouted with reddened eyes at her fallen clansman.
+
+Xiong Yuan Zhen tried to speak, but before he could confess the feelings in his heart, he breathed his last, succumbing to severe blood loss.
 
 "Big sis, bad news—another bold lightning wolf pack is here!" the recon Gu Master shouted in panic.
 
@@ -9318,9 +9803,10 @@ Everyone looked up and saw a young man standing above.
 
 "Gu Yue Fang Yuan!"
 
+
 # Chapter 147: This Fang Yuan is too arrogant
 
-Looking down while waving a tree vine, Fang Yuan said slowly, "You can wait for reinforcements, or climb up this vine to escape."
+Besieged at the foot of a cliff by packs of lightning wolves, Xiong Jiao Man and her group looked up with complicated expressions when Fang Yuan appeared above. Dangling a tree vine, Fang Yuan said slowly, "You can wait for reinforcements, or climb up this vine to escape."
 
 Xiong Jiao Man's group naturally chose the vine, but Fang Yuan demanded payment first.
 
@@ -9370,7 +9856,7 @@ A Xiong Gu Master added, "Though both top ten rising stars, Gu Yue Fang Yuan can
 
 "He took my Bear Enslavement Gu and seven hundred primeval stones just to rescue us! No one is more shamelessly greedy!" Xiong Jiao Man fumed.
 
-"Though he is my senior, Fang Yuan's extreme actions are unforgivable. Extorting Sister Jiao Man for the Bear Enslavement Gu completely violates our clans' alliance treaty. I must tell Grandma to teach him a lesson before he brings shame upon our Gu Yue clan."
+Hearing this, Gu Yue Yao Le frowned deeply. She had never met Fang Yuan, but had heard plenty of his notorious deeds. 'Though he is my senior, Fang Yuan's extreme actions are unforgivable,' she thought indignantly. 'Extorting Sister Jiao Man for the Bear Enslavement Gu completely violates our clans' alliance treaty. I must tell Grandma to teach him a lesson before he brings shame upon our Gu Yue clan.'
 
 She lacked the ability herself, but believed her grandmother, Medicine Hall's Gu Yue Yao Ji, could.
 
@@ -9391,6 +9877,7 @@ Next was the Nine Leaf Vitality Grass.
 Controlling most of the clan's Nine Leaf Vitality Grass, Yao Ji used vitality leaf sales to consolidate her authority.
 
 "Fang Yuan is far too arrogant! First he refused to sell his Liquor worm, and now he profits off price-gouging vitality leaves. Does he take this Medicine Hall elder for air? Hmph!"
+
 
 # Chapter 148: Circumstance
 
@@ -9440,7 +9927,7 @@ Rank three carried entirely different status from Rank two. Advancing made a Gu 
 
 "Advancing to Rank three is essential. The clan readily sacrifices Rank two Gu Masters, but Rank three elders are vital pillars. Furthermore, my liabilities are growing—Qing Shu died without deep scrutiny, the clan overlooked my possession of the Water Shield and Plunder Gu, and the higher-ups ignored my rapid cultivation without probing my secrets."
 
-Fang Yuan was very clear on his current situation.
+On the surface he seemed secure, but he was actually surrounded by peril. The clan turned a blind eye to his anomalies only because the wolf tide demanded all their attention. Once the crisis passed, the higher-ups would inevitably settle accounts with him.
 
 "If I advance to Rank three, the suppression will ease, though it won't vanish completely. Rank three is a qualitative threshold—crossing it opens an entirely new world. Similarly, with Rank three cultivation, I can freely move about. At worst, I will simply leave the clan." Fang Yuan was clear on this.
 
@@ -9462,11 +9949,14 @@ Normally, it might take him two to three years to collect them, but the wolf tid
 
 He had already amassed sufficient primeval stones and Gu worms, only needing the right opportunity.
 
+Meanwhile, inside a nearby bamboo building, another crowd of Gu Masters rejoiced before a posted notice. Delighted to see Fang Yuan humbled, they showered praise upon young Gu Yue Yao Le, thanking her for persuading her grandmother, Elder Yao Ji, to suppress him.
+
 "Little sister Yao Le," Xiong Jiao Man walked in, "I came to say goodbye. That medicine hall notice helped me vent my anger."
 
 "Big sister, you are leaving?" Gu Yue Yao Le asked with concern.
 
 Xiong Jiao Man rested a hand on her hip and thumbed toward the Gu Masters outside: "I have gathered reinforcements and must hurry back. Let's meet again next time."
+
 
 # Chapter 149: Wolf pack attacks the village
 
@@ -9475,6 +9965,8 @@ Yao Le watched from the doorway as Xiong Jiao Man and her group departed.
 Yet barely fifteen minutes later, Xiong Jiao Man and the others returned to the bamboo building.
 
 "We are unlucky, there's a wolf tide," Xiong Jiao Man laughed bitterly, explaining.
+
+The Gu Masters in the bamboo building tensed. That a group as large as hers had been forced to retreat showed the ferocity of this wolf tide.
 
 "Everyone get ready, the lightning wolf pack is about to assault the village," Xiong Jiao Man said.
 
@@ -9562,7 +10054,7 @@ Dispelling the shield, Fang Yuan shot three moonblades from his wrist.
 
 At tricky angles, the second blade crippled the wolf's front leg while the third smashed into its head, obliterating its left eye.
 
-Bathed in blood from deep wounds, the bold lightning wolf collapsed, sending ripples of panic through the surrounding pack.
+Seeing the opening, other Gu Masters unleashed a flurry of moonblades. Pelted relentlessly until its bones showed, the bold lightning wolf collapsed, sending ripples of panic through the surrounding pack.
 
 However, anchored by the three frenzy lightning wolves behind them, the pack quickly resumed clawing at the village walls.
 
@@ -9574,7 +10066,7 @@ Healing Gu Masters tended to the wounded with first-aid kits placed nearby.
 
 Through this rotation, Fang Yuan deployed five times by nightfall. Yet the wolves showed no sign of thinning; more packs arrived continuously, answering the frenzy lightning wolves' calls.
 
-Gu Yue Yao Ji's face was sullen.
+As head of the medicine hall, Gu Yue Yao Ji held the thin slip of bamboo paper recording the day's casualties, her face sullen. The death toll was far greater than in previous years.
 
 Watching the crimson sunset, Yao Ji sighed faintly, "How is the Nine Leaf Vitality Grass acquisition going?"
 
@@ -9585,6 +10077,7 @@ Yao Ji snorted. "Where is Yao Le?"
 "Miss Yao Le is at the east gate leading the healing team. Despite repeated warnings, she insists on staying at the front lines," the subordinate reported, kneeling in fear.
 
 With a clan elder nearby and Xiong Jiao Man's squad fighting at the wall, the east gate was practically the safest place.
+
 
 # Chapter 150: I am only helping myself
 
@@ -9658,6 +10151,8 @@ The fourth frenzy lightning wolf smashed through the eastern gate, tearing open 
 
 Behind the bold wolves, an endless swarm howled savagely and charged into the village.
 
+Gu Yue Yao Le was numb with fear as she saw the lightning wolf packs charging in like a tide.
+
 Fortunately, she had veterans like Xiong Jiao Man beside her. At this critical timing, Xiong Jiao Man took it upon herself to control the scene and ordered, "Quick, close the doors and the windows. We need to defend this place till the reinforcements arrive, and only then will we have a fighting chance!"
 
 Before she finished speaking, the bamboo building's roof collapsed under the frenzy lightning wolf's attack.
@@ -9703,6 +10198,7 @@ Only when no lightning wolves remained around her did Yao Le realize she was saf
 She had drifted far from the village into a remote forest.
 
 A figure appeared before her. Her eyes widened. "Gu Yue Fang Yuan, you helped me?" "No, I am only helping myself," Fang Yuan grinned malevolently.
+
 
 # Chapter 151: Demonic nature
 
@@ -9772,6 +10268,7 @@ Stepping toward the light, this divinity becomes Buddha; stepping into darkness,
 
 Demonic nature!
 
+
 # Chapter 152: Advance to Rank three
 
 An hour later, Gu Yue Yao Le was nearly devoured.
@@ -9813,6 +10310,8 @@ After consuming up to a thousand primeval stones, the light reached door-size an
 The flames on the corpse went out, returning the cave to darkness as a Gu worm wobbled toward Fang Yuan.
 
 It resembled a black spider with long furry legs and a bear's head. On its back was a blood-colored tattoo outlining Gu Yue Yao Le's beautiful face.
+
+The face seemed to smile and weep all at once, glaring at Fang Yuan with utter hatred. Fang Yuan laughed heartily, unconcerned. Death was the end of all; even in life she had been powerless against him, so what could she possibly do to him in death?
 
 Without hesitation, he swallowed the Man-beast Life Burial Gu.
 
@@ -9860,9 +10359,12 @@ Frowning, Gu Yue Yao Ji asked, "Who reached Rank three?"
 
 "What? Him!" Gu Yue Yao Ji's pupils shrank; this was the worst possible news.
 
+Commotion broke out among the Gu Masters in the hall. "Earlier, didn't they say he was dead? He went missing for three days and three nights without a corpse on the battlefield—isn't that just like Yao Le's situation?"
+
 Yao Ji's ears twitched as intuition sparked an intense suspicion toward Fang Yuan.
 
 Changing her mind, she headed for the clan leader's pavilion.
+
 
 # Chapter 153: Really aged
 
@@ -9872,11 +10374,11 @@ Changing her mind, she headed for the clan leader's pavilion.
 
 The atmosphere in the clan hall was solemn. Clan Head Gu Yue Bo sat at the highest seat, flanked by rows of elders. Amid hushed whispers, dozens of elders focused their attention on the young man standing upright in the center of the hall with his head held high.
 
-"To think he achieved this with merely C grade aptitude," some murmured, though others noted the two red steel Relic Gu he had obtained, which could steeply raise cultivation. 
+"To think he achieved this with merely C grade aptitude," some murmured, though others noted the two red steel Relic Gu he had obtained, which could steeply raise cultivation.
 
 Seated at the front of the left row, Gu Yue Mo Chen observed Fang Yuan with inner shock. He recalled when Fang Yuan had killed his family's servant and delivered the minced corpse. Mo Chen had taken note of his ruthlessness then, but disregarded his future due to poor aptitude. Now, advancing to Rank three meant becoming a clan elder, shifting the political balance. Mo Chen secretly regretted not recruiting him earlier to suppress his rival, Gu Yue Chi Lian.
 
-Meanwhile, Gu Yue Bo pondered with a heavy heart. Even with two red steel Relic Gu, Fang Yuan’s speed surpassed what his deceased adopted son, Gu Yue Qing Shu, could have achieved. 
+Meanwhile, Gu Yue Bo pondered with a heavy heart. Even with two red steel Relic Gu, Fang Yuan’s speed surpassed what his deceased adopted son, Gu Yue Qing Shu, could have achieved.
 
 "Medicine Hall Elder, Lord Gu Yue Yao Ji has arrived!" the doorguard loudly announced.
 
@@ -9888,7 +10390,7 @@ The aperture was a Gu Master's deepest secret. Fang Yuan turned with a sneer. "G
 
 "Old hag, calling you by name is showing respect," Fang Yuan countered sharply. "We still have scores to settle. You bore a grudge when I refused to sell my Liquor worm and tried to plunder my Nine Leaf Vitality Grass. You even secretly blocked me from exchanging merits for the Three Step Fragrant Grass Gu. Now that I possess white silver primeval essence and stand as a Rank three elder, stop putting on airs!"
 
-The hall fell dead silent. The other elders watched without intervening; in politics, there were only eternal benefits, not eternal allies. 
+The hall fell dead silent. The other elders watched without intervening; in politics, there were only eternal benefits, not eternal allies.
 
 Standing alone in the quiet hall, Yao Ji felt an invisible pressure. She had not slept for three days following the disappearance of her granddaughter, Gu Yue Yao Le. In this brutal wolf tide where even clan heads could perish, she felt like a crippled old wolf facing an ambitious young predator. She realized she had truly aged.
 
@@ -9898,9 +10400,10 @@ Her words piqued the elders' curiosity. Under their scrutiny, Fang Yuan laughed 
 
 All eyes turned to the frontmost seat of the right row, where Gu Yue Chi Lian sat with an expression so dark that water could almost drip from it. Under their intense gazes, Chi Lian reluctantly stated, "It is true. I testify that Fang Yuan was in closed-door cultivation within my manor these past few days."
 
-The hall erupted into an uproar. Whispers broke out as the elders realized Fang Yuan had the massive backing of the Chi faction. 
+The hall erupted into an uproar. Whispers broke out as the elders realized Fang Yuan had the massive backing of the Chi faction.
 
 Gu Yue Yao Ji turned deathly pale and staggered back in shock. Opposing an isolated newcomer versus an elder backed by the Chi faction were two completely different matters!
+
 
 # Chapter 154: Vomit blood out of anger
 
@@ -9917,6 +10420,8 @@ Yet he held back, unsure if Fang Yuan had shared the secret or hidden evidence. 
 Soon after, Fang Yuan revealed his Rank three cultivation.
 
 Shell-shocked, Chi Lian could only shift to cooperation.
+
+Now, however, Fang Yuan was fearlessly implicating him and throwing him under the bus to draw the elders' attention in his place. Even knowing this, what could Gu Yue Chi Lian do?
 
 Fang Yuan spoke again, "Gu Yue Yao Ji, I know you are distraught. Your granddaughter died without a corpse, leaving the medicine faction heirless. Seeing a C grade reach Rank three fills you with envy, directing your rage at me. I understand that."
 
@@ -9938,13 +10443,20 @@ Even so, as he finished speaking, a thump sounded.
 
 Turning, he saw Gu Yue Yao Ji had coughed up blood in fury and collapsed onto her back.
 
+"I've completely offended Yao Ji!" Chi Lian's heart turned icy cold. Someone quickly checked on her; she had only fainted from three days and nights of exhaustion, and was soon carried away on a stretcher.
+
+Watching her go, Chi Lian's eyes shone coldly. Since he had already offended her, he might as well go all the way and suppress the medicine faction entirely to prevent their revenge.
+
 "Lord Yao Ji worked hard; resting is for her own good. Since the hall cannot remain leaderless, I advise letting Fang Yuan take over," Gu Yue Chi Lian suddenly said.
+
+Fang Yuan remained silent. Letting a newly advanced young elder hold such an important post was out of the question unless the elders and clan leader were fools—Gu Yue Chi Lian was only tossing out his name with a deeper motive.
 
 Sure enough, Gu Yue Bo declared, "Elder Chi Zhong shall temporarily oversee the medicine hall. Fang Yuan has indeed reached Rank three, so by clan rules, he becomes a clan elder. Spread the news and let the village rejoice."
 
 With that, Gu Yue Bo stood and left. "Congratulations, congratulations..." The clan elders approached Fang Yuan with beaming smiles, cupping their fists.
 
 Fang Yuan cupped his fists in return, smiling warmly.
+
 
 # Chapter 155: Borrow
 
@@ -9968,7 +10480,7 @@ Gu Yue Chi Lian snorted, "You won't lack stones. Every elder receives a weekly s
 
 "Even so, I still need three thousand primeval stones. Refining Rank three Gu consumes vast funds," Fang Yuan said.
 
-With that in mind, Gu Yue Chi Lian relented and promptly fetched brush and paper.
+Chi Lian weighed his options. Lending the stones might lower Fang Yuan's guard so he could investigate how the secret had leaked. Besides, if Fang Yuan died in the wolf tide, the secret would die with him anyway. Resolving to bide his time, Chi Lian relented and promptly fetched brush and paper.
 
 Fang Yuan drafted the promissory note and pressed his fingerprint.
 
@@ -9994,7 +10506,7 @@ An hour later, Fang Yuan left the Chi manor with three thousand primeval stones 
 
 Three days later.
 
-The ball of light dissipated, and a brand-new Gu worm flew into Fang Yuan's palm.
+In his room, Fang Yuan sat cross-legged, maintaining a floating sphere of white light as the fusion reached its final stage. After he fed the last primeval stones into it, the ball of light dissipated, and a brand-new Gu worm flew into his palm.
 
 Resembling a large ladybug, its semicircular milky-white carapace was decorated with dark spots.
 
@@ -10009,6 +10521,7 @@ Fang Yuan used this chance to pick a Thunderwings Gu.
 Obtained by the elders after slaying a frenzy lightning wolf, this Gu materialized thunder wings granting temporary flight.
 
 With Thunderwings Gu aiding his movement, Fang Yuan's final combat shortcoming was resolved.
+
 
 # Chapter 156: Digital Shade Recipe, Flower Wine mystery
 
@@ -10028,7 +10541,7 @@ The secret room was rather small, spanning only 666 2⁄3 m². Every few steps s
 
 "Mm, I understand." Fang Yuan nodded.
 
-With limited time, Fang Yuan quickly set down the first Digital Shade Gu and picked up a white one to observe.
+Fang Yuan walked into the secret room, and the stone door turned solid behind him. With time limited, he picked up a white Digital Shade Gu and injected his white silver primeval essence. Two beams of light shot from its compound eyes onto the jade plate, projecting the characters.
 
 The white Digital Shade Gu contained Rank three fusion recipes. Most did not suit Fang Yuan, requiring base Gu like Moonwhirl or Moonscar Gu.
 
@@ -10061,6 +10574,7 @@ Whether Golden Moon, Frost Moon, or Illusory Moon, none of these recipes suited 
 Moon orchid petals spoiled within days. Since Fang Yuan planned to roam the world, these Gu would starve to death without food.
 
 However, some Rank three recipes remained that he had not yet seen.
+
 
 # Chapter 157: Blood Moon Gu
 
@@ -10110,9 +10624,10 @@ Collecting an elder's stipend for another was a subtle display of influence and 
 
 "This man..." Fang Yuan squinted, taking the bag.
 
-"Truthfully, I sought Lord Fang Yuan out because I have a request."
+"Truthfully, I sought Lord Fang Yuan out because I have a request," Gu Yue Chi Zhong said, coming straight to the point and stating his intention.
 
 "Oh, you want me to turn in the Nine Leaf Vitality Grass?" Fang Yuan showed a deep, profound expression.
+
 
 # Chapter 158: Times have changed
 
@@ -10136,6 +10651,8 @@ With that thought, Fang Yuan accepted the token from Gu Yue Chi Zhong and handed
 
 Gu Yue Chi Zhong's eyes flashed; he was puzzled.
 
+A short while later, in the reception hall of his uncle's residence.
+
 "We pay respects to the two elders!" Fang Yuan's uncle and aunt bowed, greeting them respectfully with visible apprehension.
 
 Fang Yuan chuckled, "Uncle, Aunt, no need for courtesy. Though I am an elder, I remain your nephew. Come, please take a seat."
@@ -10157,6 +10674,7 @@ Fang Yuan sneered inwardly. He harbored no respect or affection for his aunt and
 He held the pouch of three hundred primeval stones in both hands. Usually avaricious, he now felt it was scalding hot and wanted to fling it away immediately!
 
 "Since uncle has received it, I will take my leave," Fang Yuan said and started leaving.
+
 
 # Chapter 159: This Fang Yuan......
 
@@ -10230,7 +10748,7 @@ The blood-red moonblade struck the frenzy lightning wolf, inflicting a continuou
 
 The aide replied, "Elder Fang Yuan answered the medicine hall's call by surrendering his Nine Leaf Vitality Grass. After receiving the payout, he gave it entirely to his aunt and uncle as a filial gesture. Lately, he has fought aggressively to slay lightning wolves, accumulating significant battle merits. Having saved numerous clansmen, his reputation is improving. The clan already has rumors—him turning over a new leaf, the Fang faction's new clan elder etc."
 
-Fang Yuan's surrender of the Nine Leaf Vitality Grass was clearly a deal with Gu Yue Chi Zhong, while giving his payout to his relatives was merely political theater.
+Gu Yue Bo nodded imperceptibly. His aide's perspective represented the clan majority, but was shallow; having led the clan for years, Gu Yue Bo had far greater foresight. Fang Yuan's surrender of the Nine Leaf Vitality Grass was clearly a deal with Gu Yue Chi Zhong, while giving his payout to his relatives was merely political theater.
 
 Regardless, Fang Yuan no longer kept to himself, and his conduct was commendable.
 
@@ -10240,7 +10758,8 @@ Gu Yue Bo instructed, "The Hidden Hall found nothing during their recent investi
 
 "Yes, this subordinate shall inform them now." Saying so, he took his leave.
 
-He thought inwardly, "Regardless of the reason, his cultivation rose too fast. This Fang Yuan harbors a great secret! However in this period, with the severity of the wolf tide, every bit of strength is needed, and wasting it on Fang Yuan is too wasteful. Investigation is still necessary, but this can only wait after the wolf tide."
+Gu Yue Bo stood squinting after him. He thought inwardly, "Regardless of the reason, his cultivation rose too fast. This Fang Yuan harbors a great secret! However in this period, with the severity of the wolf tide, every bit of strength is needed, and wasting it on Fang Yuan is too wasteful. Investigation is still necessary, but this can only wait after the wolf tide."
+
 
 # Chapter 160: Astounding applause
 
@@ -10250,7 +10769,9 @@ With a bam, the frenzy lightning wolf fell on the ground like a giant elephant.
 
 Though initially disapproving of Fang Yuan refining the Blood Moon Gu, the elders now saw its immense value against frenzy lightning wolves.
 
-"You flatter me, esteemed elders. Without your protection, I could not have attacked so freely," Fang Yuan replied politely, wiping rainwater from his face. "No, it is our duty."
+"You flatter me, esteemed elders. Without your protection, I could not have attacked so freely," Fang Yuan replied politely, wiping rainwater from his face.
+
+"No, no, it is our duty," the elders laughed, waving their hands. "We didn't feel it before, but fighting alongside Elder Fang Yuan really makes us feel our age."
 
 Fang Yuan's sharp judgment and ruthless combat in the recent clash had surpassed even veteran elders, earning their newfound respect.
 
@@ -10270,7 +10791,7 @@ With the village on high alert from constant wolf attacks, Fang Yuan drew too mu
 
 "Lord Fang Yuan, I am Gu Yue Ding Zong. It is an honor to have been your classmate. After news of your promotion spread, our classmates have longed to discuss cultivation with you. Would Lord be free tonight?"
 
-Fang Yuan shook his head, "No, before that, I must visit the underground cavern."
+Fang Yuan agreed, but when Ding Zong eagerly offered to prepare warm water, fresh clothes, and attendants, Fang Yuan shook his head. "No, before that, I must visit the underground cavern."
 
 "Ah, I see." Gu Yue Ding Zong's expression shifted; the underground cavern was a forbidden ground accessible only to clan elders.
 
@@ -10294,13 +10815,14 @@ Fang Yuan scanned the table, seeing familiar faces of classmates he had once ext
 
 After toasting everyone and drinking moderately, Fang Yuan raised his cup and laughed, "Youth is foolish; I was immature and did terrible things in the past. I hope everyone can forgive and forget."
 
-Everyone knew he was referring to the primeval stone extortion.
+No one dared remain seated. Everyone knew he was referring to the primeval stone extortion, and they hurriedly scrambled to reply, "Not at all, not at all! To have our primeval stones eyed by Elder Fang Yuan was our greatest honor!"
 
 Fang Yuan drained his cup in one gulp amid cheers and applause.
 
+
 # Chapter 161: Willingly exploited
 
-Only then did the others take their seats. Classmates with strong backgrounds, such as Mo Bei and Chi Cheng, were absent.
+Fang Yuan put down his cup and sat down; only then did the others dare to take their seats. Classmates with strong backgrounds, such as Mo Bei and Chi Cheng, were absent.
 
 "It is getting late; I must depart. This was a well-organized meetup," Fang Yuan said, preparing to leave.
 
@@ -10358,13 +10880,14 @@ Once the light faded, Fang Yuan swallowed the tusita flower, which settled onto 
 
 "First I borrowed three thousand primeval stones from Chi Lian, and with today's earnings, I do not have to fret over primeval stones for a while. In the six classifications, I have the Blood Moon Gu and Sky Canopy Gu for attack and defense, Thunderwings for movement, tusita flower for storage, and Earth Communication Ear Grass for recon. I only lack a healing Gu," Fang Yuan calculated.
 
-"Among Rank three healing Gu, Endless Vitality Gu sustains healing with little primeval essence, making it ideal for low-aptitude Gu Masters like me. The greater the strength, the faster injuries recover." But how could Fang Yuan obtain any of these three Gu?
+"Rank three healing Gu worms have a few desirable options. Endless Vitality Gu sustains healing with little primeval essence, making it ideal for low-aptitude Gu Masters like me. Undying Grass can save a life so long as a single breath remains. Most optimal is Self-reliance Gu, which relies on the Gu Master's own strength—the greater the strength, the faster injuries recover." But how could Fang Yuan obtain any of these three Gu?
 
 The only hope lies in the Flower Wine Monk's inheritance.
 
 Yet chances were slim; Fang Yuan sensed the inheritance was nearly exhausted. How likely was it to contain the exact Gu he needed right at the end?
 
 "Even so, I must finish exploring. At the very least, I must subdue that Chainsaw Golden Centipede," Fang Yuan thought.
+
 
 # Chapter 162: Heavenly Essence Treasure Lotus
 
@@ -10444,7 +10967,7 @@ The tunnel stretched longer than expected; he walked over three li across twelve
 
 "Water sounds... could it be?" An idea struck him.
 
-At the end of the tunnel, he saw a crystal wall.
+At the end of the tunnel, he saw a crystal wall, and behind the crystal wall was water.
 
 Within the water, an ash-gray stream swirled in a perpetual vortex like a miniature tornado.
 
@@ -10453,6 +10976,7 @@ Within the water, an ash-gray stream swirled in a perpetual vortex like a miniat
 A flower bud alternating in blue and white hues drifted leisurely in the spring water.
 
 "This... is actually the Heavenly Essence Treasure Lotus!" Fang Yuan was shocked!
+
 
 # Chapter 163: Thunder Crown Wolf
 
@@ -10474,11 +10998,13 @@ Though currently Rank three, it could advance into the Rank six Heavenly Essence
 
 Peering through the crystal wall, Fang Yuan noticed it had only eight full leaves and a damaged half-leaf—half a leaf short of completion.
 
-In response, the lotus began replenishing the damaged spring at the expense of its own foliage, damaging its ninth leaf.
+Centuries had passed, draining the spirit spring's reserves. Because the lotus continually absorbed the spring's essence, its reserves fell even further—forcing the lotus to reverse its absorption and replenish the damaged spring at the expense of its own ninth leaf.
 
 "It requires nine full leaves to be plucked. With only eight and a half, I must throw primeval stones into the spring!"
 
 "This crystal wall must be formed by a Moat Gu..." Fang Yuan touched the wall; like an illusion of light, his hand passed straight through.
+
+Taking a primeval stone from his tusita flower, Fang Yuan threw it straight at the crystal wall.
 
 The stone passed through into the spring, striking the lotus's phantom form as blue and white ripples spread across it.
 
@@ -10489,6 +11015,10 @@ Fang Yuan threw stones while silently counting; after five hundred, the damaged 
 The real issue lay elsewhere: harvesting the lotus would ruin the spirit spring, triggering a frantic, furious investigation by the whole clan.
 
 "I cannot give up on this lotus, even without the recipe. But taking it now would poke a hornet's nest and bring calamity."
+
+"This lotus must be Flower Wine Monk's final inheritance. Yet he came here to refine it—what accident left him so fatally injured that he had to hastily set up this inheritance before dying?"
+
+Fang Yuan already knew his motive: revenge against the Gu Yue clan. Taking the lotus would ruin the spirit spring, leaving the clan without a foundation and doomed to collapse.
 
 "Without new evidence, speculation is pointless. I should return to the village." Shaking his head, Fang Yuan retraced his steps.
 
@@ -10510,9 +11040,12 @@ Suddenly, a dozen figures shot out from the village, charging through the wolf t
 
 They were all clan elders, led by Clan Leader Gu Yue Bo!
 
+
 # Chapter 164: Intense Battle
 
 Fighting the thunder crown wolf required striking first; letting such monstrous power enter the village would cause devastating losses.
+
+Led by Clan Leader Gu Yue Bo, the clan elders surged into the violent wolf tide like a warship parting the waves, sweeping aside everything in their path.
 
 Drenched in blood, the elders pressed forward without losing anyone, though all were injured.
 
@@ -10580,7 +11113,7 @@ Gritting his teeth nearly to breaking, Gu Yue Bo yelled, "Trap it, use the Iron 
 
 These simultaneous attacks momentarily slowed the thunder crown wolf.
 
-Flung outward, the snakes wriggled across the ground and swiftly climbed the wolf's body.
+Seizing the opportunity, the other elders reached out as waves of Iron Chain Snake Gu shot from their sleeves. Resembling gloomy black chains forged of interlocking metal rings, the serpents wriggled across the ground and swiftly climbed the wolf's body.
 
 Interlocking head to tail, they formed a rooted metal net, trapping the thunder crown wolf in place.
 
@@ -10598,7 +11131,8 @@ Gu Yue Bo and the elders entered the clan pavilion's ancestral hall.
 
 Kneeling before the ancestral tablets, Gu Yue Bo spoke, "Great ancestor, we descendants are deeply ashamed! The wolf tide rages, and the village faces life and death. We beseech our great ancestor to aid us!" As his low voice faded, the ancestral hall fell silent.
 
-When the first generation leader felt death approaching, he departed the village, leaving a testament: if the clan ever faced destruction, they could pray before his memorial tablet.
+When the first generation leader felt death approaching, he departed the village, leaving a testament: if the clan ever faced destruction, they could pray before his memorial tablet, and Gu worms would descend from the sky to deliver them. Throughout history, the Gu Yue clan had survived several major calamities this way—this was their ultimate trump card.
+
 
 # Chapter 165: Blood Guillotine
 
@@ -10617,6 +11151,8 @@ Stepping onto the stairway outside, they saw a red tornado rampaging across the 
 These fingertip-sized Gu were shaped like locusts, crimson all over with hideous faces.
 
 They burrowed into the seated Gu Masters, draining blood and primeval essence. Within breaths, each insect multiplied.
+
+Amid agonized groans, not one Gu Master fled. They had been informed by the elders beforehand, willingly offering their bodies to feed the first generation ancestor's Gu. According to clan records, only by sating these insects with living sacrifices would they awaken to defend against external enemies.
 
 Once sated, the flying Gu soared back up with an imposing presence, multiplying tenfold in the blink of an eye!
 
@@ -10682,9 +11218,12 @@ Having already repelled their own wolf tide, the Bai clan had rushed over to Gu 
 
 Fang Yuan looked up to see a youth in white descending, resolutely slashing an iceblade toward his face.
 
+
 # Chapter 166: Second Battle versus Bai Ning Bing
 
 Snowy white hair, blue eyes, a one-armed figure in white.
+
+Who else could it be but Bai Ning Bing? Before the iceblade even touched him, Fang Yuan sensed a chilling killing intent assaulting him from behind.
 
 Unflinching, Fang Yuan leaped backward and poured primeval essence into the Sky Canopy Gu, forming protective white armor.
 
@@ -10704,13 +11243,17 @@ Enraged by the intrusion, Bai Ning Bing roared, "Scram, this is my battle, don't
 
 "Lord Bai Ning Bing, with your lost arm you are vulnerable. You are our clan's hope—let me clear this obstacle for you!"
 
-As the mud arm grabbed for him, a dark golden ribbon of light shot from Fang Yuan's aperture, wrapping around his body.
+The Bai clan Gu Master leaped forward and slapped the ground, channeling orange-yellow light into the earth. A swelling mud lump raced toward Fang Yuan before exploding into a massive yellow mud arm.
+
+As the mud arm grabbed for him, a dark golden ribbon of light shot from Fang Yuan's aperture, wrapping around his body and twisting the massive arm until it shattered and collapsed.
 
 "What Gu worm is this?" Bai Ning Bing looked on in surprise.
 
 Over a meter long and two fists wide, the centipede bore a dark golden exoskeleton and razor-sharp side blades shining with cold light.
 
 Chainsaw Golden Centipede!
+
+At Fang Yuan's call, the centipede coiled up his right arm and swallowed his fist along with half his forearm, tucking its legs into its exoskeleton to leave only two rows of razor blades.
 
 Fang Yuan appeared to wield a giant, hiltless dark-golden sword lined with silver blades.
 
@@ -10762,13 +11305,18 @@ Crucially, the golden centipede extended, shrank, straightened, and coiled at Fa
 
 "Good on you, Fang Yuan!" Bai Ning Bing shouted after several blades shattered, realizing he could not face him head-on.
 
+If close range wouldn't work, then long range it was. Bai Ning Bing pulled back and activated the Blue Bird Ice Coffin Gu.
+
 Several ice birds flapped their wings toward Fang Yuan.
 
 Unflustered, Fang Yuan swung his left arm; blood-colored moonblades intercepted the ice birds, detonating them in mid-air.
 
+Seeing this fail, Bai Ning Bing activated the Icicle Gu, mixing flying icicles with the blue birds in a barrage attack. Fang Yuan could only intercept the most dangerous ice birds with his moonblades, dodging some icicles while tanking the rest with his Sky Canopy Gu.
+
 Just as Bai Ning Bing sought to press his slight advantage, Fang Yuan sneered and released the Chainsaw Golden Centipede to burrow into the earth.
 
 Stunned, Bai Ning Bing cursed loudly and scrambled backward.
+
 
 # Chapter 167: A fourth one?!
 
@@ -10790,7 +11338,7 @@ Fang Yuan crooked his fingers, and a long golden shape leaped from the earth ont
 
 Centipede blade in hand and thunderwings crackling, Fang Yuan charged toward the valley with the mountain-sized blizzard in relentless pursuit.
 
-Ignoring him, Fang Yuan rushed straight toward the dying thunder crown wolf.
+A Bai clan Gu Master stepped out to block his path, but seeing Fang Yuan's ferocious charge, he lost his nerve and fled. Ignoring him, Fang Yuan rushed straight toward the dying thunder crown wolf.
 
 The thunder crown wolf turned to Fang Yuan, lightning gathering on its fangs; the pride of a myriad beast king refused to perish without retaliating!
 
@@ -10858,6 +11406,7 @@ Thunder crown wolf!
 
 "There's a fourth thunder crown wolf?!" the clan elders shouted, losing all composure.
 
+
 # Chapter 168: Lightning lycan
 
 Wolf packs were on the move, rushing in like the tide.
@@ -10866,7 +11415,7 @@ The situation worsened, and the clan leaders and elders paled.
 
 At once, both clans subconsciously stopped battling.
 
-This thunder crown wolf had well-developed hind legs and shrunken forelegs, causing it to bound forward on its hind legs like a kangaroo.
+Leading the pack was what appeared to be a thunder crown wolf, but its hind legs were well-developed while its forelegs were shrunken, causing it to bound forward like a kangaroo.
 
 "Wait, this doesn't seem like a thunder crown wolf..." the Bai clan leader shuddered, realizing something.
 
@@ -10893,6 +11442,8 @@ Fortunately, with Thunderwings Gu, he could escape the wolf smoke simply by flyi
 Next moment, a lightning bolt ripped through the smoke like a raging dragon, tearing across a hundred li to strike Fang Yuan head-on.
 
 At this crucial moment, Fang Yuan's battle instincts reacted faster than thought.
+
+Thunder Shield Gu! Sky Canopy Gu! A round lightning shield appeared before Fang Yuan, and white armor enveloped his body.
 
 Blinding lightning roared like a heavenly dragon, slamming into the lightning shield.
 
@@ -10956,6 +11507,7 @@ Fang Yuan sprinted over, and suddenly came to a stop.
 
 Bai Ning Bing!
 
+
 # Chapter 169: Finding a path
 
 Bai Ning Bing was battered and bloodied, breathing raggedly in disarray.
@@ -10972,7 +11524,7 @@ There were no eternal enemies. Teaming up with Bai Ning Bing was best, but how t
 
 "You truly want to die? Then I'll grant your wish!" Bai Ning Bing narrowed his eyes dangerously.
 
-Fang Yuan laughed, speaking leisurely: "Humans live barely a century, fleeting as a transient dream. What is the purpose of life? Merely walking a journey and witnessing brilliance. I do not seek death, nor do I fear it. Walking my own path, I have no regrets even in death."
+Fang Yuan laughed, speaking leisurely: "Humans live barely a century, fleeting as a transient dream. What is the purpose of life? Merely walking a journey and witnessing interesting things. I do not seek death, nor do I fear it. Walking my own path, I have no regrets even in death."
 
 Bai Ning Bing heard this, and his entire body shuddered.
 
@@ -11018,11 +11570,12 @@ They clashed: the iceblade nicked the golden centipede's carapace before instant
 
 Stepping back, their killing intent slowly dispersed.
 
-Fang Yuan's eyes narrowed. "He is doomed to die regardless. My priority is the Heavenly Essence Treasure Lotus before the village falls."
+Fang Yuan's eyes narrowed in thought: "He is doomed to die regardless. My priority is the Heavenly Essence Treasure Lotus before the village falls."
 
 "Hahaha! I've found my path: to witness this world's brilliance! Fang Yuan, we will fight another day. May your death illuminate my life!"
 
 Leaping backward to open some distance, he turned and departed.
+
 
 # Chapter 170: Can the blood of Incorruptible Justice be cold?
 
@@ -11048,7 +11601,7 @@ Soon, Gu Yue village appeared on the horizon.
 
 One was a tall older man, steady as a mountain and wearing a distinctive copper mask.
 
-Beside him stood a youth with sword-straight brows and sharp, bright eyes.
+Beside him stood a youth of Fang Yuan's age with sword-straight brows and sharp, bright eyes, bearing a silver belt plate carved with 'three'—a Rank three genius. Yet the subtle contours of the throat and chest allowed Fang Yuan to instantly see through her disguise as a girl.
 
 "Tie Xue Leng..." Fang Yuan's mind jolted as he recognized the man.
 
@@ -11084,7 +11637,7 @@ Recognizing him, Gu Yue Bo exclaimed joyfully, "So it is Divine Investigator Tie
 
 Just as he said this, the wolf packs charged in.
 
-"Foul beasts!" Tie Xue Leng's voice boomed like thunder as he activated a Gu in his aperture.
+"Foul beasts!" Tie Xue Leng's voice boomed like thunder as he activated a Gu in his aperture. A formless, indomitable aura erupted, radiating outward—the Righteous Gu! Embodying an unshakeable righteous heart, its presence directly weakened the willpower of vile creatures.
 
 The wolves halted, limbs trembling under the aura's oppressive weight, not daring to advance.
 
@@ -11123,6 +11676,7 @@ Gu Yue Bo smiled proudly, "Lord Divine Investigator comes to investigate Jia Jin
 Tie Xue Leng replied, "Indeed. However, my daughter Tie Ruo Nan will lead the investigation, not me."
 
 "Eh?" Everyone present turned to look at the girl.
+
 
 # Chapter 171: Inbred demonic nature
 
@@ -11184,7 +11738,12 @@ Turning to Fang Yuan, Gu Yue Bo asked, "Elder Fang Yuan, where were you during t
 
 Looking around calmly with a mocking smile, Fang Yuan said, "There isn't much to explain. Since you ask, I will confess: I was terrified. The prolonged stress and overwhelming fear of death broke my courage. Weak and cowardly, I hid in a corner, too terrified to take the front lines."
 
-"This young man, he has an inbred demonic nature!"
+The entire banquet was left dumbfounded. They had expected Fang Yuan to concoct all sorts of excuses, ready to expose his lies and reprimand him, never imagining he would admit it directly.
+
+"Any lie, as long as it is not true, will have loopholes. Furthermore, Tie Xue Leng is here..." Fang Yuan's expression was calm as he gazed down at the wine in his cup.
+
+Tie Xue Leng's expression turned strange. Subconsciously frowning, a deep sense of loathing and antipathy rose in his heart: "This young man, he has an inbred demonic nature!"
+
 
 # Chapter 172: No one more suited than Fang Yuan!
 
@@ -11235,6 +11794,7 @@ He relied on a Gu to conceal his aura, but paper could not hold fire—exposure 
 With his heir dead and cultivation regressed, Mo Chen urgently needed someone strong to anchor the faction.
 
 After weighing his options, Fang Yuan was indisputably the best candidate!
+
 
 # Chapter 173: White form immortal snake
 
@@ -11300,7 +11860,7 @@ Fang Yuan's eyes narrowed; he had planned to approach them, yet the opportunity 
 
 "The village naturally owes you full support. Please follow me," Fang Yuan said, leading the way.
 
-The spirit spring was raging like the boiling water.
+Meanwhile, back at the Bai clan, the spirit spring was raging like boiling water.
 
 Surging spring water splashed outward, revealing a slender snake covered in snow-white scales.
 
@@ -11318,6 +11878,10 @@ Bai Ning Bing jolted as the light entered his aperture, reforming into the snake
 
 The white snake took center stage in his primeval sea, arrogantly shoving all other Gu aside.
 
+The Bai clan leader stood up in bewilderment. According to the clan's secret records, once the white form immortal snake approved of a successor, it was supposed to carry them into the sky to open the inheritance. Yet it had simply settled into Bai Ning Bing's aperture without taking flight. The clan leader could make no sense of it.
+
+Meanwhile, time quietly slipped by back in Gu Yue village.
+
 "That sums up Gu Yue village. The underground cave is a restricted clan area forbidden to outsiders," Fang Yuan said.
 
 Looking at the moon, he added, "It is late. Please rest so you have energy for tomorrow's investigation."
@@ -11334,6 +11898,7 @@ Tie Xue Leng nodded. "Solving cases requires solid evidence. Do not rely on Intu
 
 "Yes, father."
 
+
 # Chapter 174: Junior divine investigator
 
 Tie Xue Leng said again, "Now, analyze this person Fang Yuan."
@@ -11345,7 +11910,8 @@ Tie Xue Leng said again, "Now, analyze this person Fang Yuan."
 Tie Xue Leng said, "He didn't abandon his feelings, merely concealed them and controlled his emotions completely. This lad has a demonic nature."
 
 "Demonic nature?"
-"At the banquet, he admitted he was too frightened to fight. Would a normal person do that?"
+
+"That's right, think about it," Tie Xue Leng asked. "At the banquet, he admitted he was too frightened to fight. Would a normal person do that?"
 
 Tie Ruo Nan shook her head. "No, Gu Masters value clan honor and reputation above their lives. Yet throughout history, many have sacrificed their reputation, right?"
 
@@ -11367,7 +11933,7 @@ Clearing his suspicion before such people was extremely difficult. Given enough 
 
 Earlier, Fang Yuan had made absurd demands to marry Mo Yan: a hundred thousand primeval stones and ten rare Rank three Gu.
 
-Thus, the discussion faltered, and he chased Fang Yuan out.
+This made Gu Yue Mo Chen furious. Marrying off his precious granddaughter was one thing, but such shameless greed was the last straw! The discussion broke down, and he chased Fang Yuan out.
 
 Knowing Mo Chen's desperation, Fang Yuan was sure he would compromise; his absurd demands were merely bargaining tactics.
 
@@ -11387,7 +11953,7 @@ The next day.
 
 Tie Ruo Nan raised her head. "Where is he buried? I want to inspect the corpse!"
 
-Inside a crude, damaged coffin lay the corpse.
+Inside a crude, damaged coffin lay the corpse. Ignoring the foul stench, Tie Ruo Nan stepped forward with shining eyes, meticulously examining the body from head to toe before finally straightening up.
 
 "Anything?" Tie Xue Leng asked lightly, testing her secretly.
 
@@ -11422,6 +11988,7 @@ Gritting her teeth with stubborn tenacity, the girl replied, "No, it's not over.
 Hearing her words, Tie Xue Leng was a little surprised.
 
 "Child, you have truly grown," the divine investigator sighed with gratification.
+
 
 # Chapter 175: Increasing pressure
 
@@ -11501,6 +12068,7 @@ Fang Yuan watched the Tie duo. Uncovering the truth so quickly proved their repu
 
 Their skill convinced Fang Yuan that they would eventually uncover Jia Jin Sheng's murder; in this world, Gu could both commit and solve crimes.
 
+
 # Chapter 176: The resolve to sacrifice
 
 "Elder Fang Yuan, did you massacre old Wang's family?" Gu Yue Bo asked heavily from the high seat.
@@ -11527,13 +12095,15 @@ Gu Yue Bo massaged his temples. "We wish to give Lord Jia Fu an explanation. At 
 
 "Yes." Fang Yuan looked at Gu Yue Bo expressionlessly.
 
+Outside the council hall, Tie Ruo Nan punched a tree in indignation, scattering leaves. "It was clearly murder, yet they turn a blind eye to it! Father, are mortals not human? Why do Gu Masters feel they have the right to slaughter them?"
+
 Tie Xue Leng sighed. "Child, your hatred for evil mirrors my youth. It brings me both joy and worry."
 
 He handed a letter to Tie Ruo Nan.
 
 "This is...?!" Tie Ruo Nan opened it, overjoyed.
 
-Jia Fu's letter detailed Fang Yuan winning the Liquor worm through gambling, passing interrogation under Bamboo Gentleman, and Jia Fu's recruitment offer.
+Jia Fu's letter detailed Fang Yuan winning the Liquor worm through gambling, passing interrogation under the Bamboo Gentleman, and his bidding prices during the caravan visit where he received Jia Fu's recruitment offer.
 
 "Fang Yuan is ruthless and calculating. If he truly is the killer, he should show fear. Yet the Bamboo Gentleman detected no lies. How did he bypass it?" Tie Ruo Nan muttered.
 
@@ -11584,6 +12154,7 @@ Gu Yue Mo Chen sighed. "You understand our family's situation, Mo Yan. We need y
 "Yes." The young girl sobbed and lowered her head.
 
 Gu Yue Mo Yan had already made this resolve. She had no feelings for Fang Yuan, only hatred and disgust, but knew she had to marry him for her family's sake!
+
 
 # Chapter 177: Brother, how can you do this to me?!
 
@@ -11647,13 +12218,20 @@ He sighed, recalling, "Back then, my brother was outstanding. He displayed talen
 
 "In our entire village, only one inn sells bamboo wine."
 
-"The innkeeper confirmed everything," Tie Ruo Nan concluded. "Fang Yuan bought so much wine solely to feed the Liquor worm. Afterwards, he gambled on rocks intentionally to expose the Liquor worm plausibly before everyone."
+"Then I'll take my leave." Tie Ruo Nan turned to depart.
+
+"Wait, I... I'll go with you!" Fang Zheng hesitated, then hurried after them.
+
+An hour later, walking along the stone pavement after questioning the innkeeper, Tie Ruo Nan concluded, "The situation is clear as day. Fang Yuan bought so much wine solely to feed the Liquor worm. Afterwards, he intentionally gambled on rocks just to expose the Liquor worm plausibly before everyone."
 
 Beside her, Fang Zheng appeared distraught, his face looking lifeless.
+
+He had once looked down on Fang Yuan as a broken loser, believing the towering mountain was no longer unscalable. But it had all been a performance—a calculated scheme. Everyone had been played for fools, and his own past arrogance was nothing more than a humiliating joke. From the start, he had been a clown dancing for his brother's amusement.
 
 "Brother, how can you treat me like this?!"
 
 "Without Lady Tie, I would still be in the dark. How long do you intend to lie to me and the clan? Killing innocents at will, full of deception and indifference—is that the real you?"
+
 
 # Chapter 178: Black White Grey
 
@@ -11666,6 +12244,8 @@ Tie Ruo Nan nodded, then quickly shook her head. "I understand what I needed to.
 "There are only two possibilities: outside help or an inheritance. Who would invest in C-grade talent? It must be an inheritance," Tie Ruo Nan said.
 
 "An inheritance legacy explains everything! First, the Liquor worm's origin makes sense. Second, the motive for killing Jia Jin Sheng is established!" Tie Ruo Nan thought excitedly.
+
+"I want to inspect the Gu Yue clan's history records!" Tie Ruo Nan said.
 
 "Clan history is kept in forbidden grounds; only clan elders may enter," Fang Zheng replied.
 
@@ -11707,7 +12287,7 @@ The rainbow burst into a rain of white light, revealing an elegant white snake w
 
 Before the Rank five snake Gu, the frenzy lightning wolf shrank back, but the white form immortal snake spewed smoke.
 
-It suddenly opened its mouth, shooting a blue thunderbolt.
+Blinded and panicked by the smoke, the frenzy lightning wolf suddenly opened its mouth and shot out a blue thunderbolt.
 
 The thunderbolt hit Bai Ning Bing on the chest, penetrating it.
 
@@ -11729,13 +12309,14 @@ These days, without suppressing his cultivation, the Northern Dark Ice Soul phys
 
 Bai Ning Bing shook his head. "The snake hasn't acknowledged me. It moved from the spirit spring into my aperture and emerges only in mortal peril."
 
-"The three clans' negotiations concluded. We agreed on a tournament for Gu Masters aged thirty and below to decide compensation."
+Bai clan leader said, "The three clans' negotiations concluded. We agreed on a tournament for Gu Masters aged thirty and below to decide compensation."
 
 "I understand." Bai Ning Bing nodded. "Sensing my life is ending, having a competition at the end makes me glad. Thank you, Lord Clan Leader."
 
 Having found his path, Bai Ning Bing felt no fear—only one lingering battle remained on his mind.
 
 "Fang Yuan, will you attend the three-clan tournament? Don't disappoint me, because right now, I am truly strong..."
+
 
 # Chapter 179: History is written by men
 
@@ -11757,7 +12338,7 @@ Tie Xue Leng remained silent, while Tie Ruo Nan smiled bitterly and shook her he
 
 "Yes. The Chi and Mo factions were our clan's most influential before the wolf tide," Fang Zheng explained.
 
-"If Fang Yuan didn't obtain it from an inheritance, the Chi faction is the prime suspect. But why invest in an ordinary C-grade student?"
+Tie Ruo Nan turned the clues over in her mind, deciding to start from scratch. "If Fang Yuan didn't obtain it from an inheritance, the Chi faction is the prime suspect. But why invest in an ordinary C-grade student?"
 
 "What made Fang Yuan worth their investment? Perhaps Chi faction didn't invest willingly—Fang Yuan blackmailed them!"
 
@@ -11769,7 +12350,7 @@ Tie Xue Leng remained silent, while Tie Ruo Nan smiled bitterly and shook her he
 
 The young girl nodded.
 
-There were only one word written on the white paper —'Aptitude'.
+Taking the seed, Tie Ruo Nan buried it in the soil and infused her primeval essence. A cactus quickly sprouted, blooming with a delicate white flower bud before withering away. She gently plucked the bud and unfolded it like a ball of paper, smoothing it into a neat square. Written upon it was a single word: 'Aptitude'.
 
 Meaningless or even ridiculous to others, to Tie Ruo Nan it was a vital clue.
 
@@ -11793,19 +12374,22 @@ Tie Xue Leng said, "We came to solve a case, not wreak havoc. As outsiders, we c
 
 Tie Ruo Nan nodded. "Clans record important rituals with Photo-audio Gu. I want to see the Awakening Ceremony's recording!"
 
+Soon after, the Ties and Fang Zheng were received by Clan Leader Gu Yue Bo.
+
 "Divine Investigator Tie, you have toiled for days investigating this case. Please, have some tea. As for the image, it is kept in a secret room within our restricted underground cave. While inconvenient to let you enter, I have already sent someone to retrieve it. It will arrive shortly," Gu Yue Bo smiled.
 
 "I have troubled the clan leader," Tie Xue Leng politely said.
 
 "Divine investigator Tie, if I may be so bold to ask a favor...." Gu Yue Bo suddenly said.
 
-Tie Xue Leng. "Oh? Please speak, clan leader."
+Tie Xue Leng replied, "Oh? Please speak, clan leader."
 
 "This concerns Qing Mao Mountain's internal affairs. The deadlock between our clan, the Bai clan, and the Xiong clan shifted due to the wolf tide. When compensation negotiations failed, our three clans decided to hold a tournament. Open only to Gu Masters aged thirty and below, it will decide each clan's future strength."
 
 "If Fang Yuan truly is the killer, my clan will not shield him. Yet I hope you can delay action until after the three-clan competition the day after tomorrow."
 
 As a Rank three Gu Master, Fang Yuan was vital fighting strength Gu Yue Bo wanted to extract.
+
 
 # Chapter 180: Watching the Awakening Ceremony again
 
@@ -11818,6 +12402,8 @@ Dressed in a long black gown with his hair loose, he looked like a specter in th
 From his deal with Mo Chen, he had received the Pig Iron Gu and forty thousand primeval stones.
 
 Fang Yuan sighed, stood up, and slipped out the door, activating the Stealth Scales Gu to vanish into the night.
+
+Circumstances had forced his hand. The Tie father and daughter were closing in, his plan to serve as an envoy had fallen through, and the Mo faction's recruitment had drawn the hostility of the clan elders. With Bai Ning Bing growing stronger as death neared, Fang Yuan was backed into an impasse where even his Rank three cultivation was not enough to overturn the situation.
 
 "The situation is dire; I can only gamble on this method!" Fang Yuan thought, pinning his hopes on the Heavenly Essence Treasure Lotus.
 
@@ -11837,7 +12423,9 @@ A Gu Master had delivered the Photo-audio Gu, which Gu Yue Bo now held. "Divine 
 
 Tie Ruo Nan lightly snorted.
 
-Tie Xue Leng agreed, "Alright, if Fang Yuan proves to be the killer, I will leave him time to participate in the three-clan competition." "Father..." Tie Ruo Nan's eyes flashed.
+Tie Xue Leng ruminated for a moment before agreeing, "Alright, if Fang Yuan proves to be the killer, I will leave him time to participate in the three-clan competition."
+
+"Father..." Tie Ruo Nan's eyes flashed with a strange light. This was not her father's style.
 
 "The Divine Investigator's word is gold. I thank you for your understanding." Gu Yue Bo smiled, though he sneered inwardly.
 
@@ -11893,7 +12481,10 @@ An A grade aptitude—his life had changed forever from that moment!
 
 "His words..." Fang Zheng tried to recall. "He seemed to say... road?"
 
-"Right, road!" Fang Zheng's eyes brightened. "He said, 'The road to the future will be interesting." Looking back, his words held profound meaning... ...as if he already knew I had A grade aptitude!" "No, he meant something else." Tie Ruo Nan trembled, exhaling with a complicated expression."
+"Right, road!" Fang Zheng's eyes brightened. "He said to me, 'The road to the future will be interesting.' Strange... I didn't think much of it then, but looking back, his words held profound meaning—as if he already knew I had A grade aptitude!"
+
+"No, he didn't mean A grade aptitude, but something else," Tie Ruo Nan murmured, her body trembling with a complicated expression as she exhaled a breath of turbid air.
+
 
 # Chapter 181: By an odd twist (Long chapter)
 
@@ -11927,9 +12518,9 @@ Even Tie Xue Leng would never imagine rebirth, let alone his daughter. Through s
 
 "Yes, the ten extreme physiques... It must be the Ancient Moon Desolate Yin physique!" Gu Yue Bo's heart surged with overwhelming excitement.
 
-His will predicted that the Gu Yue clan would one day produce a Gu Master with the Ancient Moon Desolate Yin physique. The ancestor had instructed that if such a physique appeared, they must be brought to the blood pond graveyard.
+Centuries ago, the clan's first generation ancestor had left behind a will predicting that the Gu Yue clan would one day produce a Gu Master with the Ancient Moon Desolate Yin physique to bring about a new golden age. The ancestor had instructed that if such a physique ever appeared, they must be brought into the blood pond graveyard.
 
-That method lay with him in his coffin in the graveyard.
+Gu Yue Bo knew the fatal weakness inherent to the ten extreme physiques, but the first ancestor had discovered a method to curb it—a secret resting with him in his coffin in the graveyard.
 
 "How could my brother cheat under everyone's eyes?" Fang Zheng shook his head. Tie Ruo Nan countered, "If Chi Cheng could cheat, why couldn't Fang Yuan? Perhaps Fang Yuan awakened early and deceived the Bamboo Gentleman, or killed Jia Jin Sheng to protect this secret."
 
@@ -11959,11 +12550,14 @@ A flame began to burn in Fang Zheng's heart.
 
 The cold night wind made him shudder. "HEHEHEHE..." Slumped on the ground, Fang Zheng let out a shrill, eerie laugh.
 
+
 # Chapter 182: Blood pond graveyard
 
 "No one here!" Ransacking the house without finding Fang Yuan, Gu Yue Bo felt a heavy dread. The sudden disappearance of both Fang Yuan and Tie Xue Leng made him link them together.
 
 "Speak, where is Fang Yuan?" Gu Yue Bo demanded with a grim face, shouting at the newly arrived Tie Ruo Nan.
+
+"How would I know where Fang Yuan is?" Tie Ruo Nan countered firmly, refusing to back down even before a Rank four expert.
 
 "Hmph, why did Tie Xue Leng go missing? Tie family young lady, explain yourself," Gu Yue Bo demanded, approaching Tie Ruo Nan.
 
@@ -11975,7 +12569,7 @@ Tie Ruo Nan chuckled. "Gu Yue clan leader, would you dare? My uncle is the curre
 
 Her tone softened. "Gu Yue clan leader, I am not here as an enemy. Believe my sincerity. I don't know where father went, but I won't run away. The Tie family only dies in battle; we have no cowards. I will stay, and I will arrest Jia Jin Sheng's murderer!"
 
-The spirit spring swirled violently as a lotus phantom flickered above the water.
+Fifteen minutes later, deep within the cave, the spirit spring swirled violently as a lotus phantom flickered above the water. As Fang Yuan tossed in primeval stones, the image of the Heavenly Essence Treasure Lotus grew clearer.
 
 "I threw in fifty thousand primeval stones. Why hasn't this Heavenly Essence Treasure Lotus revealed its true form yet?"
 
@@ -11983,7 +12577,7 @@ The Heavenly Essence Treasure Lotus was extremely precious; once advanced to Ran
 
 "Fifty thousand primeval stones is plenty. Why fret?" Hesitating no longer, he jumped toward the crystal wall.
 
-Fang Yuan knew this well. Having estimated the distance and accounted for water refraction, he reached out according to memory.
+Passing through the crystal wall, he was instantly enveloped by water. He opened his eyes, but the Heavenly Essence Treasure Lotus was invisible—it could only be seen through the crystal wall prior to extraction. Fang Yuan knew this well; having already estimated the distance and accounted for the refraction of light, he reached out according to memory.
 
 The blue-and-white lotus had closed petals and resembled a lamp filled with a holy aura. Possessing its own consciousness, it resisted Fang Yuan's grasp.
 
@@ -12015,7 +12609,7 @@ This underground area was filled with red light. Fang Yuan was falling from fift
 
 A piercing stench of blood assaulted Fang Yuan as he plunged.
 
-The golden centipede fully extended, plunging its tail into the mountain wall.
+Unwilling to land in the sinister blood pond, Fang Yuan summoned the Chainsaw Golden Centipede. Thrusting his hand into its mouth, he swung it like a whip; the golden centipede fully extended, plunging its tail into the mountain wall.
 
 Relying on the Chainsaw Golden Centipede, Fang Yuan secured footing on an uneven ledge.
 
@@ -12032,6 +12626,7 @@ River creatures swarmed the turbulent blood water, but within breaths, their blo
 Fang Yuan's pupils shrank. Landing in this pond would be disastrous even with Sky Canopy Gu's protection.
 
 Waves from the blood pond battered the cavern walls, their glowing red water seeping in and dyeing the surrounding earth into bright red soil.
+
 
 # Chapter 183: Blood Sea Ancestor
 
@@ -12085,6 +12680,7 @@ Right then, a sudden change occurred.
 
 Divine Investigator Tie Xue Leng!
 
+
 # Chapter 184: Rank five intense battle
 
 "Tie Xue Leng, why is he here?" Fang Yuan recognized the voice in shock.
@@ -12135,6 +12731,8 @@ With a loud crash, part of the ceiling collapsed, sending heavy debris tumbling 
 
 "Damn it!" Caught in the crossfire as the red soil crumbled, Fang Yuan lost his foothold.
 
+He scrambled to use the Chainsaw Golden Centipede and Thunderwings Gu to cling to the walls amid the falling rock debris, but the wings were sluggish and weak, offering little speed.
+
 Curiously, Thunderwings Gu began intermittently absorbing primeval essence directly from the surrounding air.
 
 "Blood Frenzy Gu!" Fang Yuan realized in a flash of inspiration.
@@ -12155,9 +12753,14 @@ Mid-air, Tie Xue Leng battled the blood river python—a Rank five clash Fang Yu
 
 "Wait, a cave entrance?"
 
+
 # Chapter 185: Gu Yue first gen, Five great flying zombies
 
 The small tunnel opening had been buried by red soil, but surging lake waves had washed the sediment away, exposing it once more.
+
+Fang Yuan immediately turned and swam toward the hope-filled opening, only for another intense explosion to shake the cavern and send red soil cascading down to bury the entrance once more.
+
+Above the lake, Tie Xue Leng took a deep breath and extended his right hand, activating Iron Fist Grappling Gu.
 
 The air rippled as an iron hand descended onto the blood river python's tail.
 
@@ -12211,6 +12814,10 @@ Right at this moment, dense bloody fog rose from the center of the blood lake.
 
 "Blood Frenzy Gu!" With a hint of dread in his eyes, Fang Yuan immediately scrambled into the tunnel entrance.
 
+The bloody fog rapidly pervaded the air, completely extinguishing the raging inferno on the lake. A whirlpool formed at the center of the blood lake and quickly expanded until its edges touched the surrounding walls.
+
+"Humph, Gu Yue first head, you couldn't endure it anymore?" the giant puppet coldly snorted.
+
 A giant blood wave ten meters high gushed out from the center of the whirlpool.
 
 From within the blood wave, a vertical crimson coffin gradually rose.
@@ -12221,7 +12828,8 @@ He had a scarlet face, fangs, and blood-red hair, his sunken eyes harboring a dy
 
 "Rank five Blood Wight Gu! Is he really the first head?" Fang Yuan was flabbergasted, but wasn't surprised.
 
-Prolonged use of this Gu turned a Gu Master completely into a zombie; as long as they drank blood periodically, they could live forever.
+Aside from orthodox Lifespan Gu, there were demonic methods to extend life—such as the Rank two Roaming Zombie Gu, whose prolonged use turned a Gu Master completely into a zombie who could live forever by drinking blood periodically. Blood Wight Gu was a major Rank five advancement of Roaming Zombie Gu; alongside the Asura zombie, heavenly demon zombie, nightmare zombie, and plague zombie, they were known as the five great flying zombies. Because Lifespan Gu was so difficult to find, the Gu Yue first head had turned himself into a blood wight flying zombie and buried himself here!
+
 
 # Chapter 186: Spring and autumn does not appear
 
@@ -12267,13 +12875,13 @@ Even so, the vast speed difference allowed the bats to steadily close the distan
 
 "They're almost on me; it's time to use the Spring Autumn Cicada!" Fang Yuan gritted his teeth.
 
-Releasing the Spring Autumn Cicada would produce a massive phantom and a disturbance bound to draw their attention.
+The bladewing blood bats were only Rank three, so the aura of a Rank six Gu would completely dominate them. But Tie Xue Leng and First gen Gu Yue were nearby; releasing the Spring Autumn Cicada would produce a massive phantom and a disturbance bound to draw their attention.
 
 Fang Yuan exhaled in anticipation, willing internally, "Spring Autumn Cicada, come out!"
 
 Fang Yuan froze in shock. In the center of his aperture, the Spring Autumn Cicada remained motionless, radiating brilliant yellow-green light.
 
-On the slope, Gu Yue Bo, Bai clan and Xiong clan leader stood side by side.
+Far away, the sky glowed amidst the morning mist as dawn broke. On the slope, Gu Yue Bo, the Bai clan leader, and the Xiong clan leader stood side by side.
 
 "Though the main competition is tomorrow, we must hold the preliminaries. The time is ripe; shall we begin?" the Xiong clan leader said with a smile.
 
@@ -12281,11 +12889,12 @@ On the slope, Gu Yue Bo, Bai clan and Xiong clan leader stood side by side.
 
 The Xiong clan leader announced, "This competition spans the surrounding hundred li until sunset. Each of you holds a token; collecting thirty qualifies you for the three-clan tournament. Ready... begin!"
 
-Cold sweat beaded on Fang Yuan's forehead; why couldn't the Spring Autumn Cicada emerge?
+Deep underground, mere breaths felt like years to Fang Yuan. Cold sweat beaded on his forehead; why couldn't the Spring Autumn Cicada emerge?
 
 Checking his aperture with lightning speed, he found nothing wrong with the Spring Autumn Cicada—it was still recovering rapidly.
 
 "I get it!" Fang Yuan realized. "Once the Spring Autumn Cicada becomes a vital Gu, it remains fixed in the aperture and cannot be moved."
+
 
 # Chapter 187: There exists one river of time, and the Spring Autumn Cicada acts as the crossing boat
 
@@ -12319,7 +12928,7 @@ The yellow-green radiance of Spring Autumn Cicada still fluctuated continuously,
 
 From Rank three initial stage with light silver primeval essence, Fang Yuan's cultivation soared directly to Rank three peak stage, possessing snow silver primeval essence!
 
-"Using the Stone Aperture Gu exhausts all potential and severs future advancement, making it nearly impossible to reach Rank four. Their potential is limitless; even if petrified, the aperture walls rapidly recover."
+"Using the Stone Aperture Gu exhausts all potential and severs future advancement, making it nearly impossible to reach Rank four. But the petrified walls can support the Spring Autumn Cicada for now. This Gu was likely Bai Ning Bing's planned countermeasure against the Northern Dark Ice Soul Physique—though the Ten Extreme Physiques are far more relentless. Their potential is limitless; even if petrified, the aperture walls rapidly recover."
 
 At that moment, the bladewing blood bats pounced in for the kill.
 
@@ -12331,7 +12940,7 @@ The primeval essence in his aperture depleted rapidly.
 
 Despite reaching Rank three peak stage, producing snow silver essence with his C-grade aptitude was far too slow. Nor did the intense battle allow him to absorb primeval stones.
 
-Fortunately, Fang Yuan had recently obtained the Heavenly Essence Treasure Lotus.
+Fortunately, Fang Yuan had recently obtained the Heavenly Essence Treasure Lotus. Known as a portable spirit spring, its innate ability was to continuously produce natural primeval essence.
 
 Entering his aperture, this natural essence was automatically refined into snow silver primeval essence.
 
@@ -12344,6 +12953,7 @@ The Chainsaw Golden Centipede struck, its spinning silver saws screeching as the
 Slightly more imposing than the rest, this was the group's sole male bat, refined by First gen Gu Yue to command the entire swarm.
 
 The male bat was instantly pulped, and the leaderless female bats scattered immediately!
+
 
 # Chapter 188: Senior paves the way for juniors to run smoothly
 
@@ -12387,6 +12997,10 @@ Even the Chainsaw Golden Centipede couldn't drill its way through.
 
 "Did First gen Gu Yue seal this cave completely?" Fang Yuan's heart sank.
 
+In the sunlit wilderness outside, a Xiong clan Gu Master flew backward and crashed heavily to the ground, coughing up blood before falling unconscious.
+
+Bai Zhong Shui of the Bai clan laughed smugly as she moved forward to finish him off and claim his token, when a moonblade suddenly sliced toward her. Turning swiftly, she spat a water ball to shatter the attack.
+
 Three Gu Masters led by Fang Zheng leaped down from the branches.
 
 "Gu Yue clan, this is my prize," Bai Zhong Shui said, her eyes narrowing dangerously.
@@ -12405,7 +13019,9 @@ Xiong Lin laughed. "The Gu Yue and Xiong clans have formed an alliance—Bai Zho
 
 "Hehehe, which is precisely why we agreed to eliminate Bai Ning Bing first!" Xiong Lin laughed loudly.
 
-Drenched in sweat, Fang Yuan alternated between his Gu for hours against the resilient rock, advancing barely fifty centimeters.
+The Chainsaw Golden Centipede's razors screeched as they ground against the rock wall, echoing through the cavern.
+
+Drenched in sweat, Fang Yuan alternated between the Chainsaw Golden Centipede and Blood Moon Gu for hours against the strangely sturdy wall, advancing barely fifty centimeters.
 
 "Is this truly my end... eh?" Fang Yuan's heart stirred as he sensed a living presence within the rock wall.
 
@@ -12417,6 +13033,10 @@ Pitch-black with a metallic sheen, its heavy carapace radiated a commanding aura
 
 "The Thousand Li Earthwolf Spider!" Fang Yuan realized, instantly recalling the Flower Wine Monk.
 
+Most of the questions in Fang Yuan's mind were now answered. Back when the Flower Wine Monk came to Gu Yue village for the Heavenly Essence Treasure Lotus, he was intercepted by First gen Gu Yue. Unable to overcome First gen Gu Yue's home-ground advantage, the gravely injured Rank five demonic master used the Thousand Li Earthwolf Spider to dig this escape tunnel before hurriedly leaving behind his inheritance in hopes his successor would ruin the Gu Yue clan.
+
+Still, why the Thousand Li Earthwolf Spider had sealed itself here in slumber—and what First gen Gu Yue was truly after—remained mysteries.
+
 "These suspicions are minor details. What matters is leaving!" Fang Yuan channeled primeval essence, quickly refining the Thousand Li Earthwolf Spider.
 
 The rock wall was merely its hibernation cocoon, and in its weakened state, the Rank five spider was easily refined.
@@ -12425,11 +13045,14 @@ As Fang Yuan injected snow silver primeval essence, the spider gradually awakene
 
 Once it partially recovered, an impatient Fang Yuan climbed onto its back and commanded it forward.
 
+With the cocoon broken, the passage beyond was exposed—the escape path carved by the Flower Wine Monk himself. Seniors pave the way for juniors to run smoothly, and this path saved Fang Yuan immense trouble.
+
 The only worry was that steed-type Gu consumed vast amounts of primeval essence.
 
 Rank three essence could not sustain a Rank five spider. Periodically, Fang Yuan halted to activate the Lotus and absorb primeval stones.
 
 Commanding the spider forward, resting to recover essence, and drilling through cave-ins, Fang Yuan steadily moved from the blood lake graveyard toward the surface.
+
 
 # Chapter 189: Shocking change
 
@@ -12443,6 +13066,8 @@ Led by Fang Zheng and Xiong Lin, the surrounding Gu Masters spoke in turn, tryin
 
 Forming an iceblade, Bai Ning Bing wiped the frigid edge, not even looking at his surroundings.
 
+"Everyone calm down, don't listen to his taunts!" Xiong Lin shouted. "We haven't practiced together and lack coordination. If we attack all at once, we'll only get in each other's way and let him take advantage."
+
 "Then who attacks first?" Chi Cheng asked.
 
 "I'll take him first. Honestly, I've wanted to fight you for a long time." Xiong Jiao Man stepped forward.
@@ -12451,7 +13076,7 @@ She blew a whistle, and stampeding echoed from afar as over two hundred black be
 
 "Lord Qing Shu, I will avenge you personally!" Fang Zheng stared intently at Bai Ning Bing, thoughts racing.
 
-"Merely a hundred beast king, what a boring trick."
+"Merely a hundred beast king, what a boring trick," Bai Ning Bing sneered, his entire body emitting cold air.
 
 "Northern Dark Ice Soul physique... I'm at my limit." Bai Ning Bing sensed his impending death as his flesh and blood turned to ice.
 
@@ -12496,6 +13121,11 @@ Gu Yue Bo narrowed his eyes. "Bai Ning Bing is only Rank three—you are cheatin
 "Cheating? Hehe, truth be told, our Bai Ning Bing possesses the Northern Dark Ice Soul physique!" the Bai clan leader yelled.
 
 "What? Ten extreme aptitude!" At once, Gu Yue Bo and Xiong clan leader were shocked.
+
+"Reporting! Clan leader, a strange earthquake has occurred!" a Gu Yue Gu Master came running in panic. "Many of our bamboo buildings have collapsed, and blood water is seeping from the ground!"
+
+"To think such a thing has happened!" Gu Yue Bo's expression changed completely.
+
 
 # Chapter 190: Third battle against Bai Ning Bing
 
@@ -12545,7 +13175,7 @@ Spitting a cloud of white fog across the battlefield, the snake shook Bai Ning B
 
 Roots sprouted from Fang Yuan's ears, allowing him to perceive everything within three hundred paces.
 
-"I'm not playing with you." Fang Yuan abandoned the spider and slipped away into the mist.
+"I'm not playing with you." Fang Yuan abandoned the spider. It had already been corrupted by the Blood Frenzy Gu and would soon dissolve into blood water anyway. Slipping away, a clump of the maze fog clung to him like a shadow, following his movements across the battlefield.
 
 "Iceblade storm!" Behind him, Bai Ning Bing's voice came.
 
@@ -12572,6 +13202,7 @@ Astride a giant crane, he held a cicada-shaped Kinship Blood Worm Gu that pulsed
 "Senior Brother, no matter where you hide, I will find you. You stole my opportunity back then—I will repay you a thousandfold!"
 
 The white-browed elder gritted his teeth, his expression dripping with deep hatred.
+
 
 # Chapter 191: Crane disaster
 
@@ -12635,7 +13266,7 @@ Covered in blood and severely injured, the Gu Yue clan leader fought desperately
 
 Under the threat of death, the former enemies quickly united in one spot.
 
-"As his descendants, they can be hostages in the coming battle. But these three Rank four Gu Masters might interfere—I must eliminate them first!"
+"Gu Yue clan... hehe, you are all senior brother's descendants," the white-browed elder sneered coldly from atop his giant crane. He initially considered stopping them, but changed his mind. "Let them flee back so I can finish them all together; they can serve as hostages in the coming battle. But these three Rank four Gu Masters might interfere—I must eliminate them first!"
 
 Thinking so, the white-browed elder screeched eerily, flicking three balls of light forward.
 
@@ -12653,6 +13284,8 @@ The clash between Tie Xue Leng and First gen Gu Yue had heavily damaged the vill
 
 "What is going on?" She shouted loudly.
 
+Fang Yuan gave no reply, for the flock of cranes darkening the sky behind them was answer enough. As terrified cries erupted, the village was once again plunged into sheer panic.
+
 "Senior brother, your junior has traveled far to see you. Why won't you come out to meet me?" The white-browed elder stood atop the crane, his voice dripping with icy killing intent.
 
 Before he finished speaking, bloody water erupted like a ten-meter fountain in the square, and the scarlet coffin emerged upright.
@@ -12660,6 +13293,7 @@ Before he finished speaking, bloody water erupted like a ten-meter fountain in t
 Standing within the coffin as a blood wight, First gen Gu Yue fixed his blood-red eyes on the white-browed elder.
 
 "To think you survived... how did you find this place? As expected, that Gu Master earlier was your doing!" First gen Gu Yue spat hatefully.
+
 
 # Chapter 192: Raising Eyebrows & Exhale
 
@@ -12678,6 +13312,8 @@ Crystal clear like red agate, the cicada-like Kinship Bloodworm pulsed with ligh
 This white-browed elder from the Middle Continent was known as Lord Sky Crane.
 
 Lord Sky Crane and First gen Gu Yue both hailed from the Middle Continent's Immortal Crane Sect. Centuries ago, they were closer than blood brothers, slaying demonic Gu Masters in perfect synergy.
+
+While pursuing demonic cultivators, the pair had discovered one of the legendary Blood Sea Ancestor's true treasure inheritances—a supreme hoard capable of elevating a mortal to an immortal.
 
 Lord Sky Crane claimed the inheritance first, but First gen Gu Yue ambushed him, stole the Gu, and attempted murder.
 
@@ -12715,7 +13351,7 @@ First gen Gu Yue struggled in vain as the eyebrows bound him like steel roots.
 
 "The Raise Eyebrows & Exhale Gu!" First gen Gu Yue's voice shifted in shock and fury.
 
-The Raise Eyebrows & Exhale Gu converted primeval essence into primeval energy rather than ordinary qi—a rare Gu with a mutual-destruction mechanic.
+Acting like a bridge, the Raise Eyebrows & Exhale Gu connected their apertures, burning both cultivators' primeval essence as primeval energy rather than ordinary qi—a rare Gu with a double-edged, mutual-destruction mechanic.
 
 Though both were Rank five peak stage, First gen Gu Yue's zombie aperture was dead and incapable of naturally recovering primeval essence. Though near death, Lord Sky Crane's living aperture recovered primeval essence, striking First gen Gu Yue's greatest weakness.
 
@@ -12726,6 +13362,7 @@ With his primeval essence steadily draining toward certain defeat, First gen Gu 
 Forced to sustain the Raise Eyebrows & Exhale Gu, Lord Sky Crane could only rely on his light barrier to defend passively against the assault.
 
 His barrier would likely shatter and First gen Gu Yue would kill him before the zombie's primeval essence ran out!
+
 
 # Chapter 193: Divine investigator’s last move
 
@@ -12753,11 +13390,11 @@ Facing certain death without fear, the investigator's resolute eyes had shone as
 
 "So it was then! Damn it—a living body would have sensed it, but my zombie form lacks sensitivity despite its strength." First gen Gu Yue was filled with regret.
 
-"Hahaha! The Sky Crane Lord's aura grew with his laughter, then he charged towards the First gen Gu Yue."
+"Hahaha!" Lord Sky Crane's aura surged with his laughter as he charged toward First gen Gu Yue.
 
 Battered and bloody, First gen Gu Yue had his ribs exposed and both arms severed from the shoulders by Lord Sky Crane.
 
-Piercing, concentrated sonic waves coalesced and slammed into Lord Sky Crane.
+Just as Lord Sky Crane closed in for the kill, First gen Gu Yue opened his mouth and unleashed a bizarre, unearthly screech. Piercing, concentrated sonic waves coalesced and slammed into Lord Sky Crane.
 
 Blasted back dozens of paces with his eyebrow tendrils pulled taut, Lord Sky Crane crashed down.
 
@@ -12768,6 +13405,8 @@ With the cranes ineffective, the crane king battling the python in the distance,
 With his primeval sea emptying, First gen Gu Yue could not prevent the Problem Nipped in the Bud Gu from sealing his Gu worms.
 
 First gen Gu Yue shouted in panic, "Quick, lend me a hand! Grab the eyebrows and activate your primeval essence."
+
+A crowd of Gu Masters from all three clans surged forward, desperately grabbing the white eyebrows. But the moment they touched them, strands of the eyebrows branched out, coiling around their wrists and creeping up their bodies.
 
 How could Rank two essence withstand a Rank five's drain? In moments, their primeval seas emptied and their apertures cracked and collapsed.
 
@@ -12787,11 +13426,12 @@ Spurred by his example, other Gu Masters rushed forward in succession.
 
 "Life or death will be decided by this." Xiong Jiao Man similarly stood up.
 
-The Problem Nipped in the Bud Gu slowly extracted a ball of yellow light from his aperture.
+Yet the gulf between Rank three and Rank five was simply too vast. Bound by chains and entangled in eyebrows, First gen Gu Yue's primeval essence finally dwindled to nothing. Suddenly, the Problem Nipped in the Bud Gu on his forehead shone with faint yellow light, slowly extracting a glowing yellow orb from his aperture.
 
 It revealed a Gu resembling a palm-sized child's crystal skull, veined with reddish blood streaks.
 
 "Blood Skull Gu! After hundreds of years, I finally see you again!" Lord Sky Crane wept tears of joy from afar, overcome with emotion.
+
 
 # Chapter 194: Blood Curtain Skyflower
 
@@ -12807,6 +13447,8 @@ Seeing this Gu, First gen Gu Yue stopped struggling, exultant. Baring his fangs,
 
 Several Gu Masters immediately stepped forward and unleashed their attacks.
 
+Problem Nipped in the Bud Gu prevented First gen Gu Yue from activating this Gu with his thoughts. However, this expendable Gu activated upon destruction, and the sealing imprint had no defense; under their attacks, it collapsed, destroying the Gu.
+
 A soft cry resounded as blood light bloomed, rapidly expanding into a spherical shield.
 
 Spanning six mu, the blood shield enclosed Bai Ning Bing and Fang Yuan, leaving Xiong Jiao Man and others outside.
@@ -12814,6 +13456,10 @@ Spanning six mu, the blood shield enclosed Bai Ning Bing and Fang Yuan, leaving 
 The shield instantly severed the white eyebrows in two; as they disintegrated, Fang Yuan and the others regained control of their bodies.
 
 "This shield's aura reaches Rank five, but why does it resemble Water Curtain Skyflower Gu?" Fang Yuan wondered, bewildered.
+
+Separated by the shield, Sky Crane Lord laughed coldly, "What a fine counterattack, senior brother, but this trifling defense won't save you!"
+
+First gen Gu Yue laughed loudly, "Junior brother, how about testing it yourself?"
 
 "Just as I intended!" Killing intent flashing in his eyes, Sky Crane Lord unleashed white beams, flying cranes, and feather arrows at the shield.
 
@@ -12827,11 +13473,17 @@ Sky Crane Lord attacked furiously, slaughtering all Gu Masters outside the shiel
 
 After attacking fruitlessly for a long time, Sky Crane Lord abruptly stopped, coming to his senses.
 
+First gen Gu Yue was baiting him into wasting primeval essence. Like Water Curtain Skyflower Gu, this one-time expendable Gu boasted immense defense but only lasted for a set duration before dissipating on its own.
+
 Realizing this, Sky Crane Lord sat cross-legged, crushing two primeval stones to recover his primeval essence.
 
 "Help me if you want to live! I need primeval stones, in large quantities!" First gen Gu Yue shouted, and the Gu Masters immediately piled stones around him.
 
+First gen Gu Yue opened his bloody mouth wide, sucking in and chewing the primeval stones as natural primeval essence poured into his aperture.
+
 Sky Crane Lord shouted, "Don't give them to him, fools! Once he can move, he'll slaughter you all to upgrade his aptitude!"
+
+Dismissing his warning as a low trick to sow distrust, the Gu Masters gave even more stones, while Fang Yuan and Bai Ning Bing watched indifferently.
 
 While an ordinary body could not withstand such an influx of primeval essence, First gen Gu Yue's blood wight zombie body held firm, rapidly filling his primeval sea.
 
@@ -12872,6 +13524,7 @@ Mysteriously, not a single drop touched the ground; all the blood adhered to Fir
 First gen Gu Yue stood silently, then burst into manic laughter, "Kakakaka, my aptitude has advanced—it really advanced!"
 
 Outside the shield, Sky Crane Lord pointed furiously at First gen Gu Yue, "Return my Blood Skull Gu!"
+
 
 # Chapter 195: Then let me become a demon
 
@@ -12943,7 +13596,9 @@ Frigid mist condensed, immediately reforming his skull and body—Bai Ning Bing 
 
 "What!" First gen Gu Yue was shocked; Ten Extreme physiques were rare, and this was his first encounter with one.
 
-First gen Gu Yue attacked frantically. Bai Ning Bing lost all color of life, turning completely into an iceman.
+They traded blows again; though heavily outmatched, no matter how First gen Gu Yue killed him, Bai Ning Bing did not die. At this moment, his Northern Dark Ice Soul body was close to an undying body, freezing any wound back to normal within seconds.
+
+Growing furious and fearful, First gen Gu Yue attacked frantically. Bai Ning Bing lost all color of life, turning completely into an iceman.
 
 "Infinite brilliance in the mortal realm, the sky and sea reach the world's end. As winds scatter my ashes to earth, none compares to the moon reflected in water!" Bai Ning Bing recited with a faint smile.
 
@@ -12963,7 +13618,10 @@ The Blood Curtain Skyflower burst softly; unhindered, frigid air surged outward 
 
 Under his astonished gaze, the glacier engulfed Qing Mao Mountain, transforming the lush mountain into desolate ice and snow.
 
-"Not good, Bai Ning Bing is losing control of the glacier!" Fang Yuan realized his space was shrinking as ice advanced.
+The icy ground beneath Fang Yuan's feet kept rising as he watched the scene unfold.
+
+"Not good, I need to leave this place soon! Bai Ning Bing's consciousness is weakening and fading—he is losing control of the glacier!" Fang Yuan realized his space was shrinking as ice steadily condensed and compressed inward.
+
 
 # Chapter 196: Rebirth once more
 
@@ -13011,6 +13669,8 @@ There was less than a ten percent chance of success.
 
 "Lad, you're unlucky; blame your despicable ancestor. I'll set you free from your misery!"
 
+First gen Gu Yue and Lord Sky Crane both attacked at once.
+
 "Spring Autumn Cicada, do it!" His eyes shone brilliantly as green and yellow light burst from his body.
 
 "How can this be? A Rank six Gu!"
@@ -13020,6 +13680,10 @@ Shock struck the two Rank five Gu Masters, quickly followed by greed.
 But at this time, a loud boom occurred.
 
 Fang Yuan self detonated!
+
+Legend says the world has one long river, known as time. Humans were like fish in the river, able only to flow downstream with its currents.
+
+The river of time surged with roaring currents, where every ripple was a story—an event that had occurred in the past.
 
 Beneath the turbulent water, a tiny Gu worm swam upstream.
 
@@ -13061,6 +13725,8 @@ The third captured light dropped to the ground, a scarlet Gu resembling a transl
 
 Fang Yuan's heart jumped: "Blood Curtain Skyflower!"
 
+It was this Gu that changed the situation and allowed First gen Gu Yue to overturn the crisis. Blood Curtain Skyflower was created by First gen Gu Yue himself; Fang Yuan had not known of it earlier, but now he was clear of its effects.
+
 Indeed, afterwards, First gen Gu Yue shouted, "Quick someone, destroy this Gu worm!"
 
 Several Gu Masters rushed forward at once and unleashed their attacks.
@@ -13079,6 +13745,7 @@ Lord Sky Crane shouted, "You fools! Once he recovers, he will slaughter you all 
 
 No one believed him.
 
+
 # Chapter 197: Changing Fate!
 
 First gen Gu Yue continuously chewed and crushed large numbers of primeval stones, absorbing them.
@@ -13091,7 +13758,9 @@ Fang Yuan moved, choosing a different path than before instead of merely watchin
 
 Gu Yue laughed heartily, "Very good, truly my descendant! Such filial piety pleases your ancestor!"
 
-Having long coveted the Treasure Lotus, First gen Gu Yue held no suspicion of Fang Yuan's approach.
+First gen Gu Yue had long wanted the Heavenly Essence Treasure Lotus, yet right now he held no suspicion.
+
+Firstly, he had not openly fallen out with Fang Yuan yet; secondly, Fang Yuan had earlier displayed loyalty by taking the initiative to help with the white eyebrows' primeval essence expenditure. Lastly, under such dire circumstances, Fang Yuan could only rely on First gen Gu Yue to defeat Lord Sky Crane—First gen Gu Yue did not believe Fang Yuan would ruin his own survival chances by attacking him.
 
 As Fang Yuan approached, First gen Gu Yue laughed, "With the Heavenly Essence Treasure Lotus, my chances rise by twenty percent. Step aside and let him in!"
 
@@ -13141,7 +13810,9 @@ Without First gen Gu Yue, Fang Yuan was truly unstoppable inside the blood barri
 
 Fang Yuan chuckled, bending down to pick up the two Gu worms.
 
-In his hands lay the Blood Skull Gu and Yin Yang Rotation Gu, sealed by the yellow talisman light.
+In his left hand lay the Blood Skull Gu and in his right the Yin Yang Rotation Gu, both sealed by the yellow light of Problem Nipped in the Bud Gu and unable to sense First gen Gu Yue's desperate calls.
+
+However, this seal was an obstacle to Fang Yuan as well; forcefully breaking it would only destroy the two Gu worms. Yet Fang Yuan was not anxious.
 
 He knew the Demon Suppression Iron Chain Gu and Problem Nipped in the Bud Gu would soon be corrupted by Blood Frenzy Gu, melting into blood water.
 
@@ -13162,6 +13833,10 @@ Lord Sky Crane naturally chased him, laughing non-stop.
 Giving up on re-entering, First gen Gu Yue fought back against Lord Sky Crane using his replenished primeval essence.
 
 The battle between two Rank five attracted everyone's attention. Fang Yuan however, retracted his gaze and looked at Bai Ning Bing.
+
+This situation was like two tigers competing while Fang Yuan was a rabbit. Both Lord Sky Crane and First gen Gu Yue were crafty old foxes, so the chance of them injuring each other for his benefit was slim. Moreover, the blood barrier could only protect them for a while; once its time was up, everyone inside—including him—would face their slaughter.
+
+Having already rebirthed once, the Spring Autumn Cicada had fallen into a weak state again and could not be used. Right now, Fang Yuan could only try to grow as strong as possible, exerting every effort to fight for a chance to survive.
 
 Fang Yuan already had a plan, and one person played a crucial role in it: Bai Ning Bing.
 
@@ -13210,6 +13885,7 @@ His Chainsaw Golden Centipede whirred, instantly slicing a nearby Gu Master in h
 Blood Skull Gu!
 
 Fang Yuan activated the Blood Skull Gu, absorbing the blood.
+
 
 # Chapter 198: Ruthless in murdering people, cruelty exercised to profit from disaster
 
@@ -13361,6 +14037,7 @@ Frigid winds raged into a hurricane; frost blanketed the sky as a boundless rive
 
 "This is—!" Caught completely unprepared by Bai Ning Bing's attack, Lord Sky Crane was instantly sealed within the ice.
 
+
 # Chapter 199: Walking towards their own destiny
 
 The glacier shook violently under Lord Sky Crane's fierce attacks; he was seconds away from breaking free.
@@ -13417,6 +14094,8 @@ Two days later.
 
 The jade coffin shattered, and Lord Sky Crane broke free into daylight.
 
+Even after killing First Gen Gu Yue, he had failed to obtain the true Blood Sea inheritance, and the ice layer where Fang Yuan had been was already cut open. Activating his recon Gu, he detected many life forces still clinging to life in the depths of the ice. Suddenly spotting a familiar figure, he jolted with joy. "Found him! So this crafty guy was hiding here all along!"
+
 Diving into the ice, he quickly extracted a frozen block.
 
 Inside the ice, Fang Zheng lay near death under the Moon Raiment Gu.
@@ -13427,8 +14106,12 @@ Disappointed, Lord Sky Crane muttered, "This isn't him, they merely look alike..
 
 With a close relative on him, he could refine the Kinship Blood worm!
 
-"Who are you? Where are you taking me?" Fang Zheng cried in alarm.
+It was with this Rank five Kinship Blood worm that he had located First Gen Gu Yue across the vast world. "I haven't completely failed my teacher's assignment. This kid is my only hope—I must save him!"
 
-Awakening atop the soaring crane, Fang Zheng heard the elder declare: "I am Lord Sky Crane, and we are heading to the Middle Continent."
+When Fang Zheng slowly opened his exhausted eyes, clouds were moving all around him—he was standing on the back of an enormous crane flying through the sky, with an elder beside him.
+
+"Who are you? Where are you taking me?" Fang Zheng cried out in alarm.
+
+"I am Lord Sky Crane, and we are heading to the Middle Continent."
 
 "Middle Continent?!" Fang Zheng shouted in shock.
